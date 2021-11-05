@@ -2,7 +2,7 @@
 title: Volume 1
 category: Nguyệt đạo dị giới
 importance: 1
-description: null
+description: Sky Light Novel
 layout: page
 img: https://1.bp.blogspot.com/-nLAgHpjgI50/YYQKAikKCbI/AAAAAAAACcs/DzuMKxVY1vElalKCnjP-JkzaXCxtldAPACLcBGAsYHQ/s16000/IMG_0020.PNG
 ---
@@ -323,7 +323,7 @@ Tôi gật đầu mỉm cười.
 Tôi đã quyết tâm đi đến dị giới. Ngài Tsukuyomi đã lắng nghe lời nói của một kẻ nhỏ bé như tôi, giúp cho tâm trí của tôi bình tĩnh hơn. Nếu ngài Tsukuyomi no Mikoto đã nói như vậy, cho dù đó là một Nữ thần"xưa nay chưa từng có", tôi cũng sẽ chấp nhận.
 
 <br /><br /><br /><br /><br />
-◇◆◇◆◇◆◇◆
+#### **◇◆◇◆◇◆◇◆**
 <br /><br /><br /><br /><br />
 
 ... Đúng vậy, quả thực tôi đã từng nghĩ như thế.
@@ -635,7 +635,7 @@ Còn Nữ thần á?
 Tôi nhẹ nhàng đáp xuống mặt đất (khô cằn).
 
 <br /><br /><br /><br /><br />
-◇◆◇◆◇◆◇◆
+#### **◇◆◇◆◇◆◇◆**
 <br /><br /><br /><br /><br />
 
 Trước mắt tôi là một vùng đất hoang vu mênh mông, chẳng có gì ngoài những dãy núi đá trải dài.
@@ -1533,6 +1533,270 @@ An toàn! Tôi vẫn còn sống nhé!
 ![][IMG_0057.PNG]{:class="img-fluid"}
 
 [IMG_0057.PNG]: https://1.bp.blogspot.com/-_V5JcsWbDAs/YYQJrrJWtxI/AAAAAAAACcY/ca6hq6vZ63cVEM5L8R4NxPfcdk72hCItgCLcBGAsYHQ/s16000/IMG_0057.PNG
+
+Tôi không thể rời mắt khỏi Shin. Bởi vì tôi đã nắm rõ kích cỡ của cái đầu, nên lần này tôi sẽ thử dự đoán kích cỡ toàn thân của con rồng.
+
+Cái gì, vậy là nó còn to gấp mấy lần tàu siêu tốc sao? Mặc dù tôi không chắc chính xác nó dài bao nhiêu.
+
+... Tôi xong đời rồi!!
+
+Người phụ trách kia, bà coi tôi là đồ ngốc chắc! Này, Nữ thần, xuất hiện đi Nữ thần!
+
+Nhất định bà có vũ khí hay là đồ phòng ngự gì đó trong truyền thuyết đúng không?!
+
+Trong lúc tôi còn đang mải né đòn, mặt đất đã bị sương mù che phủ hoàn toàn.
+
+Đừng nói tới con rồng to khổng lồ đó, đến cả bàn tay của mình tôi cũng không thể nhìn rõ.
+
+Nếu cơ thể khổng lồ của con rồng di chuyển, sương mù hắn là sẽ nổi sóng, nhưng hiện tại mọi thứ vẫn yên tĩnh, hơn nữa, sương mù cũng không còn dày đặc như trước.
+
+Kẻ đã tạo ra màn sương này chắc chắn là Shin, con rồng kia... quả là giảo hoạt.
+
+Có điều, chuyện tôi không cảm nhận được khí tức của nó đúng là kỳ lạ. Màn sương trước mặt chẳng lẽ không phải là sương mù bình thường sao?
+
+Tình hình hiện tại hoàn toàn bất lợi cho tôi, rốt cuộc tôi nên làm thế nào đây...
+
+Bất chợt, một con ớn lạnh chạy dọc gáy!
+
+Ngay lập tức, tôi nhảy về phía trước. Quay đầu nhìn lại, cái miệng to lớn của Shin đã ở nơi tôi vừa mới đứng.
+
+"Này này! Ngươi làm thế chẳng phải rất quá đáng sao? Nãy giờ ta đâu cảm nhận được dấu hiệu gì của ngươi?"
+
+Đừng nói là đánh trả, chỉ riêng việc tránh đòn tôi đã phải dùng hết sức rồi.
+
+Khi chiến đấu với một kẻ có cơ thể to lớn, đầu tiên phải né tránh hoặc phòng ngự đòn tấn công của đối thủ, rồi nhân lúc đó tấn công vào chỗ sơ hở, đó chính là chiến thuật cơ bản... Hầu hết các trường hợp đều là vậy. Nói chung, kinh nghiệm có được từ game hành động và đối kháng giúp tôi bình tĩnh hơn nhiều.
+
+Tuy nhiên, tôi vẫn không thể cảm nhận được dấu hiệu của kẻ địch, nếu nó đột nhiên tấn công từ phía sau, tôi sẽ chẳng có cách nào hết! Cái thể loại game chết tiệt gì thế này!
+
+Tôi có cảm giác như vừa mới chơi mà đã phải đấu với Boss cuối trong game đối kháng ấy.
+
+Lúc này, điều tôi có thể làm là cố gắng tránh đòn tấn công của con rồng rồi tung một cú đấm vào mặt từ ngay phía chính diện, hoặc là suy đoán và tấn công vào cơ thể. Có điều, tấn công nó đâu phải chuyện đơn giản.
+
+Tôi phải làm thế nào bây giờ? Làm thế nào bây giờ?
+
+Ba tấm thẻ màu xanh lam hiện lên trong đầu tôi. Chẳng phải tôi đang khá thong thả sao, để xem nào...
+
+1. Dù sao vẫn nên tiếp tục né tránh rồi chớp thời cơ đánh trúng một đòn!
+
+2. Nếu vậy, chỉ cần xua tan sương mù là được, nào, gió đâu, tới thổi bay chúng đi!
+
+3. Tiên thủ tất thắng! Cứ đánh bừa đi, thể nào cũng trúng!
+
+`Tiên thủ tất thắng: Đoạt được cơ hội ra tay trước thì nắm chắc chiến thắng.`
+
+Số 1 chắc chắn là không thể rồi. Giống như ban nãy đã nói, tôi không nghĩ mình có khả năng liên tục dùng giác quan thứ sáu.
+
+Còn số 2 thì... hãy gọi vị quân sự nổi tiếng nào đó trong Tam Quốc Chí đến mà làm đi.
+
+Với số 3, tôi có cảm giác như đang kìm nén sức mạnh và áp đảo đối thủ bằng số lượng đòn tấn công. Nói chung, phương pháp này chính là phát tán Brid ra khắp mọi phương hướng để nắm bắt vị trí của đối thủ. Sau đó sẽ dùng "mũi tên" đầy tự hào của mình để tấn công.
+
+Ừm, đúng vậy. Cái thứ ba là thực tế nhất. Hay nói đúng hơn, với khả năng suy nghĩ có hạn, tôi chỉ có thể nghĩ ra những chiến thuật như vậy.
+
+Chẳng còn cách nào khác, phải thực hiện thôi. Trong tình huống này, tôi không nghĩ rằng mình có thể giữ vững tinh thần trong một thời gian dài. Nếu như hoảng sợ, tôi sẽ chết chắc.
+
+<br /><br /><br /><br /><br />
+#### **◇◆ Shin ◇◆**
+<br /><br /><br /><br /><br />
+
+Ngay cả trong loài rồng, ta cũng đứng ở một vị trí cao, được gọi là "Vô Địch".
+
+Tuy nhiên, năng lực tấn công đơn thuần của ta kém hơn những con rồng cấp cao khác. Năng lực phòng ngự cũng vậy.
+
+Dù thế ta vẫn vô địch, tất cả là nhờ năng lực "Á Không" của ta.
+
+Bao vây kẻ địch bằng sương mù, kéo vào trong Á Không rồi giết chết. Sương mù là vật trung gian dùng để dụ dỗ sinh vật bị bắt vào trong Á Không.
+
+"Á Không" là không gian đặc biệt do ta tạo ra và khống chế. Đó là một không gian tối tăm chẳng hề có bất cứ thứ gì, đến cả sương mù cũng không. Ở trong không gian này, ta có thể thoải mái tạo ra băng, đóng băng, hay đốt cháy kẻ địch bằng nghiệp hỏa. Toàn bộ đều do ta quyết định. Con mồi bị dụ vào trong Á Không chỉ có thể bị ta đùa giỡn đến chết.
+
+Trong quá khứ, chưa một con mồi nào có thể thoát khỏi Á Không. Tất nhiên, ta sẽ không tha cho kẻ vô lễ dám phá hủy cánh cổng của ta.
+
+Trước lúc sương mù hoàn toàn bao trùm, ta đã tấn công hắn hai lần, sau khi hắn bị màn sương bao vây, ta sẽ giam cầm hắn vào trong Á Không, và mọi thứ chắc chắn sẽ kết thúc.
+
+Thế nhưng, ta lại không thể kéo hắn vào được.
+
+Dù đã thử không biết bao nhiêu lần, nhưng lúc nào ta cũng có cảm giác như đang đem vật lớn nhét vào một cái lỗ nhỏ, hoàn toàn không thực hiện được. Chẳng lẽ cánh cổng do ta tạo ra quá nhỏ sao?
+
+Không ổn rồi, dù làm thế nào cũng vẫn không thể mang hắn vào trong Á Không. Không còn cách nào khác, ta sẽ săn hắn trong màn sướng mù này.
+
+Ta thử lao đến tấn công từ phía sau, nhưng bằng cách nào đó, hắn đã linh cảm trước đòn tấn công và tránh được.
+
+Chậc, đúng là một tên Loài người phiền toái.
+
+Chẳng thể kết liễu hắn nhanh gọn được.
+
+Rốt cuộc vì lý do gì mà hắn có thể thoát khỏi Á Không của ta? Tại sao hắn có thể tránh được đòn tấn công của ta trong màn sương mù làm nhiễu loạn cảm giác này? Thực sự chỉ là ngẫu nhiên thôi sao? Xem ra ta cần phải nghiên cứu một chút rồi.
+
+Nếu không, cái danh "Vô Địch" của ta sẽ bị lung lay mất.
+
+Giả sử việc bắn mũi tên lửa là do những con rồng cấp cao khác xúi giục, ta nhất định sẽ khiến cho kẻ chủ mưu phải trả giá...
+
+Ta không cần biết người đã đổ những lầm lỗi gì lên đầu ta - kẻ chỉ ngủ ở Tận cùng của Thế giới, nhưng nếu chỉ vì đố kỵ với danh hiệu "Vô Địch" này, chắc chắn ta sẽ không tha thứ cho ngươi. Bất kể đối phương là ai, ta nhất định sẽ tiêu diệt kẻ đó.
+
+Ta liếc nhìn dáng vẻ của tên Loài người. Từ góc độ này, ta có thể thấy hắn rất rõ ràng.
+
+Ta nghĩ rằng hắn đã phải dùng hết sức lực để né đòn, nhưng... hắn đang ném Brid hệ Hỏa ra khắp nơi.
+
+May mắn thay, ta kháng thuộc tính Hỏa. Ở mức độ này ta vẫn có thể dễ dàng chịu đựng được.
+
+Tuy nhiên, đó lại là một quyết định sai lầm.
+
+Bao vây xung quanh con mồi bằng cách vẽ thành một hình tròn, ta vừa xoay cơ thể vừa né tránh Brid mà hắn bắn ra, thế nhưng...
+
+Một Brid trong số đó đã bắn trúng cơ thể ta.
+
+Mặc dù không gây ra sát thương gì, nhưng sương mù xung quanh đã bị xua tan đi đôi chút, cơ thể được bao bọc bởi một lớp vảy của ta lộ ra ngoài.
+
+Ngay sau đó...
+
+Cũng chẳng phải là nói quá khi gọi tốc độ đó là sát na.
+
+`Sát na là thuật ngữ nhà Phật hay sử dụng, chỉ đơn vị ngắn nhất của thời gian. Nói cách khác, sát na chỉ thời gian chớp nhoáng của mỗi biến đổi.`
+
+Tên Loài người kia tập trung ma lực, tạo ra một thứ giống như Brid được nén lại một cách dị thường, rồi nhắm chính xác vào cơ thể ta và bắn.
+
+Mặc dù ta đã nhanh chóng cong người né tránh, nhưng vẫn không kịp.
+
+Trong nháy mắt, thứ đó trở nên sắc bén như mũi tên, xuyên thủng được cơ thể ta, xuyên thủng cơ thể có khả năng kháng lửa của ta.
+
+Bị Brid hình cầu lúc nãy bắn trúng không hề làm ta cảm thấy đau đớn hay bỏng rát gì, thế nhưng Brid mũi tên này, dù do cùng một người bắn ra nhưng lại có thể đâm xuyên qua cơ thể ta với tốc độ khó tin rồi phát nổ.
+
+Nhiệt độ và cơn đau dữ dội ập tới tấn công ta.
+
+"Gràooooo!"
+
+Không hề nhận ra luồng gió được tạo ra từ vụ nổ đã thổi bay một lượng sương mù đáng kể, ta kêu lên một tiếng đau đớn đầu tiên trong cuộc đời.
+
+Cơ thể? Cơ thể của ta thế nào rồi?!
+
+Thay vì nắm bắt tình hình, ta vội vàng kiểm tra vết thường thì thấy hơn một nửa bộ phận bị thương đã bị khoét ra một cách tàn nhẫn.
+
+Sau một thoáng bàng hoàng, một cơn phẫn nộ mãnh liệt trào dâng trong lòng ta.
+
+Hắn không còn là con mồi mà ta đi săn, mà chính là kẻ địch mà ta cần phải tiêu diệt!
+
+Bây giờ không phải là lúc ta lo lắng cho vết thương... mà là lúc không nên rời mắt khỏi tên đó.
+
+Khi ta kịp nhận ra, kẻ thù đáng căm hận đã xuất hiện ở ngay trước mắt. Cơ thể ta vẫn đang lơ lửng ở sát mặt đất mà quên trốn vào trong sương mù.
+
+"Cú Đấm Chính Nghĩa... Tuyệt Vọng!"
+
+Kẻ đó vừa hô to một câu mà ta không thể hiểu nổi vừa tung ra một cú đấm nhắm thẳng vào mặt ta.
+
+Ngay giây sau, trong đầu ta có cảm giác như hàng ngàn ngôi sao đang xoay tròn. Chắc chắn đây không phải là sức mạnh cơ thể của loài người! Hắn ta là Quái nhân hay là Người khổng lồ sao, không, thậm chí còn hơn thế nữa?!
+
+"Chưa ngỏm à... Vậy thì, Đấm Ngược!"
+
+Lại thêm một cú đấm nữa ở cùng một vị trí.
+
+Uy lực không thể tin được. Không chỉ khuôn mặt cả cơ thể ta cũng bị đẩy ngược ra phía sau.
+
+Tuy nhiên, nhờ vậy mà cơ thể ta lại một lần nữa ẩn náu vào trong sương mù. Nói cách khác, chính là quay trở lại như ban đầu. Tên này rất nguy hiểm, không hề tầm thường chút nào. Chắc chắn hắn đã có được gia hộ của ai đó.
+
+Quả nhiên là một trong những con rồng cấp cao đứng sau vụ này sao? Không, kẻ này vốn dĩ là Loài người, khó mà nghĩ rằng những con rồng kia có thể làm cho hắn mạnh đến mức ấy được.
+
+Vậy có nghĩa là... thần?!
+
+Là bà Nữ thần tính khí thất thường kia sao?!
+
+Trường hợp đó không phải là không có khả năng nhưng xét theo vẻ bề ngoài của tên Loài người này, không thể nào có chuyện hắn nhận được sự sủng ái của bà Nữ thần chỉ quan tâm đến ngoại hình đó được.
+
+A... Không có cách nào làm giảm bớt đi cơn đau đón. Đây là lần đầu tiên ta phải nếm mùi bị đấm vào mặt. Cơ thể bỏng rát cũng vẫn chưa hết đau.
+
+... Rốt cuộc hắn ta là ai?!
+
+Đúng lúc này, ta chợt nhận ra, ở phía bên phải tầm nhìn của ta, hắn... hắn đang ở đó.
+
+"Vì sao... vị trí của ta... lại bị...?"
+
+Không thể nào. Bất kể ra sao đi nữa, ở trong màn sương mù này, chuyện đó hoàn toàn không có khả năng. Quả thực mật độ của màn sương đã mỏng đi, nhưng chuyện đó vẫn khó mà tin được...
+
+"Nếu đã vậy, chỉ có thể dùng tuyệt chiêu rồi."
+
+Bàn tay của tên đó đang tỏa ra thứ ánh sáng đỏ rực. Chiêu tất sát ư...? Hắn ta... định làm gì...?
+
+"Cú Đấm Cóc Nhảy!!"
+
+Cằm dưới của ta bị nắm đấm của tên đó đánh trúng. Sau đó...
+
+"Biến thành sao băng điiiiii!!"
+
+Uy lực của nắm đấm khiến một nửa cơ thể ta bị đánh bay lên, rồi cứ như vậy mà rớt xuống theo hướng ngược lại. Tất cả chỉ bằng một đòn của tên Loài người nhỏ bé.
+
+Ta miễn cưỡng duy trì được ý thức.
+
+Đây là sự chênh lệch sức mạnh quá mức áp đảo.
+
+Bị đánh bại thảm hại đến vậy... thật sự quá nhục nhã.
+
+Sức mạnh cường đại của hắn khiến ta nghĩ có lẽ ta không thể tìm ra thủ đoạn nào để chống lại kẻ địch này.
+
+Nằm sấp trên mặt đất, ta giả vờ mất ý thức và tìm kiếm năng lực của hắn bằng thông tin có được từ trong sương mù, đồng thời âm thầm phun thêm sương mù để tạo ra ảo giác.
+
+Ngoại trừ Á Không, ta vẫn còn các năng lực khác.
+
+Ảo giác là một trong những sở trường đặc trưng của ta. Ta có thể nhìn trộm ký ức của đối phương, rồi từ đó chiếu lên trên sương mù ảo giác về những điều hắn mong ước hay căm hận để mê hoặc hắn. Một khi kẻ đó chìm đắm trong ảo giác của ta, trong tiềm thức hắn sẽ xuất hiện những suy nghĩ sai lầm, khiến hắn cảm thấy đó mới đúng là hiện thực.
+
+Không biết vì sao ta không thể mang tên này vào trong Á Không, nên giờ chỉ còn cách tấn công bất ngờ và giam cầm hắn trong sương mù, rồi "chăn nuôi" cho tới chết.
+
+Sẽ rất rắc rối nếu đó không phải là ảo giác mà hắn mong mỏi. Lỡ như hắn vùng vẫy chống lại thì phiền phức vô cùng.
+
+Hãy chìm đắm trong cơn ảo giác hạnh phúc mà ngươi mong ước và chết đói đi! Dù sao hắn cùng là Loài người, ngay cả khi được cường hóa, phải trải qua mười ngày không ăn không uống, kiểu gì hắn cũng sẽ chết.
+
+Nếu mười ngày không đủ, ta vẫn có thể tiếp tục "chăn nuôi" thêm một tháng, thậm chí cả một năm trời.
+
+Sau khi quyết định như vậy, ta tìm kiếm tên Loài người đó trong làn sướng mù mới được tạo thành.
+
+Không ngờ cũng có ngày ta phải giả vờ chết... để khiến kẻ thù chủ quan, rồi tranh thủ thời cơ lựa chọn phương pháp tiêu diệt hắn...
+
+Tên đó quay lưng về phía ta, nghỉ lấy sức. Nhìn thấy ta đang nằm trên mặt đất không hề nhúc nhích, có vẻ như hắn đã cảm thấy hơi yên tâm.
+
+... Chính là lúc này!
+
+Ngay lập tức, ta mở to mắt và phát động ảo giác. Tên Loài người nhận ra được dị biến cũng nhanh chóng đề cao cảnh giác. Quả không hổ là hắn nhỉ... Có điều, đã trễ rồi.
+
+"Kết thúc ở đây đi."
+
+Với cảm xúc sục sôi ở trong lòng, ta bỏ lại một câu như vậy và nhốt hắn trong một không gian hình tứ giác tràn ngập sương mù.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+"Hửm? Nơi đây là... sân bắn cung?"
+
+Ký ức tôi khá mơ hồ. Vì sao tôi lại ở chỗ này?
+
+Ánh chiều tà xuyên qua khung cửa sổ, khiến cả sân tập nhuộm một màu vàng cam ấm áp... Đã hoàng hôn rồi sao? Chắc hẳn buổi sinh hoạt câu lạc bộ đã kết thúc, còn tôi vẫn đang mặc áo tập và cầm cung trong tay.
+
+... Bây giờ mình đang luyện bắn cung sao? Sau khi mọi người đã về, một mình ở lại sân tập và tiếp tục luyện tập là một trong những sở thích của tôi.
+
+Mũi tên phóng vút đi. Trúng đích.
+
+Tiếp tục bắn thêm một mũi nữa. Lại trúng đích.
+
+"Ừm, trạng thái của mình rất tốt."
+
+Tôi nhìn xung quanh sân tập, "Phù", cố gắng hít thở đều để bình tâm lại.
+
+Mũi tên thứ ba cũng cắm ngay hồng tâm, xuyên qua cả mũi tên trước đó. Ba mũi tên ở cùng một vị trí, không sai lệch chút nào.
+
+Chắc hôm nay đến đây là được rồi.
+
+Cảm thấy hơi tiếc khi phải kết thúc buổi tập sớm hơn dự kiến, tôi chậm rãi thả lỏng cơ thể.
+
+Sau đó, tôi thu dọn các dụng cụ tập luyện trong sân bắn, bao gồm cả cây cũng quen thuộc của riêng mình.
+
+Đúng rồi. Trước khi kết thúc, tôi đều dùng nó để bắn một phát cuối cùng. Sao chuyện đã thành thói quen như vậy mà tôi lại quên nhỉ?
+
+Ký ức không rõ ràng khiến trong lòng tôi dấy lên một nỗi bất an mơ hồ.
+
+Đổi cây cung trong tay, tôi dứt khoát kéo dây. Lực căng mạnh hơn nhiều so với lúc nãy, nhưng nó lại khiến tôi cảm thấy thoải mái hơn.
+
+"Phiu!"
+
+Tôi không kìm được kêu lên một tiếng... Mặc dù đây là việc vẫn làm mỗi ngày, nhưng sao tôi lại có cảm giác đã lâu lắm rồi. Mũi tên phóng ra cắm khá sâu vào bia bắn.
+
+
 
 ![][IMG_0094.PNG]{:class="img-fluid"}
 

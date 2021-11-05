@@ -1,7 +1,7 @@
 ---
 title: Volume 3
 layout: page
-description: null
+description: Sky Light Novel
 img: https://1.bp.blogspot.com/-ZqMaQ9Nk8rU/YYS2NG1wYgI/AAAAAAAACeM/zTRO9e9GfMcZhjWQ2_FZ9UDYP9SOSec1QCLcBGAsYHQ/s16000/IMG_0811.PNG
 importance: 3
 category: Nguyệt đạo dị giới

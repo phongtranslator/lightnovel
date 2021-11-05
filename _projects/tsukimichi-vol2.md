@@ -1,7 +1,7 @@
 ---
 title: Volume 2
 layout: page
-description: null
+description: Sky Light Novel
 img: https://1.bp.blogspot.com/-aRVfzjdn91U/YYSqH48UoAI/AAAAAAAACdQ/EuWNOFFjCCk-KytMO-5YdGxgfBPMlnMRgCLcBGAsYHQ/s16000/IMG_0653.PNG
 importance: 2
 category: Nguyệt đạo dị giới

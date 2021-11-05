@@ -1,7 +1,7 @@
 ---
 layout: post
-date: 2015-10-22 15:59:00-0400
-inline: true
+date: 2021-11-4 20:32:00+0700
+inline: false
+href: /projects/tsukimichi-vol1/
+title: Nguyệt đạo dị giới - Volume 1
 ---
-
-A simple inline announcement.
