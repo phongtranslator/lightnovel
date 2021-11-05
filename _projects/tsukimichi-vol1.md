@@ -18,7 +18,7 @@ img: https://1.bp.blogspot.com/-nLAgHpjgI50/YYQKAikKCbI/AAAAAAAACcs/DzuMKxVY1vEl
 
 
 <br /><br /><br /><br /><br />
-# Mở đầu
+# **Mở đầu**
 <br /><br /><br /><br /><br />
 
 
@@ -166,7 +166,7 @@ Mặc dù đều có cấu tạo sinh học như nhau, nhưng chúng tôi lại 
 
 Một thế giới cằn cỗi gần như không nhận được gia hộ hay sự ban phúc nào của các vị được gọi là Thần trên cao kia chính là thế giới mà tôi đã sống cho tới ngày hôm nay. Do đó, ma lực và thân thể của tôi sẽ trở nên vô cùng mạnh mẽ ở thế giới khác vì đã được giải phóng khỏi gánh nặng.
 
-`Bản gốc là 加護, gia trong gia tăng sức mạnh, hộ trong bảo hộ sinh mạng.`
+`Gia hộ: Bản gốc là 加護, gia trong gia tăng sức mạnh, hộ trong bảo hộ sinh mạng.`
 
 Mặc dù tôi cũng chỉ sinh sống bình thường như vô vàn người khác, nhưng không ngờ hoàn cảnh sống của tôi lại chất lượng như vậy.
 
@@ -430,9 +430,9 @@ Tôi chẳng buồn dùng kính ngữ nữa. Có điều, tôi nghĩ chắc mìn
 
 "Ta nói là ta sẽ ban cho ngươi khả năng có thể lý giải ngôn ngữ của chủng tộc khác ngoài con người, ví dụ như nói chuyện được với Ma tộc và ma vật. Vậy nên, hãy học cách chung sống hòa thuận với những chủng tộc có địa vị thấp như Orc và Goblin đi nhé. Chú ý đừng nhầm lẫn các chủng tộc và đừng gây phiền phức cho Loài người đấy, hiểu chưa? Được rồi, đi đi."
 
-`Trong văn học hiện đại, "Orc" là từ chỉ những sinh vật bị nguyền rủa có vẻ ngoài như quỷ, được lấy theo từ "Orcus" - vị thần La Mã tượng trưng cho cái chết. Chúng là giống loài tàn bạo, hung dữ và ghê tởm.`
+`Orc: Trong văn học hiện đại, "Orc" là từ chỉ những sinh vật bị nguyền rủa có vẻ ngoài như quỷ, được lấy theo từ "Orcus" - vị thần La Mã tượng trưng cho cái chết. Chúng là giống loài tàn bạo, hung dữ và ghê tởm.`
 
-`Là một sinh vật quái dị trong văn hóa dân gian châu Âu, xuất hiện từ thời Trung cổ. Chúng được gán cho các khả năng, tính cách, ngoại hình khác nhau tùy vào câu chuyện và xuất xứ, nhưng đa phần được miêu tả có ngoại hình nhỏ bé, kỳ cục, tinh quái và tham lam.`
+`Goblin: Là một sinh vật quái dị trong văn hóa dân gian châu Âu, xuất hiện từ thời Trung cổ. Chúng được gán cho các khả năng, tính cách, ngoại hình khác nhau tùy vào câu chuyện và xuất xứ, nhưng đa phần được miêu tả có ngoại hình nhỏ bé, kỳ cục, tinh quái và tham lam.`
 
 
 
@@ -458,7 +458,7 @@ Bà Nữ thần chết tiệt đó... Không, mình sẽ không bao giờ gọi 
 
 Khốn nạnnnnnnnnn!!
 <br /><br /><br /><br /><br />
-# Chapter 1
+# **Chapter 1**
 <br /><br /><br /><br /><br />
 Khung cảnh xung quanh chuyển từ căn phòng đang toả sáng lấp lánh sang một bầu trời đêm.
 
@@ -794,8 +794,741 @@ Bất kể thế nào, chuyện này không phải là quá kỳ lạ hay sao?!
 
 [IMG_0039.PNG]: https://1.bp.blogspot.com/-0OJ7ZJiTXmE/YYQJrqjJD-I/AAAAAAAACcc/_eZlLOJrQi8uc34wEyoL4Uqf-7KFbGlTQCLcBGAsYHQ/s16000/IMG_0039.PNG
 
-abdef
+Mặc dù trong thâm tâm tôi đang rất hoang mang, nhưng cuối cùng tôi cũng đã tiếp đất. Rụt rè quay đầu nhìn về phía sau, lẩm bẩm :
 
+"Uwa, m-mình, đã làm chuyện này sao..."
+
+Đó là một cảnh tượng vô cùng thê thảm. Nửa người của con chó bị đánh văng tung tóe và nát bét, chỉ một nửa còn lại còn giữ nguyên được hình dạng ban đầu, nằm song soài trên mặt đất. Rốt cuộc tôi đã làm gì mà thi thể nó lại thảm thương đến mức này chứ? Trông cứ như vừa bị xe tải cán qua vậy, tôi không nhìn nổi nữa, đành đánh mắt sang hướng khác.
+
+Xin lỗi xin lỗi xin lỗi.
+
+Tôi không ngờ rằng chuyện sẽ trở nên như vậy. Thật đấy.
+
+Quả nhiên, thật khó để nhìn thẳng vào chuyện xấu do chính tay mình làm.
+
+Đường nhìn của tôi vừa vặn chạm vào ánh mắt của Orc-kun (tên tạm thời).
+
+Qua đôi mắt ấy, tôi có thể thấy được nỗi hoảng sợ ẩn chứa bên trong còn mãnh liệt hơn nhiều so với lúc phải đối mặt với con chó hai đầu.
+
+Tôi không hề bận tâm và cũng chẳng cảm thấy kỳ lạ hay kinh tởm trước vẻ bề ngoài mà bình thường chắc chắn sẽ khiến tôi cảm thấy ghê sợ. Chắc hẳn điều này là nhờ cái bà Nữ thần đó. Không một ai có thể thể hiện sự ngu ngốc của việc đánh giá dựa trên vẻ bề ngoài hơn bà ta được. Còn nói cái gì mà tôi không đẹp đẽ, tương lại vô vọng nữa chứ.
+
+Tuy nhiên, tôi có cảm giác trước đây mình cũng từng hành xử tương tự như vậy.
+
+Nhưng dù sao, cuối cùng tôi cũng được nói chuyện với sinh vật khác rồi. Vậy nên, mau nói gì đi.
+
+Ôi, nói chuyện. Đó quả là một hoạt động tuyệt vời. Rốt cuộc tôi cũng được nói chuyện với ai đó.
+
+Trong lòng tôi bỗng dâng lên một cảm giác chờ mong kỳ diệu.
+
+Đứng trước mặt Orc-kun (tên tạm thời) - người đang nhìn tôi với vẻ mặt kỳ lạ, tôi vui vẻ chào.
+
+"A, rất vui được gặp."
+
+"Hức!! Hắn biết nói kìa!!"
+
+Hả, bắt chuyện thất bại à?
+
+Không không, đây là cuộc nói chuyện đầu tiên của tôi trong suốt ba ngày qua mà? Cuộc gặp mặt với xác suất siêu thấp đấy? Làm sao tôi có thể từ bỏ được.
+
+"Tôi không phải là kẻ đáng nghi đâu. Rất hiền lành và tốt bụng đấy. Hiểu được lời tôi nói chứ?"
+
+Orc-kun (tên tạm thời) lúc đầu liên tục gật gù, nhưng rồi lại lắc đầu nguầy nguậy.
+
+Tôi không hiểu thế là có ý gì. Động tác đặc biệt của thế giới này à?
+
+Bởi vì cậu ta đi bằng hai chân nên tôi cứ có cảm giác cậu ta cũng gần giống với con người...
+
+Không, khoan đã. Nhìn thấy Heo-san đang đứng mà tôi lại cảm thấy giống con người sao...? Có vẻ như bản thân tôi cũng sắp bị bức đến đường cùng rồi.
+
+"Kẻ đã giết chết "Lizoo" chỉ bằng một đòn làm sao có thể hiền lành và tốt bụng được!"
+
+Ồ, thì ra là vậy. Tôi đồng ý với điều đó. Quả thực chuyện lúc nãy quá khó chấp nhận, ngay cả tôi cũng nghĩ như vậy nữa mà.
+
+Mặc dù khuôn mặt đã tái xanh, nhưng cậu ta lại bình tĩnh không ngờ. Cậu ta liên tục lẩm bẩm mấy câu như, "Không thể nào có cách giết như vậy được."
+
+"... Biết rồi. Ta rất mạnh! Mạnh hơn người nhiều!"
+
+Hừ, tôi sẽ thử hăm dọa nó một chút xem sao.
+
+"Hiiiiiiiii."
+
+Cậu ta sợ hãi co rúm người lại. Gì vậy? Tôi dùng hành động để thể hiện ý nghĩ của mình cho Orc-kun (tên tạm thời) đang run rẩy.
+
+Ô, đúng là siêu thực.
+
+Mà nếu theo như diễn biến thông thường, sau khi đe dọa là đến lúc nên nói mấy câu kiểu, "Ta thích người rồi đấy" phải không? Hay là do mình chơi game quá nhiều rồi?
+
+"Được rồi, bình tĩnh nào. Đúng là ta rất mạnh, nhưng ta tới đây để giúp người cũng là sự thực đấy!"
+
+Tôi giơ hai tay lên, biểu thị bản thân không hề có địch ý.
+
+À, đối với cậu ta, tôi nên thể hiện bản thân mình vô hại thay vì nói câu đe dọa như "Tôi rất mạnh" thì có lẽ sẽ tốt hơn.
+
+Vốn dĩ đe dọa người khác đâu phải là bản tính của tôi đâu.
+
+"Chẳng phải lúc nãy chính ngươi đã kêu cứu sao? Thế nên ta mới chạy tới đây và giúp người. Người thấy đấy, chúng ta cùng một phe mà, đúng không?"
+
+Orc-kun (tên tạm thời) rụt rè xoay đầu về phía tôi, sự run rẩy đã giảm đi đôi chút.
+
+"T-thật sao?"
+
+Orc-kun (tên tạm thời) sợ sệt ngẩng đầu lên, tôi nhìn thẳng vào đôi mắt của cậu ta và gật đầu. Được đó, có vẻ như tôi đã chiếm được một chút thiện cảm rồi. Cứ với tiến độ này...
+
+Hửm? Hình như cậu ta vừa chú ý tới cái gì đó.
+
+Khi tôi đã cho rằng cuối cùng cậu ta cũng bớt cảnh giác, thì bỗng nhiên nỗi hoảng sợ lại hiện lên trên gương mặt cậu ta một lần nữa, thân thể cũng bắt đầu run rẩy.
+
+"Ngươi sao vậy?!"
+
+Tôi không kìm được thốt ra một câu.
+
+"Tại, tại sao Loài người có thể nói chuyện được với tôi?! Chẳng, chẳng lẽ, Loài người cũng có Tamer sao?!"
+
+`Tamer: Thuần phục sự, hay còn gọi là thầy dạy thú. `
+
+Tamer? Đó là cái gì?
+
+Còn nếu hỏi tại sao tôi có thể nói chuyện được với Orc-kun, à thì, đó chính là nhờ bà cô thần linh kia.
+
+Thì ra là vậy. Con người bình thường không thể nói chuyện được với ma vật à?
+
+Bà Nữ thần kia đã cho tôi cái năng lực quái gở gì thế này! Tôi sẽ bị mọi người hiểu nhầm mất!!
+
+"À, này!! Ta không phải là Tamer! Ta đang bị lạc đường! Sau đó tình cờ thấy người gặp chuyện nên mới giúp ngươi! Chấm hết!"
+
+Rốt cuộc, tôi quyết định thẳng thắn thuật lại toàn bộ sự thật.
+
+"..."
+
+Nghe tôi nói vậy, cậu ta rơi vào trầm tư. Mặc dù vẫn còn đang run rẩy, nhưng đã đỡ hơn so với lúc nãy. Tôi đã đứng cách ra một khoảng khá xa, hy vọng cậu ta đừng có sợ hãi đến vậy nữa... Mà nói đúng ra, tôi mới là người phải sợ hãi chứ?
+
+"..."
+
+Tôi im lặng chờ đợi. Cột máu của cuộc nói chuyện đã về 0 rồi sao?
+
+"T-tôi hiểu rồi."
+
+Làm được rồi! Cảm ơn! Thank you! Tốt quá!
+
+"Cảm ơn vì đã cứu tôi."
+
+Great! Cuối cùng cuộc nói chuyện đã trở nên bình thường rồi. Thật đáng mừng.
+
+"Không không, cậu không sao là tốt rồi. Quan trọng hơn là, ngôi làng của cậu có ở gần đây không?"
+
+Tôi thay đổi cách xưng hô từ "ngươi" thành "cậu". Dù sao cứ gọi "ngươi, ngươi" cũng quá thất lễ.
+
+Cho dù đó là thị trấn, làng mạc, nhà ở, hay bất cứ nơi nào cũng được, tôi chỉ muốn được nghỉ ngơi ở một nơi có mái nhà che mưa chắn gió mà thôi.
+
+Thế nhưng, đáng buồn là cậu ta cũng bất lực lắc đầu.
+
+"Chẳng, chẳng lẽ cả cậu cũng bị lạc?"
+
+Lại một cái lắc đầu vô lực nữa.
+
+"Thực ra tôi đã bị lạc đường suốt ba ngày rồi. Cậu có biết đi hướng nào sẽ gặp được con người không?"
+
+Quả nhiên vẫn lắc đầu.
+
+Oh my God. Tại sao tình hình vẫn chưa chịu chuyển biến tốt đẹp vậy? Đây chẳng phải là Event sao? Không đúng à?!
+
+`Sự kiện. Nhân vật sử dụng ngôn ngữ game.`
+
+"Quanh đây không có làng của Loài người. Nơi này là một vùng hoang vu khô cằn, được gọi là 'Tận cùng của Thế giới'."
+
+Tận cùng của Thế giới? Hình như gần đây tôi đã nghe ai đó nhắc đến cái tên này rồi thì phải?
+
+... Này! Chẳng lẽ bà cô đó thực sự ném tôi tới Tận cùng của Thế giới sao?
+
+Bà ta bình thường đều làm đến mức đó luôn à?!
+
+"Hiện tại tôi đang trên đường tới ngọn núi thần sau khi bị chọn làm vật hiến tế cho ngài Shin."
+
+Orc-kun (tên tạm thời) nói như vậy với tôi - kẻ vẫn đang thầm bạo phát cơn phẫn nộ với Nữ thần ở trong lòng.
+
+Ngài Shin, vật hiến tế... Ồ, Event Flag kia.
+
+`Flag: Thuật ngữ trong game, chỉ cột mốc đánh dấu những nhiệm vụ đã hoàn thành. Event Flag: Cột mốc sự kiện.`
+
+Vẫn chưa tới được thị trấn hay ngôi làng nào mà tôi đã gặp phải sự kiện chiến đấu như một cuộc chiến với Boss cỡ trung rồi.
+
+Heo-san đứng trước mặt tôi vừa rơi nước mắt vừa thổ lộ một sự thật chấn động. Đúng vậy, Orc-kun là nữ chứ không phải nam, mặc dù cô ấy trông chẳng giống nữ chút nào.
+
+Sau khi nghe xong câu chuyện, cô ấy quả nhiên là Orc, hình như là thuộc một chủng tộc được gọi là Orc Cao Nguyên sống ở những vùng cao. Ngôi làng của cô ấy có phong tục nửa năm một lần sẽ hiến tế một cô gái trẻ cho ngọn núi thần và Shin, chủ nhân của ngọn núi. Nếu không dâng lên vật hiến tế, ngôi làng sẽ bị sương mù dày đặc bao trùm, cây trồng sẽ khó phát triển.
+
+Đám Orc Cao Nguyên này cũng thật đáng kinh ngạc. Thay vì sinh sống bằng việc cướp đoạt, họ nghiêm túc sử dụng trí tuệ của mình, kiếm sống bằng cách săn bắn và làm nông. Với hình thức sinh hoạt ấy, bọn họ cũng gần giống như con người, trừ vẻ bề ngoài.
+
+Nhân tiện, tôi cũng có cảm giác những Flag tiếp theo đang được dựng lên một cách vững chắc.
+
+* Tôi bị đưa tới dị giới.
+
+* Tình cờ nghe thấy tiếng kêu khóc và cứu được cô gái (Orc) khỏi ma vật.
+
+* Sau đó cô gái ấy - người đầu tiên tôi gặp ở thế giới này, nói rằng bị mình bắt làm vật hiến tế cho ngài Shin (?).
+
+* Hạ gục cái gã tên là ngài Shin rồi hủy bỏ phong tục hiến tế nực cười đó (chưa xác định).
+
+Các bạn đã hiểu rồi chứ?
+
+Đó chính là Flag nữ-nhân-vật-chính đấyyyyy!
+
+Đặc biệt là tôi sẽ thử thực hiện việc "(chưa xác định)" này! Khả năng cao cái Flag này sẽ thực sự được dựng lên cho coi!
+
+Nhưng không, tôi tuyệt đối không làm nổi.
+
+Cho dù không phải là kiểu người sẽ đánh giá người khác qua vẻ bề ngoài, nhưng, nhưng mà, người mà tôi muốn giao du ít nhất cũng phải mang (hình) người chứ!
+
+Nếu nói về (hình), tôi biết Orc cũng có chứ? Nhưng đó rõ ràng là ngụy biện. Bởi vì bình thường cũng có nhiều "kinh nghiệm", nên tôi không định nói ra ý kiến phiến diện của mình đâu.
+
+Đúng là Orc-kun không tỏa ra thứ mùi hôi thối mà mỗi lần nhắc đến "loài Orc" là mọi người lại tưởng tượng ra, chưa kể cô ấy còn có mùi thơm ngát của hoa cỏ.!
+
+Giống như đàn chị mà tôi vẫn thầm thương trộm nhớ ấy...
+
+Haa! K-không phải! Ý tôi không phải là vậy!
+
+Theo "kinh nghiệm" từ trước đến giờ của tôi, đương nhiên cũng có những loài khác con người, chẳng hạn như: tộc Yêu tinh, tiêu biểu là Elf, những Thú nhân với đệm thịt và tai thú, tất cả Tinh tinh đã được nhân cách hóa, những Ma nhân có làn da màu xanh lam, màu đen hoặc màu xanh lá, và ở trên đầu có mọc sừng...
+
+`Elf: Là sinh vật có hình dáng con người vô cùng xinh đẹp, nắm giữ sức mạnh siêu nhiên thường được nhắc tới trong các truyện dân gian ở châu Âu. `
+
+Chỉ cần vẻ bề ngoài đẹp, cho dù là máy móc cũng được! All Okay!
+
+Thế nhưng Orc thì không thể.
+
+Không phải là tôi kỳ thị gì đâu, nhưng nếu không có khuôn mặt của con người thì không ổn chút nào! Riêng chuyện này tôi sẽ không nhượng bộ! Chắc chắn không!
+
+Cho dù tôi có rất nhiều "kinh nghiệm" mà đứa con trai nào cũng mong ước, nhưng xin lỗi, vô cùng xin lỗi, cô gái Orc không phải là đối tượng mà tôi muốn chinh phục.
+
+Hơn nữa, tôi biết nãy giờ mình cứ luôn miệng "kinh nghiệm", "kinh nghiệm", và đó chỉ là chuyện trong game thôi, nhưng thế thì không được sao?!
+
+Nói tóm lại, cô ấy tuyệt đối không thể trở thành người trong mộng của tôi.
+
+"Vậy nên, tôi xin lỗi."
+
+"Hả, à ừm, tại sao ngài lại nói xin lỗi vậy?"
+
+Ối! Tôi đã lỡ buột miệng nói ra mâu thuẫn ở trong lòng mất rồi... Đúng là thất bại.
+
+"K-không, không có gì đâu..."
+
+Cô ấy trố mắt nhìn tôi. Nhưng chỉ kéo dài khoảng một thời gian ngắn, rồi ngay lập lức mỉm cười (chắc đúng là mỉm cười).
+
+"Vậy, nếu không ngại xin ngài hãy để tôi được báo đáp. Ngài Makoto, tôi có thể gọi ngài như vậy được chứ?"
+
+Không ngờ cô ấy có thể nhớ được cái tên tôi tự xung ra trong khung cảnh hỗn loạn đó. Ừm, có vẻ cô ấy đã quên mất nỗi sợ hãi khi hét, "Hắn biết nói kìa!!"
+
+Quả là một tiểu thư thông minh. Thật đáng tiếc, nếu là cô gái chó hay cô gái mèo gần giống với con người thì tốt rồi. Còn cô gái heo thì có hơi...
+
+"Ừm, tôi là Makoto. Nhân tiện, tôi mười bảy tuổi, rất vui được gặp mặt."
+
+"Tôi tên Emma. Tôi cũng mười bảy tuổi giống như ngài."
+
+Cả độ tuổi cũng lý tưởng nữa! Tiếc rằng vấn đề chủng tộc đã làm cho cuộc gặp mặt này thành một Event Flag đơn thuần...
+
+Lúc trước bà Nữ thần kia từng nói nhảm rằng "Không được kết hôn ở thế giới này", nhưng tôi hoàn toàn chẳng quan tâm. Dù sao ngài Tsukuyomi cũng đã nói rằng tôi hãy cứ làm những gì mình thích mà.
+
+"Ở phía trước có một nơi tịnh thân cuối cùng trước khi tới ngọn núi thần. Xin hãy nghỉ ngơi ở đó và hồi phục sau sự mệt mỏi của cuộc hành trình đi ạ."
+
+Có vẻ như đó là một nơi để nghỉ chân. Thật đúng là một cô gái tốt.
+
+Còn nếu suy đoán sâu xa thì có lẽ cô ấy chỉ muốn tôi hộ tống tới nơi tịnh thân đó thôi... Mà, cho dù đụng độ mấy con quái vật với trình độ như con chó tên Lizoo ban nãy thì cũng chẳng có vấn đề gì. Nếu chúng xuất hiện, tôi có thể đánh lui chúng dễ dàng.
+
+"A, cảm ơn cô."
+
+Sau đó, tôi và cô ấy cùng rảo bước về phía ngọn núi thần.
+
+Điều kỳ lạ là, càng nói chuyện với nhau nhiều, tôi càng cảm thấy có thể lý giải lời nói của cô ấy mà không gặp quá nhiều khó khăn. Thông điệp dần trở nên rõ ràng hơn, có lẽ chính là cảm giác đó.
+
+Khi đã thân thiết hơn, chúng tôi cũng nói chuyện với nhau nhiều hơn, vừa cùng nhau trò chuyện vừa hướng về nơi cần tới.
+
+Biểu cảm của Emma khi nói về lễ hội của làng hồi còn hòa bình trông vô cùng rạng rỡ, đến mức khiến tôi không tin được rằng đây là một cô gái sắp phải đi vào chỗ chết với tư cách là một vật hiến tế. Nhưng khi bắt đầu nói tới tình trạng hiện tại của ngôi làng, vẻ mặt của cô ấy trở nên u buồn, trái ngược hẳn so với ban nãy. Mỗi năm đều phải hiến tế hai cô gái trẻ, chẳng mấy chốc ngôi làng sẽ bị diệt vong.
+
+Sau khi tới được chỗ nghỉ chân, tôi nên làm thế nào đây?
+
+Nếu như hạ gục được chủ nhân của ngọn núi, vậy thì tôi thật sự sẽ dựng Flag lên đấy ..
+
+Tính cách cô gái này rất tốt, tuổi tác cũng tương đương với tôi. Cô ấy hình như còn là con gái của tộc trưởng, tôi đúng là chuột sa chĩnh gạo rồi...
+
+Ôi, Emma, tại sao cô không phải là con người chứ?
+
+Một cô gái tốt đến vậy... Rõ ràng là một cô gái tốt như thế mà!
+
+Hay cô ấy chính là một cô công chúa xinh đẹp bị kẻ nào đó nguyền rủa...
+
+... Dù sao thì nơi này cách ngôi làng của con người quá xa, cho nên khả năng đó là không thể.
+
+"A, kia rồi."
+
+Emma chỉ ngón tay về hang động phía trước. Tôi nhìn theo, hang động kia trông giống như được tạo ra bởi bàn tay con người. Cửa hàng đang mở. Nhìn kiểu gia cố ở cửa ra vào và hình dạng của con đường dẫn tới hang động, ai cũng nhận ra rằng không phải chúng được hình thành tự nhiên.
+
+"Ngài Makoto, thật xin lỗi, nhưng ngài có thể đợi ở đây một chút được không? Tôi cần phải giải thích cho những người canh gác hang động về ngài."
+
+"Tôi hiểu rồi."
+
+Đó là chuyện đương nhiên. Đối với bọn họ, cho dù có giúp đỡ cô ấy nhiều thế nào, tôi vẫn là một nhân vật chưa rõ danh tính. Đột nhiên đi vào cùng nhau thì kiểu gì cũng bị những người bảo vệ nơi đây tấn công.
+
+Tuy nói vậy, tôi cũng phần nào hiểu được tính cách của Emma. Chắc cô ấy sẽ nói rằng tôi là đồng minh của tộc Orc.
+
+Dù sao, tôi nghĩ cô ấy hẳn là sẽ không dẫn theo một quân đoàn lao tới tấn công tôi đâu. Trong tình huống tôi tệ nhất, chỗ này cũng cách khá xa hang động, nếu thấy một toán người xông tới, tôi vẫn có thể bỏ chạy kịp.
+
+Nhìn theo bóng dáng của Emma biến mất vào trong hang động, tôi bắt đầu nghĩ ngợi về chuyện sau này.
+
+Cô ấy quả thực là một Orc tốt bụng. Hơn nữa đôi với tôi, cô ấy còn là sinh vật đầu tiên mà tôi đã thành công nói chuyện được.
+
+Mặc dù xét theo ý nghĩa có hơi khác, nhưng gọi cô ấy là người bạn đồng hành đầu tiên của tôi cũng không phải là nói quá.
+
+Nếu có thể, tôi cũng muốn giúp cô ấy, nhưng "Flag tình yêu" quá là khó nhằn. Vả lại, năng lực của ngài Shin - kẻ địch của tôi cũng là ẩn số.
+
+Căn cứ theo sự phát triển cho tới hiện tại, dù Boss cuối đột nhiên xuất hiện cũng chẳng phải diễn biến kỳ lạ. Không còn nghi ngờ gì nữa, đây chính là một dạng game ngược đãi...
+
+Nếu như có thể thuận lợi thu thập được thông tin của kẻ địch ở trong hang động kia, tôi sẽ rời đi trước khi đám người Emma kịp nhận ra, và trước khi cô gái ấy bị hiến tế, tôi sẽ đánh gục gã Boss được gọi là "ngài Shin" đó. Kết quả, tôi đã cứu được cô ấy, rồi cứ như vậy biến mất là được.
+
+Nếu có thể đảm bảo sự an toàn cho ngôi làng, cô ấy chắc hẳn sẽ quay trở về.
+
+Hơn nữa, tuy nói sẽ đánh gục ngài Shin, nhưng có lẽ tôi sẽ đàm phán với kẻ đó một chút. Tôi nghĩ rằng chiến đấu không phải cách duy nhất để giải quyết vấn đề.
+
+"Đúng vậy, dù sao mình cũng đã được giúp đỡ nhiều như thế, ít nhiều gì mình cũng nên báo đáp lại ân tình của Emma."
+
+Tôi nhìn thấy Emma đang tươi cười vẫy tay ở cửa hang động. Có vẻ cuộc trao đổi đã thành công.
+
+Nhìn dáng vẻ đó của cô ấy, tôi lại nghĩ hay là mình cứ thử làm vài công việc của Dũng sĩ mà Nữ thần đã nói là không cần thiết xem sao.
+
+Đi theo bọn họ vào bên trong hang động, tôi ngồi trên chiếc ghế được chỉ. Sau khi liếc mắt nhìn xung quanh, tôi liền thấy những người tộc Orc thản nhiên phóng ra quả cầu lửa từ lòng bàn tay để nhóm bếp lò, rồi vận chuyển những bộ giáp nặng trịch trôi nổi ở giữa không trung. Vẫn biết rằng thế giới huyễn tưởng sẽ là như vậy, nhưng tận mắt chứng kiến mới thấy cảnh tượng thực sự rất tuyệt vời. Những ma pháp này... nếu chăm chỉ luyện tập thì liệu tôi có thể làm được không?
+
+"Sao vậy? Tôi nghĩ đó cũng có phải chuyện gì hiểm thấy đâu."
+
+"Emma, đó là ma pháp à?"
+
+Tôi chỉ tay vào các Orc xung quanh và hỏi.
+
+"V-vâng, đó là ma pháp mà hằng ngày chúng tôi vẫn thường sử dụng. Hình như Loài người gọi chúng là ma thuật."
+
+Gọi bằng cái gì cũng được, chuyện đó không quan trọng.
+
+"Emma, cô cũng có thể sử dụng chứ?"
+
+"Tất nhiên rồi. Dù sao tôi cũng là ma pháp sư hiếm hoi trong làng mà. Tuy nhiên, vì không giỏi khoản vận động lắm nên tôi không thể chiến đấu một mình được."
+
+"À ừm... Vậy, cô dạy tôi ma pháp được không?"
+
+"... Vâng, ngài chưa biết dùng sao?"
+
+"Ừm, hoàn toàn không."
+
+"Thế mà ngài lang thang ở một nơi như này?!"
+
+"Đúng vậy... Đó là một câu chuyện thảm khốc."
+
+"Ngài Makoto khiến tôi bất ngờ thật đấy."
+
+Nói đoạn, Emma thở dài. Sau đó, tuy không hiểu rộng biết nhiều nhưng cô gái ấy vẫn đồng ý dạy ma pháp cho tôi.
+
+"Như vậy, ngài hãy thử làm xem."
+
+Sau khi được Emma chỉ dẫn, tôi tập trung tinh thần và bắt đầu niệm thần chú.
+
+Theo lời Emma, thần chú là một cụm từ ngữ để gia tăng các loại thuộc tính và biến hóa trong ma lực mà bản thân mình nắm giữ. Hơn nữa, dường như ma pháp xuất hiện chính nhờ thao tác tạo ra chìa khóa. Sau khi niệm thần chú xong, ma lực sẽ biến thành chìa khóa và mở ra cánh cửa thế giới. Và cơ chế hoạt động của ma pháp chính là can thiệp vào chân lý của thế giới. Chìa khóa và cánh cửa cũng chỉ là một cách nói tượng trưng để dễ lý giải hơn mà thôi, khi sử dụng trong thực tế sẽ không thể nhìn thấy hay cảm nhận được.
+
+Từ ngữ được dùng làm thần chú không phải là ngôn ngữ của loài Orc, nhưng đối với tôi, nó chăng khác gì một câu nói bình thường, chỉ cần tôi muốn là có thể sử dụng một cách tự nhiên.
+
+Mặc dù Emma nói rằng hãy cảm nhận bằng cách tập trung toàn bộ sức mạnh của cơ thể, nhưng tôi nghĩ là không nên.
+
+Ngài Tsukuyomi trước đó đã bảo rằng thể lực và ma lực của tôi vô cùng siêu phàm, nếu tung hết sức rất có thể sẽ gây ra hậu quả tồi tệ.
+
+Thứ mà tôi định sử dụng là một ma pháp sơ đẳng. Nó có tên là "Brid" - cơ sở cho ma pháp tấn công của mọi thuộc tính, lần này tôi được dạy Brid mang thuộc tính Hỏa.
+
+Ma pháp này được dùng để làm mồi lửa. Tuy nơi này khá rộng rãi nhưng đây vẫn là ở trong hang động. Lỡ tôi sử dụng sức mạnh quá đà, có khi lại tạo ra mấy thứ như nghiệp hỏa, chưa biết chừng sẽ làm ai đó tử vong do nhiệt độ cao hoặc thiếu dưỡng khí, vì vậy tôi cần phải cẩn thận chú ý tới việc điều chỉnh sức mạnh.
+
+Chuyện tôi có thể sử dụng ma pháp hay không vẫn còn là một dấu chấm hỏi, nên tôi đang cố gắng nghiền ngẫm cách thực hiện nhiều lần.
+
+"Brid!"
+
+Chỉ trong nháy mắt, một cảm giác khó tả tràn vào trong cơ thể tôi. Không lâu sau, một ngọn lửa nhỏ đột ngột bùng lên ở nơi cách bàn tay phải của tôi một vài xen-ti-mét.
+
+Ngọn lửa lưu lại nơi đó trong một khoảng thời gian rất ngắn, rồi dần lụi tàn và biến mất.
+
+"Ồ! Đây, đây là ma pháp à?!"
+
+Tôi không kìm được hô lớn.
+
+Tôi chỉ làm theo như những gì được dạy, tưởng tượng ngọn lửa trong đầu và niệm câu thần chú để phát động, không ngờ nó lại thật sự xuất hiện trên tay tôi...
+
+Thật tuyệt vời! Thì ra đây là ma pháp sao?!
+
+"V-vâng... Đó là trạng thái ban đầu của Brid thuộc tính Hỏa... Không ngờ ngài có thể thành công ngay trong lần đầu tiên..."
+
+Emma-người vừa dạy cho tôi, xác nhận. Có vẻ việc hiểu được ngôn ngữ thần chú (tạm thời) có tác dụng rất to lớn.
+
+Hóa ra mà pháp chính là thế này à.
+
+Ai mà ngờ được lại có ngày tôi có thể dùng ma pháp!
+
+Trong game, đó là tiêu chuẩn thường thấy, nhưng trong thực tế thì... nhỉ?
+
+A haa, a ha ha ha ha ha ha ha.
+
+Tôi không kìm được bật cười lớn.
+
+"Hãy tưởng tượng ngọn lửa đó biến thành hình viên đạn. Nếu có thể bắn viên đạn lửa trúng mục tiêu, nghĩa là ngài đã học xong Brid."
+
+Lời nói của Emma đã khiến tôi tỉnh táo lại.
+
+Ra vậy! Bắn được viên đạn lửa ra ngoài là tôi đã học được ma pháp này sao?! Cứ đà này chắc tôi sẽ có thể sử dụng cả những ma pháp khác ngoài Brid hệ Hỏa nữa đấy...
+
+Không, trước hết tôi nên tập trung tinh thần để học Brid hệ Hỏa đã.
+
+"Vậy thì làm nào."
+
+Nhân lúc vẫn còn đang cao hứng, tôi kết thúc thần chú ngắn và lẩm bẩm từ "Brid".
+
+Thứ đang chảy vào trong cơ thể tôi là gì vậy? Chắc hẳn là ma lực rồi. Khó có thể diễn tả nó bằng từ ngữ. Theo như Emma nói, so với việc cố gắng hiểu rõ ma lực ở trong đầu, trực tiếp thực hành sẽ tiếp thu nhanh hơn nhiều. Hiện giờ, cuối cùng tôi cũng hiểu rõ được ý nghĩa của lời nói đó. Thực ra, lúc đầu nghe Emma giải thích, tôi hoàn toàn chẳng hiểu gì cả.
+
+Khi ngọn lửa một lần nữa xuất hiện, và tôi cố gắng duy trì nó trong hình dạng viên đạn.
+
+Ngọn lửa không hề biến mất mà vẫn liên tục cháy. Tôi thử tưởng tượng nó biến thành kích cỡ bằng quả bóng chày, trong nháy mắt, ngọn lửa dao động với biên độ lớn hơn, và dần dần biến thành hình cầu.
+
+"Thật đáng kinh ngạc... Chỉ mới nghe giải thích một chút mà ngài đã làm được như vậy rồi."
+
+Biểu cảm kinh ngạc của Emma khiến tôi cảm thấy hết sức vui vẻ.
+
+Cô đánh mắt ra hiệu, một Orc chịu trách nhiệm bảo vệ nơi đây liền đặt một khối đá ở ngay sát vách hang động. Tảng đá có kích cỡ tương đối lớn, nhưng di chuyển một khối đá cỡ đó chẳng nhằm nhò gì với một chủng tộc nắm giữ sức mạnh cơ thể mạnh mẽ như loài Orc.
+
+Cự ly rơi vào khoảng từ năm đến sáu mét.
+
+Emma nhìn tôi gật đầu, ngay sau đó, tôi phóng quả cầu lửa về phía tảng đá.
+
+Sau khi cố gắng duy trì hình ảnh tưởng tượng "bắn trúng" trong đầu, tôi đưa ra mệnh lệnh, "Lao đi".
+
+Quả cầu lửa bay vụt về phía trước, bắn trúng tảng đá.
+
+Giây tiếp theo, một cơn chấn động và luồng gió mang theo nhiệt độ nóng bỏng bùng lên bên trong hang động. Nhưng thực ra tình hình cũng chẳng đến mức kinh khủng lắm. Gọi là gió nóng thì cũng hơi quá, cùng lắm chỉ như một cơn gió ấm mà thôi.
+
+Tảng đá nổ tung, không còn hình dạng như ban đầu. Có vẻ uy lực cũng khá cao. May mà đòn tấn công của tôi không phải chỉ có mỗi vẻ ngoài hào nhoáng, tôi cảm thấy hơi yên tâm.
+
+"Như vậy là tôi đã học được Brid rồi đúng chứ?"
+
+"Đ-đúng vậy..."
+
+Giọng điệu của Emma lại run rẩy nữa rồi. Hình như tôi vừa làm một chuyện rất đáng kinh ngạc.
+
+Ồ, ma pháp thú vị ghê, vui thật đấy. Tuy thế, không còn cách nào khác để học được ma pháp ngay sao!
+
+Buổi học này đã khơi gợi cho tôi cảm giác vui vẻ đặc biệt của người mới bắt đầu học rồi đấy.
+
+"Xin hãy dạy cho tôi thêm nhiều về ma pháp đi, chỉ là câu thần chú thôi cũng được."
+
+Thật là háo hức quá đi.
+
+"A, vâng... Vậy thì sau này tôi sẽ lần lượt dạy tất cả cho ngài. À phải rồi, ngài Makoto, ngài đã cảm nhận được ma lực đúng không?"
+
+"À, tôi cũng không hiểu sao mình lại cảm nhận được nữa. Đó là thứ chảy vào trong cơ thể khi phóng ra ma pháp, đúng chứ?"
+
+"Vâng, đúng thế. Quả không hổ là ngài Makoto, tốc độ lĩnh hội của ngài nhanh như của thiên tài vậy."
+
+"Đâu có, tôi chỉ làm đúng theo lời Emma đã nói thôi. Cứ thực hành là hiểu rõ liền."
+
+Thực sự là như vậy. Emma sẽ trở thành một giáo viên giỏi đấy.
+
+"Vậy ngài cũng cảm nhận được ma lực tồn tại bên trong cơ thể mình chứ?"
+
+"Hửm?"
+
+Nghe vậy, tôi thử tập trung ý thức, cố gắng cảm nhận bên trong cơ thể. Vẫn là cảm giác tồn tại vô cùng áp đảo của sức mạnh tôi đã nhận được từ ngài Tsukuyomi mà vẫn chưa biết cách sử dụng.
+
+Tuy nhiên, không biết có phải do ảnh hưởng bởi việc sử dụng ma pháp hay không, tôi có thể cảm nhận được thêm một luồng sức mạnh nữa đang chảy trong cơ thể.
+
+Dường như có nguồn năng lượng khác mới được giải phóng.
+
+Đó là một cảm giác khá mơ hồ, tựa như việc dùng tay để bắt lấy dòng nước đang chảy. Tôi thực sự không hình dung được rõ ràng.
+
+"A, quả là có thật. Đây là ma lực của tôi sao..."
+
+"Ngài có năng lực thân thể mạnh mẽ đến vậy, hơn nữa còn sử dụng được ma lực rất nhanh chóng. Chưa biết chừng nghề nghiệp của ngài Makoto là kiếm sĩ hệ ma pháp đấy."
+
+"Nghề nghiệp?"
+
+Này này, chẳng lẽ thế giới này còn giống game hơn tôi nghĩ sao?
+
+Có cả năng lực đặc thù để bổ sung, hỗ trợ cho nghề nghiệp của mình cơ à?
+
+"Vâng, chắc chắn là cấp độ của ngài cũng khá cao đấy."
+
+Cả cấp độ cũng có nữa? Hừm, xem ra tôi phải thay đổi nhận thức của bản thân về thế giới này rồi.
+
+Thế giới này có vẻ giống như game RPG. Nếu vậy, hẳn là con chó tên Lizoo kia cũng mang lại cho tôi điểm kinh nghiệm, dù rằng tôi chẳng thấy tiền rơi ra...
+
+`RPG: Game nhập vai.`
+
+"À, ừm... Thực ra, tôi cũng không biết nữa."
+
+Trước khi tới hang động này, tạm thời cứ coi như tôi đã tự giới thiệu với Emma.
+
+Thực lòng mà nói, cũng có rất nhiều lời nói dối lẫn lộn trong đấy. Nhưng nếu nói ra toàn bộ sự thật, chắc chắn tôi sẽ bị Emma đánh giá là một gã đáng thương đầu óc có vấn đề.
+
+Tôi đã giải thích với cô ấy rằng khi vừa tỉnh lại tôi đã thấy mình ở Tận cùng của Thế giới, sau đó chẳng biết vì sao ký ức rất mơ hồ... Cũng bởi quả thực tôi không hề có ký ức ở thế giới này, nên theo một nghĩa nào đó, đấy cũng không tính là nói dối nhỉ?
+
+Emma là một cô gái tốt, vì vậy tôi có chút bứt rứt khi phải lừa dối cô ấy...
+
+"Tôi có cách biết được cấp độ của ngài đấy."
+
+Nói đoạn, cô ấy lấy ra một cuộn giấy.
+
+"Đây là cái gì?"
+
+"Cuộn giấy đo sức mạnh, hình như người ta gọi nó như vậy. Nó chỉ đưa ra con số đại khái mà thôi. Đây là thứ trước đây Loài người đã làm rơi ở chỗ này."
+
+Loài người... Đó là từ chỉ con người à?!
+
+Nhắc mới nhớ, thay vì từ "con người", tôi đã thấy từ "Loài người" được sử dụng thường xuyên hơn.
+
+Thôi, sao cũng được, trước hết hãy đo thử cấp độ của tôi xem đã.
+
+"Cái này dùng như thế nào vậy?"
+
+"Xin ngài hãy cầm chặt lấy cuộn giấy."
+
+"Được."
+
+Tôi cầm chặt cuộn giấy theo đúng như Emma nói. Cuộn giấy vốn có màu trắng chuyển sang màu xanh lam. Không phải nói là gần giống màu của nước hơn.
+
+"A... Tại sao lại như vậy?!"
+
+Emma làm vẻ mặt không thể tin được. Lẽ nào là một màu sắc kỳ quái sao.
+
+Tất cả mọi người xung quanh cũng tỏ ra hết sức kinh ngạc.
+
+"Sao vậy? Đây là một màu rất kỳ lạ à?"
+
+"À ừm..."
+
+"Mọi người hãy nói cho tôi biết đi."
+
+Tôi đã chuẩn bị tinh thần rồi. Dù gì cũng chỉ là một con số mà thôi, làm sao có thể thay đổi tâm trạng của tôi được chứ?
+
+"Là cấp 1."
+
+... Hầy, thôi chúng ta hãy nói về chuyện của Loài người đi.
+
+Sáng hôm nay, Emma sẽ khởi hành đi tới ngọn núi thần.
+
+Nhờ cảm ứng được sự tồn tại của ma lực trong không khí nên tôi cảm thấy thế giới hôm nay dường như khác hẳn với thế giới của ngày hôm qua. Một cảm giác vô cùng sảng khoái lan tỏa trong lòng... Tuy rằng hôm qua họ đã xác định tôi mới ở cấp 1...
+
+Nhưng, quả thực rất kỳ lạ. Giả sử vốn đã ở cấp độ cao, tôi không tăng cấp sau khi tiêu diệt con chó tên Lizoo kia thì cũng có thể hiểu được, nhưng nếu tôi ở cấp 1 thì phải được tăng cấp rồi chứ. Hay là do con chó kia quá yếu?
+
+Emma cũng biết tôi đánh thắng Lizoo. Chẳng lẽ đánh lén thì không nhận được điểm kinh nghiệm?
+
+Hừm, hay là do sự tồn tại của tôi giống như cheat, nên vốn không có khái niệm cấp độ dành cho tôi?
+
+Haiz, nghĩ mãi cũng vô dụng.
+
+"Nào, đi thôi."
+
+Tôi nhờ người gác cửa hang động truyền lời cho Emma qua một lá thư.
+
+Nội dung cũng chẳng có gì mấy.
+
+"Tôi sẽ thử tìm cách đối phó với ngài Shin. Chắc tôi sẽ ổn thôi, vậy nên hãy quên tôi đi và quay trở về làng. Cảm ơn cô."
+
+Đúng là đầy tính văn chương. Thực ra tôi cũng có thêm vài câu tán gẫu và giải thích.
+
+Tuyệt vời thật đấy, tôi không chỉ nói chuyện trôi chảy mà còn thông thạo cả chữ viết nữa chứ. Đọc viết đều hoàn hảo.
+
+Cheat vạn tuế! Tôi thấy biết ơn Nữ thần một chút xíu rồi đấy. Cứ đà này, chẳng phải tôi sẽ là Dũng sĩ tài trí vẹn toàn hay sao?!
+
+Sau khi tới được thị trấn, ngoài con người, tôi còn có thể giao dịch với cả những chủng tộc khác nữa. Ở thế giới này, kiếm tiền là điều rất cần thiết.
+
+Đã học được ma pháp, cũng đã xem qua bản đồ sơ lược khu vực này, vì vậy sau khi nói chuyện xong với ngài Shin, tôi cũng không có ý định quay trở lại hang động mà sẽ trực tiếp đi về nơi có con người.
+
+Khoảng cách từ hang động đến nơi ấy cũng khá xa. Hình như đó là một ngôi làng tập trung những người đến để khai thác nguồn vật chất khan hiếm ở nơi Tận cùng của Thế giới và những người tới với mục đích rèn luyện võ học.
+
+Tôi nghĩ đi với tốc độ nhanh nhất sẽ mất một tuần, còn nếu dọc đường xảy ra chuyện gì, có lẽ phải mất khoảng mười ngày mới có thể đến nơi.
+
+Trên đường đi, còn có vài ngôi làng của những chủng tộc không phải con người và các cánh rừng nằm rải rác. Tuy nhiên, nhờ vào khả năng giao tiếp được với những chủng tộc khác nên tôi không gặp phải tình huống nào buộc phải chiến đấu cả.
+
+Dù có tuyệt thực ba ngày thì tôi vẫn hoạt động được bình thường, nên chuyện lương thực tạm thời không thành vấn đề. Năm ngày không ăn gì cũng không sao. Tuy tôi được tộc Orc chia cho một chút thực phẩm, nhưng đây là thứ quý giá đối với bọn họ nên tôi không thể ăn hoang phí được.
+
+Vừa suy nghĩ, tôi vừa đi vòng qua dãy núi đá, hướng về phía ngọn núi cao nhất, sừng sững nổi bật ở bên trong. Đây là núi thần sao...?
+
+Mặc dù tôi rất muốn thoải mái giải phóng toàn bộ lượng ma lực ẩn giấu bên trong cơ thể và sử dụng ma pháp mà Emma đã dạy, nhưng vì phải thức dậy trước khi Emma khởi hành đi tới núi thần nên tôi cũng không có thời gian để học thêm những ma pháp khác ngoài Brid hệ Hỏa. Tuy thế, tôi đã lĩnh hội thành công ma pháp tạo ra ánh sáng bằng cách nghe trộm câu thần chú của người gác cổng rồi!
+
+Sau này tôi phải tận dụng danh sách thần chú đã học trước đó để gia tăng kho ma pháp của bản thân mới được.
+
+"Mặc dù trước hết rất muốn thử xem nếu bản thân dốc toàn lực sẽ như thế nào, nhưng đến khi thực hiện, quả thực mình vẫn cảm thấy sợ."
+
+Ở đây không có đối thủ mà tôi cần phải khách khí, nên tôi cứ thử tung hết toàn lực một lần xem sao.
+
+Đầu tiên, tôi nhỏ giọng lẩm bẩm câu thần chú, tạo ra Brid giống như đêm hôm qua, biến nó thành quả cầu rồi tùy ý phóng đi... Thành công rồi!
+
+Được rồi, vậy thì bước tiếp theo.
+
+Việc tôi muốn thử chỉ có một, đó là xem xem tôi có thể không cần đọc ra miệng câu thần chú mà vẫn thực hiện được ma pháp hay không.
+
+Thả lỏng cơ thể, tôi cẩn thận tập trung toàn bộ sức mạnh lại, nghĩ tới "ngọn lửa mãnh liệt"và niệm chú, đương nhiên là niệm thầm trong lòng rồi.
+
+Sau đó tôi thì thầm từ "Brid". Cuối cùng cũng thành công!
+
+Tôi đã tạo ra được một quả cầu lửa màu đỏ thẫm mạnh hơn cả đêm hôm qua, trông nó như thể sẽ bị văng đi bất cứ lúc nào.
+
+May mà hôm qua ở trong hang động, tôi chỉ tưởng tượng ngọn lửa bằng cỡ quả bóng chày, không thì e rằng sẽ xảy ra thảm kịch mất. Khả năng cao là tôi sẽ tạo ra một quả cầu lửa to bằng hoặc gấp đôi bản thân.
+
+Tiếp theo, mục tiêu là...
+
+Trên con đường đi đến núi thần, tôi nhìn thấy có một thứ trông giống cánh cổng ở gần chân núi. Chọn cái đó đi.
+
+Hãy để tôi xóa tan sự oán giận của những Orc trong làng ngay tại nơi này đi!
+
+Nơi tôi đang đứng cách đó khoảng mấy trăm mét. Phải cảm tạ siêu thị lực rồi.
+
+Điều thứ hai mà tôi muốn thử đó là liệu tôi có thể bắn ra Brid giống như mũi tên không.
+
+Vì tôi theo cung đạo, nên so với một quả cầu, tôi quen điều khiển mũi tên hơn. Sau khi thử cố gắng tưởng tượng "mũi tên" trong đầu, Brid trong lòng bàn tay tôi dần dần biến thành hình cây gậy. Hóa ra nó có thể thay đổi được hình dạng.
+
+Mục tiêu của tôi là nơi giống như cổng vào đền thờ kia.
+
+Hãy cho ta thấy uy lực toàn bộ ma pháp của ta đi!
+
+<br />
+
+Cầm chắc cây cung và ngồi quỳ trên sân bắn cung, chuẩn bị tâm lý kỹ càng, tập trung tinh thần, và khi đứng lên thì đã biết được kết quả bắn tên rồi.
+
+Những người bạn trong cùng câu lạc bộ với tôi thường hỏi, "Sao từ lúc còn ở tư thế ngồi cậu đã có thể tin chắc rằng mình sẽ bắn trúng thế?"
+
+"Cậu hỏi vậy thì...", tôi nhớ rằng mình đã gượng cười và trả lời ngập ngừng như thế. Bởi vì tôi chính là như vậy, nên cũng chẳng biết giải thích ra sao.
+
+Lần đầu tiên bắn trúng mục tiêu, tôi đã rất đỗi vui mừng. Nhưng sự vui mừng này nhanh chóng phai nhạt đi khi tôi thường xuyên bắn trúng dễ dàng. Sau một thời gian, tôi dần dần nhận ra, tất cả đều dựa vào kỹ thuật.
+
+Bởi vậy, tôi nhắm mắt lại và cố gắng làm cho nội tâm thật bình lặng, đầu tiên là mô phỏng lại động tác kéo dây cung vô số lần ở trong đầu, sau đó, biến hành động "đã bắn trúng" thành hiện thực.
+
+Thái độ và tư thế, mỗi một động tác đều phải thực hiện với sức tập trung lên đến cực hạn.
+
+Hồi học trung học, thầy hướng dẫn bắn cung của tôi đã nói với tôi, "Trò có thể thoải mái sử dụng sân tập bắn."
+
+Kể từ lúc ấy, tôi chưa từng bắn hụt một lần nào. Trong khoảnh khắc vào tư thế và ngắm đích bắn, chỉ cần tưởng tượng rằng "đã bắn trúng" trong đầu, thì kết quả thực tế cũng sẽ được như ý. Miễn là tập trung, tôi có thể bắn trúng liên tục.
+
+Sau khi vào cấp ba, câu lạc bộ mà tôi chọn đường nhiên là câu lạc bộ bắn cung rồi.
+
+Khi tôi thông báo với giáo viên hướng dẫn trong câu lạc bộ bắn cung, cô ấy đã rất ngạc nhiên vì không biết tại sao tôi lại tham gia câu lạc bộ này. Tôi vẫn còn nhớ rõ vẻ mặt bất ngờ và nụ cười ấm áp của cô ấy khi nghe thấy tôi nói rằng "Bởi vì em thích bắn cung ạ". Bây giờ ngẫm lại, có lẽ khi ấy vị giáo viên hướng dẫn đó đã có quyết tâm của riêng mình, và sau đó cô nghiêm túc dạy cho tôi kỹ thuật bắn cung chân chính.
+
+Kỹ thuật bắn cung thực chiến được truyền từ đời này sang đời khác của gia đình cô giáo hướng dẫn của tôi khác hoàn toàn so với kỹ thuật bắn cũng thông thường.
+
+Trong thời gian sinh hoạt câu lạc bộ, tôi đã nghe theo lời khuyên của giáo viên hướng dẫn và cố vấn câu lạc bộ, không tham gia bất kỳ đại hội nào. Tuy nhiên, không biết vì sao, khi bổ nhiệm vị trí trong câu lạc bộ một lần nữa, tôi lại trở thành phó hội trưởng. Dù sao việc được hội trưởng câu lạc bộ và mọi người tin cậy cũng khiến tôi khá vui mừng.
+
+Có điều, khi niềm vui thú vì được hoạt động trong câu lạc bộ với công việc chủ yếu là chỉ bảo cái này cái kia cho đám đàn em còn chưa tan hết, tôi lại bị triệu hồi tới một thế giới khác....
+
+Nghĩ đến chuyện đó, tôi vẫn thấy thật quá đáng tiếc. Dù sao việc được gọi là "tiền bối, tiền bối" một cách đầy ngưỡng mộ cũng khiến tôi vui thích vô cùng...
+
+Nhưng thôi, cho dù tôi có nhớ nhà, cũng chẳng còn cách nào khác. Hiện thực, mau quay lại với hiện thực nào. Được rồi, Brid vẫn còn ổn định.
+
+Ánh sáng màu đỏ thẫm có hình dạng như mũi tên mà tôi quá đỗi quen thuộc vẫn đang ở trên lòng bàn tay tôi.
+
+Lâu lắm rồi tôi mới nghiêm túc như vậy.
+
+Tôi vào tư thế, đưa cánh tay trái lên, hướng về phía trước như đang cầm cung, cánh tay phải nâng cao ngang mặt kéo dây cung vô hình về phía sau cùng thứ ánh sáng màu đỏ thẫm.
+
+Sau đó, tôi bắn.
+
+Chỉ trong nháy mắt, mũi tên lửa bắn trúng cánh cổng.
+
+"Thành công rồi... Cả tốc độ cũng ổn nữa."
+
+Nó lao vút đi trong không trung hệt như mũi tên thật. Tuy vẫn cần phải luyện tập thêm, nhưng nếu tôi có thể thông thạo được chiêu này thì chẳng khác nào luôn mang theo cung bên người cả. Đây là một bước tiến rất lớn, tôi yên tâm rồi.
+
+"A, hử?"
+
+Không biết vì sao mũi tên lửa kia vẫn đang xiêu xiêu vẹo vẹo cắm vào cánh cổng mà chưa biến mất. Sau đó, nó đột ngột phình to ra như thể đang chống lại thứ gì đó, rồi phát nổ, thiêu rụi cả cánh cổng.
+
+Thậm chí ở chỗ tôi đang đứng cũng cảm nhận được từng cơn gió nóng rực ập tới. Nhiệt độ khá cao.
+
+"Nguy rồi, cánh cổng đã biến mất."
+
+Nhưng chỉ mỗi cánh cổng thì đâu có sao... Không, khi nghĩ tới chuyện cũng có sinh vật ở gần đó, tôi đột nhiên thấy bất an vô cùng.
+
+Tóm lại, cứ đi tới hiện trường xem thử đã.
+
+"Ngươi là kẻ nào?!"
+
+"Uwaaa... Chuyện này đã..."
+
+Đã quá muộn. Có tới bốn sinh vật bị thiệu tới cháy đen.
+
+Kẻ vừa mới lên tiếng đã bị thổi bay mất nửa người, Vị này, làm sao người còn có thể nói chuyện vậy?
+
+Sức sống quả là ghê gớm.
+
+"Chẳng lẽ mấy kẻ đó đã nhận ra được sách lược của Ma tộc bọn ta rồi sao? Hay là, chúng định liều lĩnh giết Shin...!"
+
+Làn da màu xanh lam. Ngẫm lại, trên đường đi tới hang động, Emma có nói cho tôi biết về đặc trưng của Ma tộc ở thế giới này.
+
+"Dừng lại! Dừng lại đi! Anh đừng nói chuyện nữa!"
+
+"Hừ, hừ hừ... Mạng của ta đã không thể giữ được nữa rồi. Hãy để ta... nói vài câu cuối cùng đi."
+
+Thực sự không thể cứu được nữa ư?! Thảm kịch này là do tôi gây nên sao?!
+
+Mà anh bạn này, từ nãy đến giờ cậu đang liên tục dụng cho tôi mấy cái Flag nguy hiểm đấy à?
+
+Đây là đầm lầy à?
+
+"Cứ nghĩ rằng nếu chúng ngoan ngoãn hợp tác, bọn ta sẽ giải quyết khó khăn cho chúng và để chúng trở thành đồng bọn, nhưng không ngờ chúng lại nuôi được một con quái vật như ngươi."
+
+U ôôôôôôôôô!!
+
+Đây là cái diễn biến gì thế này?! Chẳng lẽ mấy kẻ này định nhảy vào chuyện giữa Shin và Orc à?
+
+"Tuy nhiên đến cả cổng cũng phá hủy. Mấy tên đó quá hấp tấp rồi. Thế này thì cơn thịnh nộ của Shin sẽ bùng nổ..."
+
+"Này? Chỉ phá hủy cánh cổng cũng làm Shin tức giận sao?!"
+
+Nguy rồi, nguy rồi, NGUY RỒI!! Đây chẳng phải là kiểu xông vào đánh Boss mà không có save point à?
+
+Đây chính là dự cảm khi đưa ra yêu cầu, "Tôi lựa chọn mệnh lệnh nói chuyện", kiểu gì tôi cũng sẽ được đáp lại, "Không hề có lựa chọn đó!" sao?! Chắc chắn nó sẽ tới!
+
+"Chủng tộc... mạnh mẽ... các người... đã đột nhiên... phá hủy cánh cửa... ranh giới của bản thân rồi... He he he, đáng đời..."
+
+Nói xong điều mình muốn nói, kẻ chỉ còn nửa người liền bị phong hóa và tan vào không khí giống như cát bụi. Hắn đã chết rồi.
+
+Bốn thi thể cháy đen kia cũng biến mất. Chúng cũng đã bị phong hóa sao?
+
+Ngay sau đó, mặt đất rung chuyển. Những đám mây bao quanh ngọn núi càng lúc càng giảm độ cao.
+
+Mây, không là... sương mù? Chẳng lẽ đây là bầu không khí khi Boss thực sự xuất hiện sao?
+
+"Ngài Shin, xin hãy nghe tôi nói!"
+
+Màn sương mù trắng đục hạ xuống rất thấp, đến khi chỉ cách đỉnh đầu của tôi khoảng vài mét, tôi hô lớn về phía đó.
+
+Trong màn sương mù dày đặc, một con rồng thần với hình dáng theo truyền thuyết phương Đông đang há miệng thật lớn, nhe hết nanh vuốt cùng biểu cảm cực kỳ phẫn nộ.
+
+Càng lúc nó càng đến gần tôi hơn... Tôi sẽ bị cắn chết ư?
+
+... Khả năng cao là vậy.
+
+"Shin không phải là một con trai khổng lồ sao?!"
+
+`蜃 (Shin) có nghĩa là con trai, trong truyền thuyết Trung Quốc và Nhật Bản cổ đại, Shin là một con trai khổng lồ, cũng có truyền thuyết nói rằng Shin là một loại rồng.`
+
+Thường thức của tôi về thế giới cũ đúng là vô dụng. Tôi không muốn phải để lại một câu di ngôn như vậy đâu!!
+
+<br /><br /><br /><br /><br />
+# **Chapter 2**
+<br /><br /><br /><br /><br />
+
+Đầu tiên, tôi cần xem xét tình hình đã... Không xong rồi. Hàm răng hung tợn trông như có thể dễ dàng nghiền nát con người trong một phát cắn đang lao tới tôi với tốc độ nhanh khủng khiếp. Có điều, tôi là siêu nhân mà, chắc chắn tôi sẽ cản được nó. Ngon thì tới đây!
+
+...
+
+Còn lâu tôi mới nói như vậy á!! Đương nhiên là né rồi!!
+
+Nhìn hàm răng tỏa ra ánh sáng lờ mờ đang lao tới trước mặt, tôi cố tập trung ý thức vào Shin và nhảy lui về phía sau để né tránh.
+
+Chẳng hề bận tâm phát cắn vừa nãy của mình bị hụt, Shin tiếp tục tấn công tôi lần thứ hai. Lại một nhát cắn khác!
+
+Đối với kẻ địch lơ lửng trên không trung, chẳng phải rất khó để xác định phạm vi tấn công của nó sao?!
+
+"Làm thế nào bây giờ?!"
+
+Lần này, tôi xoay ngược người lại và nhảy qua một bên.
+
+An toàn! Tôi vẫn còn sống nhé!
 
 ![][IMG_0057.PNG]{:class="img-fluid"}
 
