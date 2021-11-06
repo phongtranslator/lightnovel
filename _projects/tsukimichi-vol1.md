@@ -36,37 +36,37 @@ Không gian xung quanh tối om. Rụt rè đưa tay mò mẫm nền nhà và v�
 
 Trong lúc tôi tựa người vào một góc của căn phòng, lục lọi lại ký ức trong ngày, suy nghĩ xem rốt cuộc đã có chuyện gì xảy ra thì...
 
-"Cậu bình tĩnh thật đấy."
+_"Cậu bình tĩnh thật đấy."_
 
 "?!"
 
 Giọng nói của ai vậy? Dù nhìn ngang ngó dọc khắp xung quanh, tôi vẫn chẳng nhìn ra dấu hiệu nào cho thấy có người hay thứ gì khác vừa thay đổi.
 
-"Cũng không giật mình hô lớn, sau khi kiểm tra xung quanh xong liền tới góc phòng, vừa cảnh giác vừa xem xét tình hình sao?"
+_"Cũng không giật mình hô lớn, sau khi kiểm tra xung quanh xong liền tới góc phòng, vừa cảnh giác vừa xem xét tình hình sao?"_
 
 Giọng nói tiếp tục vang lên. Đó là một thanh âm trầm thấp giống như của một ông lão lớn tuổi. Có vẻ người này không muốn giới thiệu về bản thân mình.
 
 "Ai đó?"
 
-"Nếu như ta nói ta là thần, cậu có tin không?"
+_"Nếu như ta nói ta là thần, cậu có tin không?"_
 
 "Không đời nào."
 
 Nói gì vậy, cái tên này!
 
-"Vậy thì thật đáng tiếc. Ta nghĩ cậu cũng biết rồi, kể từ bây giờ cậu sẽ đi tới thế giới khác. Nhân tiện, đây là chuyến đi một chiều, vì cậy cậu không thể quay lại thế giới cũ được nữa đâu."
+_"Vậy thì thật đáng tiếc. Ta nghĩ cậu cũng biết rồi, kể từ bây giờ cậu sẽ đi tới thế giới khác. Nhân tiện, đây là chuyến đi một chiều, vì cậy cậu không thể quay lại thế giới cũ được nữa đâu."_
 
 "Này này này này này!!"
 
 Ông ta nói chuyện kiểu gì đấy! Hơn nữa, còn nói lưu loát một điều ngớ ngẩn như vậy...
 
-"Nên làm gì khi sang thế giới kia thì cậu hãy hỏi người phụ trách. Được rồi, thật xin lỗi, nhưng cuối cùng ta cần chữ ký công nhận rằng cậu đã hiểu được tình hình hiện tại..."
+_"Nên làm gì khi sang thế giới kia thì cậu hãy hỏi người phụ trách. Được rồi, thật xin lỗi, nhưng cuối cùng ta cần chữ ký công nhận rằng cậu đã hiểu được tình hình hiện tại..."_
 
 "Làm sao tôi ký được chứ hả!!"
 
 Giọng tối cao hẳn lên. Đó là chuyện đương nhiên, dù sao tôi có hiểu cái gì đâu!
 
-"Ấy, cậu không thích sao? Kỳ lạ thật đấy... Ta nghe nói cậu đã đồng ý mà."
+_"Ấy, cậu không thích sao? Kỳ lạ thật đấy... Ta nghe nói cậu đã đồng ý mà."_
 
 Chủ nhân của giọng nói có vẻ hơi khó xử, thanh âm ở cuối câu yếu hẳn đi.
 
@@ -74,11 +74,11 @@ Nghe nói rằng tôi đã đồng ý? Nói đùa cũng phải có mức độ c
 
 "Tôi chẳng biết gì về chuyện này cả! Nghe cho rõ đây! Suy cho cùng, làm gì có thằng ngốc nào lại tin sái cổ khi nghe về thế giới khác chứ ?! Đồng ý mới là chuyện kỳ quái đấy !" Tôi hét to hết cỡ.
 
-"Hmm, có vẻ cậu thực sự không biết thật. Vậy thì ta đã thất lễ rồi, xin lỗi."
+_"Hmm, có vẻ cậu thực sự không biết thật. Vậy thì ta đã thất lễ rồi, xin lỗi."_
 
 "À ừm, thay vì nói xin lỗi, bây giờ ông hãy đưa tôi về nhà được không?!"
 
-"Tất nhiên rồi." Người đó đáp.
+_"Tất nhiên rồi."_ Người đó đáp.
 
 Trước hết, có vẻ đây là một gã khá hiểu chuyện. Nếu bây giờ ông ta nói những câu như" Không thể" hay" À thì, cậu hãy cố chịu đi nhé ", chẳng phải nguy to sao.
 
@@ -86,13 +86,13 @@ Hoặc nói rằng" Cậu đã chết rồi đấy ", thì cho dù tôi có mu�
 
 Dù sao đi nữa, tôi được cứu rồi!
 
-"À, thật xin lỗi... Nhưng nếu thế thì chị gái hay em gái sẽ thế chỗ cậu đâu?"
+_"À, thật xin lỗi... Nhưng nếu thế thì chị gái hay em gái sẽ thế chỗ cậu đâu?"_
 
 ... Tôi xin rút lại những lời vừa nãy. Điều mà gã này vừa nói tuyệt đối không thể coi là trò đùa được. Mặc dù ông ta chỉ lẩm bẩm như thể đang độc thoại, nhưng tôi đã nghe thấy hết rồi.
 
 "Này, ông vừa nói gì vậy?"
 
-"Hửm? Nếu cậu chưa nghe nói tới chuyện này, hẳn là chị hoặc em gái của cậu đã biết..."
+_"Hửm? Nếu cậu chưa nghe nói tới chuyện này, hẳn là chị hoặc em gái của cậu đã biết..."_
 
 "Đừng có 'Hửm’ với tôi! Nếu ông dám ra tay với chị tôi hay Mari, tôi sẽ không tha cho ông đâu."
 
@@ -102,11 +102,11 @@ Trông dáng vẻ của họ hôm nay cũng không có gì khác lạ, nên tôi
 
 Một trong hai người họ sẽ bị đưa đi thay cho tôi? Nói đùa gì vậy ?
 
-"Nhưng mà... Cậu là trưởng nam nhà Misumi, Misumi Makoto đúng chứ?"
+_"Nhưng mà... Cậu là trưởng nam nhà Misumi, Misumi Makoto đúng chứ?"_
 
 "Làm sao ông biết được?"
 
-"'Đã nói chuyện với con cái của nhà Misumi’, ta nghe là vậy?"
+_"'Đã nói chuyện với con cái của nhà Misumi’, ta nghe là vậy?"_
 
 Giọng nói kia nghe có vẻ càng khó xử hơn nữa. Mặc dù đã vô cớ bắt cóc tôi, nhưng ông ta cũng có thành ý muốn giải thích cho mối nghi hoặc của tôi. Bỗng dưng tôi thấy hơi cảm động rồi đấy.
 
@@ -114,25 +114,25 @@ Giọng nói kia nghe có vẻ càng khó xử hơn nữa. Mặc dù đã vô c�
 
 "À ừm, trước hết, ông có thể nói cho tôi biết tên của ông không?"
 
-"Ồ, ta vẫn chưa giới thiệu bản thân sao. Xin lỗi vì chưa xưng danh nhé. Tên của ta là Tsukuyomi."
+_"Ồ, ta vẫn chưa giới thiệu bản thân sao. Xin lỗi vì chưa xưng danh nhé. Tên của ta là Tsukuyomi."_
 
 "Tsukuyomi ư... Tsukuyomi. Chẳng lẽ, là Nguyệt Độc đó sao?!"
 
 `Tsukuyomi (月読 - Nguyệt Độc) là vị thần Mặt trăng trong Thần đạo (Shinto) và thần thoại Nhật Bản.`
 
-"Ồ, cậu biết ta sao, hiểu biết sâu rộng đấy."
+_"Ồ, cậu biết ta sao, hiểu biết sâu rộng đấy."_
 
 "Chính là Tsukuyomi no Mikoto đó, một trong Tam Quý Tử ?
 
 `Tam Quý Tử: Ba người con cưng, là ba vị thần chính trong Thần đạo, Amaterasu Omikami, Tsukuyomi no Mikoto và Susanoo no Mikoto.`
 
-"Ừ, đúng vậy. Tuy so với hai người còn lại, ta không được nổi danh cho lắm."
+_"Ừ, đúng vậy. Tuy so với hai người còn lại, ta không được nổi danh cho lắm."_
 
 Không, mặc dù đúng là như vậy, nhưng Tsukuyomi no Mikoto vẫn là một cái tên gây chấn động. Bởi vì tôi rất thích thần thoại và lịch sử (dù chỉ một phần), nhưng nếu chủ nhân của giọng nói này thật sự là Tsukuyomi, ít nhất tôi cũng hiểu được rằng đây là một sự tồn tại vô cùng phi thường.
 
 "Vậy, tại sao ngài Tsukuyomi lại biết được chuyện về gia đình tôi?"
 
-"... Cậu đúng là chẳng biết cái gì cả. Được rồi, ta sẽ nói lần lượt từng thứ một cho cậu."
+_"... Cậu đúng là chẳng biết cái gì cả. Được rồi, ta sẽ nói lần lượt từng thứ một cho cậu."_
 
 Sau đó, ngài Tsukuyomi đã cẩn thận giải thích sơ lược cho tôi. Nội dung được kể lại quả đúng là sét đánh giữa trời quang. Nói một cách đơn giản, chính là như thế này.
 
@@ -176,7 +176,7 @@ Tuy nói rằng tôi sẽ trở thành siêu nhân ở thế giới bên kia, nh
 
 Trong lúc trò chuyện qua lại, câu chuyện đã lan man tới cả đề tài gia đình. Tôi vô cùng thông cảm trước sự khó khăn của ngài Tsukuyomi khi bị mắc kẹt giữa chị và em trai đầy cá tính của ngài ấy. Với một người mới gặp lần đầu như tôi mà ngài ấy đã than thở nhiều đển thể, có vẻ ngài ấy thật sự rất vất vả.
 
-"Ồ, không ngờ cậu lại hiểu!! Không biết đã mấy trăm năm rồi ta mới lại có được cảm giác nhẹ lòng tới vậy... Nói đến chuyện này, cậu Makoto cũng rất là khổ cực đấy."
+_"Ồ ồ, không ngờ cậu lại hiểu!! Không biết đã mấy trăm năm rồi ta mới lại có được cảm giác nhẹ lòng tới vậy... Nói đến chuyện này, cậu Makoto cũng rất là khổ cực đấy."_
 
 Ngài Tsukuyomi cũng hiểu được tâm trạng phức tạp của tôi khi phải đứng giữa chị và cô em gái. Qủa thực là có rất nhiều thứ phải chú ý, chuyện bị kẹt giữa chị và em gái ấy...
 
@@ -334,43 +334,43 @@ Quá sức choáng ngợp.
 
 Tôi vốn tưởng rằng mình sẽ lại ở trong một căn phòng như thể được bao quanh bởi bầu trời đêm, nhưng lần này là một căn phòng tỏa ra thứ ánh sáng màu trắng chói lóa, rất không tốt cho mắt.
 
-"Ồ, đã tới rồi sao?"
+_"Ồ, đã tới rồi sao?"_
 
 Một giọng nói đột nhiên vang lên. Là Nữ thần sao?
 
-"Sức mạnh của ông già Tsukuyomi cũng đã khá yếu rồi nhỉ. Ở một thế giới thích bị ngược đãi như vậy, đúng là chẳng còn cách nào khác."
+_"Sức mạnh của ông già Tsukuyomi cũng đã khá yếu rồi nhỉ. Ở một thế giới thích bị ngược đãi như vậy, đúng là chẳng còn cách nào khác."_
 
 Người đó nói tiếp. Nhất định là Nữ thần rồi.
 
-"Hơn nữa, lâu quá không gặp, đến cả tính cách của ta mà ông già đó cũng quên mất, giờ còn đưa một cậu nhóc ra ứng cử, ta dám cá ông ta đã biến thành lão già lẩm cẩm rồi. A ha ha ha."
+_"Hơn nữa, lâu quá không gặp, đến cả tính cách của ta mà ông già đó cũng quên mất, giờ còn đưa một cậu nhóc ra ứng cử, ta dám cá ông ta đã biến thành lão già lẩm cẩm rồi. A ha ha ha."_
 
 N-Nữ thần ?... Ừm, chắc đúng là Nữ thần đấy.
 
-"Rõ ràng là có hai cô bé phù hợp với sở thích của ta hơn. Không chọn một trong hai người đó được hay sao, đúng thật là... May mà ta đã chuẩn bị sẵn phương án dự phòng, nếu không thì chẳng biết ta sẽ bùng nổ thế nào nữa."
+_"Rõ ràng là có hai cô bé phù hợp với sở thích của ta hơn. Không chọn một trong hai người đó được hay sao, đúng thật là... May mà ta đã chuẩn bị sẵn phương án dự phòng, nếu không thì chẳng biết ta sẽ bùng nổ thế nào nữa."_
 
 Nghe đến đây, tôi thực sự hoang mang. Người này là... N-Nữ, Nữ, Nữ thần ư?
 
-"Thôi, nhẫn nại, nhẫn nại nào. Được rồi, người tên là Misumi đúng không? Vì khế ước giữa cha mẹ của người và ta nên người mới bị triệu hoán tới thế giới này..."
+_"Thôi, nhẫn nại, nhẫn nại nào. Được rồi, người tên là Misumi đúng không? Vì khế ước giữa cha mẹ của người và ta nên người mới bị triệu hoán tới thế giới này..."_
 
 Nghiêm túc đấy à? Vụ này chắc chắn là một trò đùa ác ý nào đó rồi.
 
-"Lúc trước ta mới chỉ lơ là một chút mà hiện tại thế cân bằng giữa các chủng tộc ở thế giới này đã bị sụp đổ trầm trọng. Thực tế, loài người đang lâm vào tình cảnh vô cùng nguy hiểm. Ma tộc và Á Tinh linh đang bắt đầu tự tiện làm những gì mình thích."
+_"Lúc trước ta mới chỉ lơ là một chút mà hiện tại thế cân bằng giữa các chủng tộc ở thế giới này đã bị sụp đổ trầm trọng. Thực tế, loài người đang lâm vào tình cảnh vô cùng nguy hiểm. Ma tộc và Á Tinh linh đang bắt đầu tự tiện làm những gì mình thích."_
 
 Lơ là một chút là sao?
 
-"Vậy nên, ta mới nhớ tới chuyện khế ước. Loài người, vào lúc ta ngủ gật... à không, chỉ trong nháy mắt đã sinh ra con cháu rồi, vì vậy nên ta mới nghĩ đến chuyện gọi hậu duệ của họ tới để giúp đỡ. Hửm?"
+_"Vậy nên, ta mới nhớ tới chuyện khế ước. Loài người, vào lúc ta ngủ gật... à không, chỉ trong nháy mắt đã sinh ra con cháu rồi, vì vậy nên ta mới nghĩ đến chuyện gọi hậu duệ của họ tới để giúp đỡ. Hửm?"_
 
 ... Vị thần này vừa mới nói "ngủ gật" đấy à?
 
-"A ha ha ha!! Ngươi thật sự là con của hai người kia sao? Hả, chờ chút, chờ chút đã. Ai da, không phải trưởng nữ và thứ nữ được thừa kế gen rất tốt đấy sao? A, chuyện này đúng là tồi tệ. Không thể nào. Hầy, ta phải kiểm tra lại cho chắc mới được."
+_"A ha ha ha!! Ngươi thật sự là con của hai người kia sao? Hả, chờ chút, chờ chút đã. Ai da, không phải trưởng nữ và thứ nữ được thừa kế gen rất tốt đấy sao? A, chuyện này đúng là tồi tệ. Không thể nào. Hầy, ta phải kiểm tra lại cho chắc mới được."_
 
 Ng-ngài Tsukuyomi, chuyện này... thực sự quá sức của tôi rồi.
 
-"Ồ, đúng là có quan hệ máu mủ. Ngươi cũng thảm thương thật đấy. Hoàn toàn là một con vịt con xấu xí, chẳng có tí % thiên nga nào! Ngươi đúng là sản phẩm làm ẩu mà."
+_"Ồ, đúng là có quan hệ máu mủ. Ngươi cũng thảm thương thật đấy. Hoàn toàn là một con vịt con xấu xí, chẳng có tí % thiên nga nào! Ngươi đúng là sản phẩm làm ẩu mà."_
 
 Này, có tin tôi cắn chết bà không?!
 
-"Ban cho ngươi sức mạnh quả thực ta không làm nổi. Ngươi quá xấu xí, mau biến đi cho khuất mắt ta được không? Đúng là một sự tồn tại đáng ghét."
+_"Ban cho ngươi sức mạnh quả thực ta không làm nổi. Ngươi quá xấu xí, mau biến đi cho khuất mắt ta được không? Đúng là một sự tồn tại đáng ghét."_
 
 ... Cơn tức giận quay mòng mòng trong đầu tôi, nhưng nhờ vậy, suy nghĩ của tôi trở nên rõ ràng hơn. Tôi chưa từng biết tới một nhân vật nào ích kỷ đến mức kinh khủng như vậy.
 
@@ -384,7 +384,7 @@ Không được rồi. Dù rất muốn mắng chửi nhưng tôi chẳng thể 
 
 Tôi hoàn toàn cạn lời, chỉ biết há hốc miệng nghe bà Nữ thần nhiếc móc.
 
-"Đứng đờ ra đó làm gì vậy? Đừng bảo ngươi không biết nói chuyện đấy. Dù sao ta cũng là Nữ thần xử nữ duy nhất thế giới này đó nha? Một kẻ xấu xí như ngươi ở chung một không gian với ta cũng là tội lỗi rồi. Lỡ như ta có thai thì người tính sao đâu?"
+_"Đứng đờ ra đó làm gì vậy? Đừng bảo ngươi không biết nói chuyện đấy. Dù sao ta cũng là Nữ thần xử nữ duy nhất thế giới này đó nha? Một kẻ xấu xí như ngươi ở chung một không gian với ta cũng là tội lỗi rồi. Lỡ như ta có thai thì người tính sao đâu?"_
 
 Cái, cái người này là thần... Lại còn là thần duy nhất ở thế giới này nữa.
 
@@ -392,35 +392,35 @@ Không muốn. Tôi cực kỳ không muốn. Thế giới do một vị thần 
 
 Ngài Tsukuyomi, làm ơn, tôi rất cần ngài giúp đỡ. Chuyện này quả thực vượt quá khả năng của tôi rồi!!!
 
-"Dù sao ngươi cũng đã tới đây... ước gì triệu hoán cũng có giai đoạn nguội lạnh nhỉ."
+_"Dù sao ngươi cũng đã tới đây... ước gì triệu hoán cũng có giai đoạn nguội lạnh nhỉ."_
 
 `Giai đoạn nguội lạnh (Cooling - off period): Trong thương mại, đây là khoảng thời gian sau khi mua hàng, nếu sử dụng cảm thấy không hài lòng, người dùng có thể trả hàng.`
 
 "B-bà?! Đã tự tiện triệu hoán người khác tới mà còn thế à!"
 
-"Oa, thật dã man! Vừa mở miệng đã buông một câu như vậy là sao? Cả giọng nói cũng khó nghe nữa. Ta vốn đang phân vân không biết có nên để người giúp đỡ không, nhưng giờ thì quên đi nhé."
+_"Oa, thật dã man! Vừa mở miệng đã buông một câu như vậy là sao? Cả giọng nói cũng khó nghe nữa. Ta vốn đang phân vân không biết có nên để người giúp đỡ không, nhưng giờ thì quên đi nhé."_
 
 "Hả?"
 
-"Ta đã chọn được Dũng sĩ phù hợp với bản anh hùng ca trong thế giới của ta rồi. Vậy nên, người hãy an phận ở Tận cùng của Thế giới và đừng có gây nên phiền phức cho ta đấu, nghe chưa? Quả nhiên chuẩn bị sẵn phương án dự phòng đúng là lựa chọn chính xác."
+_"Ta đã chọn được Dũng sĩ phù hợp với bản anh hùng ca trong thế giới của ta rồi. Vậy nên, người hãy an phận ở Tận cùng của Thế giới và đừng có gây nên phiền phức cho ta đấu, nghe chưa? Quả nhiên chuẩn bị sẵn phương án dự phòng đúng là lựa chọn chính xác."_
 
 Nghe gì mà nghe!! Đó là cái quái gì vậy hả!
 
 Khó khăn lắm tôi mới có được quyết tâm để vứt bỏ thế giới cũ và đi tới nơi này!
 
-"Độ cao đã giảm xuống kha khá rồi nhỉ. Có vẻ rơi xuống sẽ không chết đâu. A a, con người của thế giới kia ngoan cường thật, ta thấy hơi nể rồi đấy."
+_"Độ cao đã giảm xuống kha khá rồi nhỉ. Có vẻ rơi xuống sẽ không chết đâu. A a, con người của thế giới kia ngoan cường thật, ta thấy hơi nể rồi đấy."_
 
 Chỉ mới gặp mặt vài phút mà tôi đã bị mắng té tát không ngóc đầu lên được... Làm gì có lý do nào khiến tôi bị đối xử không thỏa đáng như này chứ! Phải không?!
 
-"Ngoài ra, ta cần nói thêm một điều nữa. Đừng có gieo rắc hạt giống xấu xí của ngươi cho các dân cư ở thế giới xinh đẹp của ta, được chứ? Kết hôn cũng dẹp luôn cho ta, thế giới sẽ bị nhiễm bẩn đấy."
+_"Ngoài ra, ta cần nói thêm một điều nữa. Đừng có gieo rắc hạt giống xấu xí của ngươi cho các dân cư ở thế giới xinh đẹp của ta, được chứ? Kết hôn cũng dẹp luôn cho ta, thế giới sẽ bị nhiễm bẩn đấy."_
 
 Tôi không muốn nghe bất cứ điều gì nữa. Đây là lần đầu tiên tội lâm vào tình cảnh trớ trêu như vậy. Đây mới thật sự là tuyệt vọng này... Vị thần duy nhất của thế giới mà tôi sắp sửa đi đến là một kẻ hết thuốc chữa. Chuyện này quá nghiêm trọng rồi.
 
-"À, phải rồi. Mặc dù ta rất ghét việc trao sức mạnh cho ngươi, nhưng nếu chỉ ở mức độ ban cho 'Lý giải’ thì cũng chẳng sao. Thật chẳng còn cách nào khác. Thống nhất như vậy đi, cũng vì mục đích sau này."
+_"À, phải rồi. Mặc dù ta rất ghét việc trao sức mạnh cho ngươi, nhưng nếu chỉ ở mức độ ban cho 'Lý giải’ thì cũng chẳng sao. Thật chẳng còn cách nào khác. Thống nhất như vậy đi, cũng vì mục đích sau này."_
 
 Sao tự nhiên lại thỏa hiệp rồi? Đừng có đùa chứ, cái bà này! Hay thực ra bình thường thần linh ở đây đều có thái độ trịch thượng như vậy? Là ngài Tsukuyomi đặc biệt, hay bà Nữ thần này mới đặc biệt? Cân nhắc đến sức khỏe tinh thần của bản thân mình, tôi muốn tin về sau hơn.
 
-"Này, Misumi gì gì đó, người đang nghe đấy chứ?"
+_"Này, Misumi gì gì đó, người đang nghe đấy chứ?"_
 
 Chẳng biết tại sao tên của tôi lại bị rút ngắn thành "gì gì" rồi. Nhưng như thế vẫn tốt hơn là "cái đó" hay "cái này", phải không?
 
@@ -428,21 +428,19 @@ Chẳng biết tại sao tên của tôi lại bị rút ngắn thành "gì gì"
 
 Tôi chẳng buồn dùng kính ngữ nữa. Có điều, tôi nghĩ chắc mình sẽ được tha thứ thôi. Đúng vậy, bởi vì tôi mới là người đúng mực ở đây.
 
-"Ta nói là ta sẽ ban cho ngươi khả năng có thể lý giải ngôn ngữ của chủng tộc khác ngoài con người, ví dụ như nói chuyện được với Ma tộc và ma vật. Vậy nên, hãy học cách chung sống hòa thuận với những chủng tộc có địa vị thấp như Orc và Goblin đi nhé. Chú ý đừng nhầm lẫn các chủng tộc và đừng gây phiền phức cho Loài người đấy, hiểu chưa? Được rồi, đi đi."
+_"Ta nói là ta sẽ ban cho ngươi khả năng có thể lý giải ngôn ngữ của chủng tộc khác ngoài con người, ví dụ như nói chuyện được với Ma tộc và ma vật. Vậy nên, hãy học cách chung sống hòa thuận với những chủng tộc có địa vị thấp như Orc và Goblin đi nhé. Chú ý đừng nhầm lẫn các chủng tộc và đừng gây phiền phức cho Loài người đấy, hiểu chưa? Được rồi, đi đi."_
 
 `Orc: Trong văn học hiện đại, "Orc" là từ chỉ những sinh vật bị nguyền rủa có vẻ ngoài như quỷ, được lấy theo từ "Orcus" - vị thần La Mã tượng trưng cho cái chết. Chúng là giống loài tàn bạo, hung dữ và ghê tởm.`
 
 `Goblin: Là một sinh vật quái dị trong văn hóa dân gian châu Âu, xuất hiện từ thời Trung cổ. Chúng được gán cho các khả năng, tính cách, ngoại hình khác nhau tùy vào câu chuyện và xuất xứ, nhưng đa phần được miêu tả có ngoại hình nhỏ bé, kỳ cục, tinh quái và tham lam.`
 
-
-
 "Ăn nói kiểu gì quá đáng vậy hả, aaaaaaaaa?!"
 
-"A!! Đến tiếng hét cũng khó nghe nữa! Hỡi các Thần nữ, hãy tẩy rửa triệt để không gian này cho ta đi! Nếu như chúng phát tán ra, ta sẽ không thể chịu đựng được đâu!"
+_"A!! Đến tiếng hét cũng khó nghe nữa! Hỡi các Thần nữ, hãy tẩy rửa triệt để không gian này cho ta đi! Nếu như chúng phát tán ra, ta sẽ không thể chịu đựng được đâu!"_
 
 Đột nhiên, một cảm giác chơi vơi ập tới.
 
-Câu nói cuối cùng mà tôi nghe thấy thật sự là "Nếu như chúng phát tán ra, ta sẽ không thể chịu đựng được" ư? Tôi là hóa thân của ác ma đen G hay gì!
+Câu nói cuối cùng mà tôi nghe thấy thật sự là _"Nếu như chúng phát tán ra, ta sẽ không thể chịu đựng được" ư? Tôi là hóa thân của ác ma đen G hay gì!_
 
 `G là viết tắt của Gokiburi, nghĩa là con gián trong tiếng Nhật.`
 
@@ -457,9 +455,11 @@ Bà ta nói những lời đó hoàn toàn tự nhiên, không hề do dự.
 Bà Nữ thần chết tiệt đó... Không, mình sẽ không bao giờ gọi bà ta là Nữ thần nữa!!
 
 Khốn nạnnnnnnnnn!!
+
 <br /><br /><br /><br /><br />
 # **Chapter 1**
 <br /><br /><br /><br /><br />
+
 Khung cảnh xung quanh chuyển từ căn phòng đang toả sáng lấp lánh sang một bầu trời đêm.
 
 HA HA HA!
@@ -510,45 +510,45 @@ A, xúc động quá.
 
 Các bạn chỉ có thể đọc "Nguyệt đạo dị giới" tới đây thôi...
 
-"... Makoto... Cậu... Makoto... Cậu Makoto!"
+_"... Makoto... Cậu... Makoto... Cậu Makoto!"_
 
 "A, ngài Tsukuyomi. Không ngờ tôi vẫn còn có thể nghe được giọng nói của ngài trong tưởng tượng. Tại sao ngài không phải là thần của thế giới này nhỉ, thật đáng tiếc."
 
-"Tỉnh lại! Hãy tỉnh táo lại đi! Cậu có nghe thấy lời ta nói không?"
+_"Tỉnh lại! Hãy tỉnh táo lại đi! Cậu có nghe thấy lời ta nói không?"_
 
 Là người thật à?!
 
 Nhưng chẳng phải ngài ấy đã nói rằng không thể nói chuyện với tôi nữa sao?
 
-"Tất cả vừa mới diễn ra, ta đã nghe thấy hết toàn bộ cuộc đối thoại giữa hai người rồi. Xin lỗi cậu... Ta cũng không ngờ Nữ thần lại làm ra chuyện kinh khủng như vậy."
+_"Tất cả vừa mới diễn ra, ta đã nghe thấy hết toàn bộ cuộc đối thoại giữa hai người rồi. Xin lỗi cậu... Ta cũng không ngờ Nữ thần lại làm ra chuyện kinh khủng như vậy."_
 
 "NGÀI TSUKUYOMI! TÔI THẬT SỰ RẤT MUỐN GẶP NGÀI!"
 
 Chẳng hiểu sao tôi lại lắp bắp gào tướng lên. Nhưng bây giờ tôi cũng chẳng còn hơi sức đâu mà để ý đến chuyện đó nữa.
 
-"Ta nghĩ mức độ đau đớn này cũng chưa là gì với cậu Makoto... nhưng Nữ thần làm vậy cũng không phải điều tốt."
+_"Ta nghĩ mức độ đau đớn này cũng chưa là gì với cậu Makoto... nhưng Nữ thần làm vậy cũng không phải điều tốt."_
 
 "Hả? Vậy nghĩa là tôi có rơi xuống đất cũng không sao à?"
 
 Lúc này tôi vẫn còn cách mặt đất khá xa. Hiệu ứng đèn kéo quân khiến tôi cảm thấy thời gian kéo dài hơn sao?
 
-"Tuy sẽ có chấn động hơi mạnh, như kiểu rơi từ ban công tầng hai xuống đệm, nhưng cậu sẽ không bị thương đầu."
+_"Tuy sẽ có chấn động hơi mạnh, như kiểu rơi từ ban công tầng hai xuống đệm, nhưng cậu sẽ không bị thương đầu."_
 
 "Oaa."
 
 Sức mạnh này còn hơn cả mong đợi của tôi nữa. Tôi lợi hại thế sao? Rốt cuộc gánh nặng ở thế giới cũ mạnh đến chừng nào vậy?
 
-"Đó là nhờ cậu Makoto từng rèn luyện ở thế giới bên kia, không thì cậu đã phải chịu chấn động mạnh hơn nhiều."
+_"Đó là nhờ cậu Makoto từng rèn luyện ở thế giới bên kia, không thì cậu đã phải chịu chấn động mạnh hơn nhiều."_
 
 "Việc rèn luyện đó... xem ra có hiệu quả không ngờ nhỉ."
 
-"Tuy vậy, chắc hẳn khi rơi từ độ cao này xuống, cậu vẫn cảm thấy sợ hãi phải không. Yên tâm, ta sẽ thử làm vài thứ cho cậu. Hơn hết, ta cũng có điều muốn nói với cậu."
+_"Tuy vậy, chắc hẳn khi rơi từ độ cao này xuống, cậu vẫn cảm thấy sợ hãi phải không. Yên tâm, ta sẽ thử làm vài thứ cho cậu. Hơn hết, ta cũng có điều muốn nói với cậu."_
 
 Dường như ngài Tsukuyomi đang rất khó mở lời. Nhắc mới nhớ, lúc nãy tôi vừa nghĩ đến...
 
 "À, ừm, chẳng phải ngài đã bảo không thể nói chuyện với tôi được nữa sao?"
 
-"À, thực ra việc này đối với ta cũng hơi quá sức. Sau chuyện này, chắc ta phải chìm vào giấc ngủ mấy trăm năm thôi."
+_"À, thực ra việc này đối với ta cũng hơi quá sức. Sau chuyện này, chắc ta phải chìm vào giấc ngủ mấy trăm năm thôi."_
 
 "Cái..."
 
@@ -556,11 +556,11 @@ Dường như ngài Tsukuyomi đang rất khó mở lời. Nhắc mới nhớ, l
 
 Quầng sáng trắng ôn hòa bao trùm toàn bộ cơ thể tôi, khiến tốc độ rơi xuống chậm hắn lại. Ngài Tsukuyomi quả là một người nói được làm được.
 
-"Ngoài ra, cậu Makoto có nhớ Nữ thần kia đã mất kha khá thời gian mới tới đón tiếp cậu không?"
+_"Ngoài ra, cậu Makoto có nhớ Nữ thần kia đã mất kha khá thời gian mới tới đón tiếp cậu không?"_
 
 "A, đúng vậy."
 
-"Không ngờ cái con bé đó lại dám làm vậy. Không chỉ kết nối hai thế giới lại với nhau, mà còn lấy đi hai người nữa từ thế giới của ta."
+_"Không ngờ cái con bé đó lại dám làm vậy. Không chỉ kết nối hai thế giới lại với nhau, mà còn lấy đi hai người nữa từ thế giới của ta."_
 
 Cái, cái gì cơơơơ?!
 
@@ -572,11 +572,11 @@ Dù sao cũng là Nữ thần, làm chuyện như vậy mà cũng coi được �
 
 Hình ảnh chị và em gái lập tức hiện lên trong suy nghĩ của tôi.
 
-"Không, không phải là người thân của cậu Makoto. Nhưng có một người khá thân cận với cậu. Hoàn toàn trùng hợp với lúc triệu hoán cậu Makoto, có lẽ là người quen của cậu... Ta cũng đã quá bất cẩn."
+_"Không, không phải là người thân của cậu Makoto. Nhưng có một người khá thân cận với cậu. Hoàn toàn trùng hợp với lúc triệu hoán cậu Makoto, có lẽ là người quen của cậu... Ta cũng đã quá bất cẩn."_
 
 Tôi cũng không rõ quy tắc của thần linh cho lắm, nhưng dựa trên nỗi lo lắng của ngài Tsukuyomi, cái bà Nữ thần kia hình như đã vi phạm quy tắc tín nghĩa...
 
-"E rằng rất nhanh thôi, ta sẽ chìm vào giấc ngủ say, trong khoảng thời gian cậu còn sống, có lẽ chúng ta không còn cơ hội gặp lại nữa. Nhưng ta đã nhắn nhủ với những vị thần tri kỷ của ta, và nhờ họ xử lý những chuyện sau này... Cho dù là Nữ thần đã sáng tạo ra thế giới vô số lần đi nữa, nhưng với hành động tàn nhẫn đến mức này, nhất định vẫn sẽ phải chịu hình phạt thích đáng."
+_"E rằng rất nhanh thôi, ta sẽ chìm vào giấc ngủ say, trong khoảng thời gian cậu còn sống, có lẽ chúng ta không còn cơ hội gặp lại nữa. Nhưng ta đã nhắn nhủ với những vị thần tri kỷ của ta, và nhờ họ xử lý những chuyện sau này... Cho dù là Nữ thần đã sáng tạo ra thế giới vô số lần đi nữa, nhưng với hành động tàn nhẫn đến mức này, nhất định vẫn sẽ phải chịu hình phạt thích đáng."_
 
 Giọng nói của ngài Tsukuyomi dần trở nên yếu hơn. Quả thực việc nói chuyện với tôi đã vượt quá năng lực hiện tại của ngài ấy rồi... Chết tiệt.
 
@@ -584,13 +584,13 @@ Cái bà Nữ thần kia là vị thần có cấp bậc cao hơn ngài Tsukuyom
 
 "Hai người kia không sao chứ?!"
 
-"Ừ. Hai người đó được triệu hoán tới một lâu đài ở đâu đó, hình như cũng đã bình yên vô sự tiếp xúc được với Loài người. Và, à ừm... đã nhận được gia hộ to lớn từ Nữ thần."
+_"Ừ. Hai người đó được triệu hoán tới một lâu đài ở đâu đó, hình như cũng đã bình yên vô sự tiếp xúc được với Loài người. Và, à ừm... đã nhận được gia hộ to lớn từ Nữ thần."_
 
 Ngài Tsukuyomi chật vật nói.
 
 Wow, phân biệt đối xử thật đấy.
 
-"Ta hiểu cảm giác của cậu. Bởi vì cậu không còn bất cứ quan hệ nào với thế giới cũ, bà ta cũng biết rằng ta không có tư cách nhờ cậy cậu điều gì, nhưng nếu như gặp được hai người đó, ta hy vọng cậu có thể giúp đỡ bọn họ một chút. Dù sao họ cũng là người đến từ cùng một thế giới với cậu."
+_"Ta hiểu cảm giác của cậu. Bởi vì cậu không còn bất cứ quan hệ nào với thế giới cũ, bà ta cũng biết rằng ta không có tư cách nhờ cậy cậu điều gì, nhưng nếu như gặp được hai người đó, ta hy vọng cậu có thể giúp đỡ bọn họ một chút. Dù sao họ cũng là người đến từ cùng một thế giới với cậu."_
 
 A, vị thần này rốt cuộc tốt bụng đến mức nào vậy.
 
@@ -598,21 +598,21 @@ A, vị thần này rốt cuộc tốt bụng đến mức nào vậy.
 
 Gia hộ nhận được từ Nữ thần có sức mạnh đáng kể, chắc chắn bọn họ phải rất mạnh mẽ mới đúng.
 
-"Xét về sức mạnh của thần linh và cả ma lực, cậu Makoto mới là mạnh nhất. Không những bình an vô sự trưởng thành thế giới đó, mà cậu còn kế thừa huyết thống Loài người, họ không thể nào sánh được với cậu."
+_"Xét về sức mạnh của thần linh và cả ma lực, cậu Makoto mới là mạnh nhất. Không những bình an vô sự trưởng thành thế giới đó, mà cậu còn kế thừa huyết thống Loài người, họ không thể nào sánh được với cậu."_
 
 Ngài Tsukuyomi tiếp tục nói.
 
-"Tuy nghe hơi giống đang tự khoe khoang, nhưng bên cạnh sức mạnh của bản thân, ta còn được thừa kế khá nhiều sức mạnh từ cha mẹ thần linh của mình nữa."
+_"Tuy nghe hơi giống đang tự khoe khoang, nhưng bên cạnh sức mạnh của bản thân, ta còn được thừa kế khá nhiều sức mạnh từ cha mẹ thần linh của mình nữa."_
 
 Nếu tôi không nhầm, cha mẹ của ngài ấy là thần Izanagi và thần Izanami thì phải.
 
 `Trong Thần đạo Shinto, Izanagi (伊弉諾) và Izanami (伊弉冉) là một cặp song sinh một trai một gái được các vị thần trên cõi trời cử xuống để quản lý trần gian. Hai vị thần kết hôn, cùng nhau tạo ra tám hòn đảo và trở thành những vị thần đầu tiên khai sinh ra Nhật Bản.`
 
-"Sẽ không thua kém gì gia hộ của Nữ thần kia đâu. Cậu cứ yên tâm."
+_"Sẽ không thua kém gì gia hộ của Nữ thần kia đâu. Cậu cứ yên tâm."_
 
 Ồ, tôi cảm thấy tràn đầy tự tin rồi đấy.
 
-"Đúng là một tình thế nghiêm trọng. Nghĩa vụ căn bản của Dũng sĩ cũng bị Nữ thần kia tự ý cướp đoạt, thế nên cậu không cần phải ngần ngại gì nữa. Dưới cái tên Tsukuyomi, ta thừa nhận sự tự do trong thế giới mới của ngươi, Misumi Makoto! Hãy làm những gì mình thích đi!"
+_"Đúng là một tình thế nghiêm trọng. Nghĩa vụ căn bản của Dũng sĩ cũng bị Nữ thần kia tự ý cướp đoạt, thế nên cậu không cần phải ngần ngại gì nữa. Dưới cái tên Tsukuyomi, ta thừa nhận sự tự do trong thế giới mới của ngươi, Misumi Makoto! Hãy làm những gì mình thích đi!"_
 
 Ngài Tsukuyomi thực sự tức giận rồi! Quả nhiên ngài Tsukuyomi là tuyệt nhất!
 
@@ -620,7 +620,7 @@ Cho dù không được ngài ấy cho phép, tôi cũng dự định sẽ làm 
 
 Được ánh trăng bao bọc, tôi chậm rãi rơi xuống.
 
-"Trong vòng luân hồi của linh hồn, hy vọng rằng chúng ta có thể gặp lại nhau..."
+_"Trong vòng luân hồi của linh hồn, hy vọng rằng chúng ta có thể gặp lại nhau..."_
 
 Giọng nói của ngài Tsukuyomi dần dần biến mất.
 
@@ -1326,7 +1326,7 @@ Tôi nhờ người gác cửa hang động truyền lời cho Emma qua một l�
 
 Nội dung cũng chẳng có gì mấy.
 
-"Tôi sẽ thử tìm cách đối phó với ngài Shin. Chắc tôi sẽ ổn thôi, vậy nên hãy quên tôi đi và quay trở về làng. Cảm ơn cô."
+_"Tôi sẽ thử tìm cách đối phó với ngài Shin. Chắc tôi sẽ ổn thôi, vậy nên hãy quên tôi đi và quay trở về làng. Cảm ơn cô."_
 
 Đúng là đầy tính văn chương. Thực ra tôi cũng có thêm vài câu tán gẫu và giải thích.
 
@@ -2206,7 +2206,7 @@ Nói đúng hơn, khi nghĩ đến chuyện cư dân ở đây chỉ có mỗi m
 
 "Á Không rốt cuộc..."
 
-... Là nơi như thế nào vậy? Trước khi kịp hỏi câu đó, tôi đã nghe thấy Shin cất tiếng: "Ở đây là đâu thế?"
+_... Là nơi như thế nào vậy?_ Trước khi kịp hỏi câu đó, tôi đã nghe thấy Shin cất tiếng: "Ở đây là đâu thế?"
 
 Làm như tôi biết được ấy!
 
@@ -2426,7 +2426,7 @@ Nhìn trộm ký ức của tôi chẳng hề kiêng nể như vậy chỉ vì p
 
 Uaaaaaaaaa! Sao tôi lại có cảm giác như cô ấy đang uy hiếp tôi vậy?
 
-"Tôi sẽ tiết lộ chuyện đó của ngài cho người khác biết đấy, chủ nhân", chẳng lẽ hàm ý trong câu nói của cô ấy là như vậy sao?!
+_"Tôi sẽ tiết lộ chuyện đó của ngài cho người khác biết đấy, chủ nhân",_ chẳng lẽ hàm ý trong câu nói của cô ấy là như vậy sao?!
 
 Tôi cảm nhận được ác ý thông qua cách nói của Shin, người đang lựa chọn cách biểu hiện mà chỉ có game thủ mới hiểu. Cô ấy chỉ cần nói một cách đơn giản là điều đó giống sự khác nhau giữa bức ảnh tĩnh và video thì tôi cũng có thể hiểu rồi!
 
@@ -2744,7 +2744,7 @@ Trong lúc tôi còn đang phân vân, con nhện nhân cơ hội lao đến t�
 
 Để lỡ cơ hội tránh đòn tân công bằng móng vuốt của nó, tôi đưa thanh kiếm lên chặn móng vuốt đang đâm tới cơ thể mình.
 
-Kenggg!!
+_Kenggg!!_
 
 Một âm thanh chói tai vang lên.
 
@@ -2838,7 +2838,7 @@ Sau khi xắc nhận mũi tên đã bắn trúng tôi liên tục tăng cường
 
 Mũi tên và cây thương, hai cái Brid xuyên qua con nhện đã phát nổ.
 
-Được rồi, vậy là xong! Hẳn là uy lực của chúng lớn đến mức sẽ khiến người khác nghĩ thế.
+_Được rồi, vậy là xong!_ Hẳn là uy lực của chúng lớn đến mức sẽ khiến người khác nghĩ thế.
 
 Tuy nhiên, vừa phải chịu một vụ nổ lớn đến vậy mà hình dạng của con nhện đen kia vẫn còn nguyên vẹn. Rốt cuộc sức sống của sinh vật này dai dẳng đến mức nào vậy? Không hiểu sao, cả người nó đột nhiên co giật liên tục. Trông thấy cảnh đó, cám giác ghê tởm trào dâng trong tôi.
 
@@ -3062,7 +3062,7 @@ Dứt lời, chủ nhân ngã ngửa người ra phía sau.
 
 Dường như cậu ta đã tung hết sức lực của mình. Sử dụng nhiều ma lực đến như vậy, đấy cũng là chuyện thường. Không chỉ thể lực, mà cả tinh thần của cậu ta cũng đã đến cực hạn rồi.
 
-*... Thật hết cách, để mình ôm cậu ta vậy.*
+_... Thật hết cách, để mình ôm cậu ta vậy._
 
 Trong khi ta đang nghĩ như vậy thì...
 
@@ -3414,11 +3414,11 @@ Vì sao tất cả lại biến thành một câu chuyện cổ tích rồi?
 
 Tôi nhìn Shin đầy khó hiểu.
 
-Chà, chủ nhân ơi, đây chẳng phải là một cái kết hoàn mỹ nhất sao? Bên cạnh đó, Người lùn này cũng có thể trờ thành bạn với chúng ta đấy.
+_Chà, chủ nhân ơi, đây chẳng phải là một cái kết hoàn mỹ nhất sao? Bên cạnh đó, Người lùn này cũng có thể trờ thành bạn với chúng ta đấy.
 
 Không, cô chỉ muốn làm Katana thôi chứ gì ?
 
-Dù gì bọn họ cũng suýt nữa bị giết sạch, nếu không cho mấy người này một lý do chính đáng, làm sao bọn họ chịu chấp nhận? Thế nên như vậy là được rồi.
+Dù gì bọn họ cũng suýt nữa bị giết sạch, nếu không cho mấy người này một lý do chính đáng, làm sao bọn họ chịu chấp nhận? Thế nên như vậy là được rồi._
 
 Trao đổi bằng ánh mắt kết thúc.
 
