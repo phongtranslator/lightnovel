@@ -317,7 +317,7 @@ Ngài Tsukuyomi đúng là người dù ở bất cứ đâu cũng đều lo ngh
 
 Tôi gật đầu mỉm cười.
 
-Tôi đã quyết tâm đi đến dị giới. Ngài Tsukuyomi đã lắng nghe lời nói của một kẻ nhỏ bé như tôi, giúp cho tâm trí của tôi bình tĩnh hơn. Nếu ngài Tsukuyomi no Mikoto đã nói như vậy, cho dù đó là một Nữ thần"xưa nay chưa từng có", tôi cũng sẽ chấp nhận.
+Tôi đã quyết tâm đi đến dị giới. Ngài Tsukuyomi đã lắng nghe lời nói của một kẻ nhỏ bé như tôi, giúp cho tâm trí của tôi bình tĩnh hơn. Nếu ngài Tsukuyomi no Mikoto đã nói như vậy, cho dù đó là một Nữ thần "xưa nay chưa từng có", tôi cũng sẽ chấp nhận.
 
 <br /><br /><br /><br /><br />
 #### **◇◆◇◆◇◆◇◆**

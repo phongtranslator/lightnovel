@@ -515,6 +515,7 @@ pre {
 }
 
 code {
+  font-family: var(--global-font);
   color: var(--global-theme-color);
   background-color: var(--global-code-bg-color);
   border-radius: 3px;
