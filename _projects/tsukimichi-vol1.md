@@ -929,7 +929,7 @@ Quả nhiên vẫn lắc đầu.
 
 Oh my God. Tại sao tình hình vẫn chưa chịu chuyển biến tốt đẹp vậy? Đây chẳng phải là Event sao? Không đúng à?!
 
-`Sự kiện. Nhân vật sử dụng ngôn ngữ game.`
+`Event: Sự kiện. Nhân vật sử dụng ngôn ngữ game.`
 
 "Quanh đây không có làng của Loài người. Nơi này là một vùng hoang vu khô cằn, được gọi là 'Tận cùng của Thế giới'."
 
@@ -2335,7 +2335,7 @@ Hửm? Tôi bỗng có một dự cảm không hay...?
 
 Shin đã chấp nhận mối quan hệ chi phối, hẳn là đã trở thành một bề tôi có vai trò tương tự như Sử ma của tôi... nhưng mà lời nói và hành động của cô ấy có hơi quá mức tự do rồi đấy!
 
-`Sử ma 使い魔) là những trợ thủ đắc lực của một pháp sư.`
+`Sử ma (使い魔) là những trợ thủ đắc lực của một pháp sư.`
 
 Hoàn toàn mặc kệ ý kiến của chủ nhân! Cô thể hiện lòng tôn kính của mình chỉ bẳng cách xưng hô đối với tôi thôi à?
 
