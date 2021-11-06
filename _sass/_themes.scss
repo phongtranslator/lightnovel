@@ -3,6 +3,7 @@
  ******************************************************************************/
  
 :root {
+  --global-font-weight: #{$font-weight};
   --global-font-size: #{$font-size};
   --global-font: #{$hina-mincho-font};
   --global-bg-color: #{$white-color};
