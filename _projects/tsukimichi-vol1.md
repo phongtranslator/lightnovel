@@ -2617,7 +2617,7 @@ Nghĩ vậy, tôi nhìn về nơi phát ra âm thanh.
 Shin đang đứng đó, ôm một người có bộ lông rậm rạp rõ ràng đang bị thương rất nặng.
 
 <br /><br /><br /><br /><br />
-# Chapter 3
+# **Chapter 3**
 <br /><br /><br /><br /><br />
 
 Một cô gái xinh đẹp cao ráo ôm một ông chú đầy lông lá theo kiểu bế công chúa, đúng là một cảnh tượng kỳ dị, khiến người ta chỉ muốn rời mắt đi chỗ khác.
@@ -4280,12 +4280,3340 @@ Tôi xoay người lại và bỏ chạy hết tốc lực. Với tốc độ ng
 
 [IMG_0116.PNG]: https://1.bp.blogspot.com/-vvwaw9R3UUE/YYQJsv2YzxI/AAAAAAAACcg/EqKo9hEwLCs-YuCV-E4nPgb0EZAXJu0bQCLcBGAsYHQ/s16000/IMG_0116.PNG
 
+"Chết tiệtttt! Sao mình lại không nghe hiểu được lời nói của con người chứứứ!!"
 
+Điều khủng hoảng nhất là tôi hoàn toàn không hiểu được những từ mà đáng lẽ ra tôi phải biết rõ.
+
+Ngày mai sẽ phải làm sao đây!!
+
+Không thể giao tiếp bằng lời nói đúng thật là rắc rối.
+
+Từ lúc đặt chân đến thế giới này, tôi vẫn nói tiếng Nhật, nhưng không hề có bất cứ vấn đề gì... Orc hay Người lùn, thậm chí cả con nhện cũng đều OK, ai cũng hiểu lời tôi nói.
+
+... Không, chẳng phải ngôn ngữ khác nhau sao?
+
+Vậy mà tôi lại không thể nói chuyện với con người, trong khi tôi vốn là một con người, chuyện này quả thực nằm ngoài dự đoán!
+
+Không thể nào. Đúng vậy.
+
+Vói dự cảm không lành, tôi yêu cầu Tomoe và những người khác thử nói chuyện bằng "ngôn ngữ chung" của Loài người.
+
+Woa, tôi hoàn toàn chẳng hiểu gì. Tôi cảm thấy hơi bị tổn thương khi mọi người có thể nói chuyện với nhau dễ dàng như thế. Đặc biệt là Mio, tại sao cô ấy lại nói được ngôn ngữ chung vậy? Cô ấy vốn không có ký ức gì khác ngoài cảm giác đói bụng cơ mà! Hay thực ra Mio là thiên tài?!
+
+Ngôn ngữ chung chính là ngôn ngữ mà toàn bộ Loài người của thế giới này có thể sử dụng để giao tiếp với nhau, gần như không có ngoại lệ. Có vẻ Loài người ở mọi quốc gia đều thống nhất sử dụng loại ngôn ngữ này. Khi tôi thắc mắc vì đó vốn là ngôn ngữ Loài người thì nhận được câu trả lời rằng, vì ở thế giới này Loài người phát triển một cách vượt trội, nên nhiều chủng tộc khác buộc phải học ngôn ngữ này, kết quả, nó trở nên vô cùng phổ biến, phù hợp với tên gọi ngôn ngữ chung. Tuy nhiên, thay vì từ ngữ, tôi lại chỉ nghe thấy những âm tiết đơn thuần. Trước giờ tôi vẫn có thể giao tiếp được bình thường, vậy nên đây quả là cú sốc to lớn.
+
+Không thể tiếp nhận được hiện thực, tôi còn nghĩ không biết có phải mình đã bị Tomoe và Mio chọc ghẹo hay không, vì thế tôi đã thử thực hiện một vài thí nghiệm.
+
+Từ những người dân hiện đang được phép định cư tại Á Không, tôi chọn ra đại biểu của từng chủng tộc, tập trung lại một chỗ và thử nghe họ nói chuyện bâng quơ với nhau. Kết quả, chỉ mình tôi hiểu được hết các ngôn ngữ của tất cả chủng tộc.
+
+Chủng tộc khá xuất sắc là tộc Orc. Bọn họ có thể miễn cưỡng giao tiếp được với các chủng tộc khác, vì vậy họ có thể trở thành một chiến lực to lớn trong công cuộc vận hành thành phố sau này.
+
+Nói tóm lại, tôi cần mau chóng học được ngôn ngữ chung, ít nhất cũng phải ở mức độ có thể đọc và nghe được.
+
+Tomoe và Mio có thể nói được ngôn ngữ chung đúng là một sự giúp đỡ to lớn.
+
+Chết tiệt! Tôi nhất định sẽ học được!!
+
+<br /><br /><br /><br /><br />
+# **Chapter 4**
+<br /><br /><br /><br /><br />
+
+Ghi nhớ tuyệt đối... sao?
+
+Quả thực cũng có khoảng thời gian tôi từng nghĩ như vậy.
+
+Hả, sao tôi nói nghe như thể đó là chuyện từ rất lâu rồi thế?
+
+Không, không phải, khi tập trung cao độ vào một chuyện gì đó, ví dụ như việc học, bạn sẽ có cảm giác thời gian trôi qua rất nhanh, đại loại thế...
+
+Ừm, tôi phải thừa nhận rằng mình hơi cường điệu hóa chuyện đó.
+
+Haa, nói gì thì nói, tôi phải làm thế nào với kỹ năng phát âm ngôn ngữ chung bây giờ?
+
+Tôi miễn cưỡng có thể nghe hiểu. Cho dù không hiểu, tôi vẫn ghi nhớ được cách phát âm của từng từ, rồi tổng hợp lại trong đầu và tìm kiếm ý nghĩa của chúng. Mặc dù chẳng hề đơn giản, nhưng tôi vẫn cố gắng kiên trì với cách này.
+
+Không ổn rồi. Chuyện này quả thực không ổn rồi.
+
+Với tình trạng như vậy, tôi có thể hiểu được sự thay đổi tinh tế trong từng cảm xúc nhỏ bé của đối phương sao? ... Không, chuyện đó là không thể nào.
+
+Nếu đọc được nét mặt, tôi nghĩ mình vẫn có khả năng hiểu được ý của người khác.
+
+Tiếp theo, thứ khó nhằn hơn cả chính là phát âm Chuyện này đúng là tai họa. Cho dù tôi đã thử bao nhiêu lần, Tomoe và Mio vẫn chỉ lắc đầu.
+
+Mặc dù bản thân tôi đã nghiêm túc bắt chước theo cách phát âm của hai người họ...
+
+Bọn họ cứ nói với tôi rằng "A" không phát âm như vậy, thế thì "A" còn có cách phát âm nào khác à?
+
+Rõ ràng tôi đã phát âm theo đúng âm thanh mà mình nghe được... Nhưng tôi của hiện tại vẫn không thể phát âm được ngôn ngữ chung.
+
+Học cấp tốc là không thể rồi. Không, học một cách kỹ lưỡng cũng chẳng được luôn. Không biết, nói tóm lại là tôi hoàn toàn không biết gì hết.
+
+Đó là kết luận mà tôi đã liều mạng cố gắng hết mức mới rút ra được. Thật ngạc nhiên đúng không, tôi đã rất nỗ lực rồi đấy?
+
+Tôi không hề có ý định từ bỏ việc học tập, tuy nhiên tạm thời không còn cách nào khác, tôi đành phải chấp nhận rằng bản thân chưa thể tự giao tiếp được.
+
+Dù vậy, chữ viết không có vấn đề gì. Khi không liên quan đến phát âm, tôi nghĩ nó cũng chỉ giống như tiếng nước ngoài bình thường thôi.
+
+Sau một tháng nỗ lực, cuối cùng cũng có thành quả, trước mặt tôi đã dịch được chữ cái và viết được những bài viết đơn giản.
+
+Nhờ có ma pháp, đến cả công việc tốn nhiều công sức như vẽ bóng thoại giống trong truyện tranh để nói chuyện tôi cũng làm được dễ dàng, nhờ vậy mà tôi miễn cưỡng có thể giao tiếp với người khác.
+
+Nói thẳng ra, đây chính là giao tiếp bằng chữ viết mà không cần giấy. Bởi vì tôi có thể viết chữ ở trên không trung.
+
+Còn về phương diện lý giải cảm xúc, tôi có thể nhờ Tomoe hoặc Mio hỗ trợ, chắc sẽ không có vấn đề gì đâu. Chẳng lẽ, năng lực Lý giải mà bà Nữ thần kia đã ban cho cản trở khả năng nói chuyện với Loài người của tôi sao... Tôi có thể nói chuyện được với các chủng tộc không phải con người, nhưng đổi lại, tôi không thể nói chuyện được với con người, chuyện này thực sự không thể chấp nhận được.
+
+Hơn nữa, vấn đề không chỉ nằm ở rào cản ngôn ngữ.
+
+Tại sao cô gái tóc vàng kia lại bỏ chạy, và cả chuyện dân làng sử dụng vũ lực đối với tôi nữa? Tôi không nghĩ thái độ đó chỉ đơn thuần là do bất đồng ngôn ngữ.
+
+Không lẽ đã xảy ra chuyện gì đó khiến bọn họ luôn phải ở trong tình trạng cảnh giác nghiêm ngặt sao, hay là tôi trông giống kẻ nào đó bị những cư dân của ngôi làng đó căm ghét...
+
+Theo như kết quả điều tra, câu trả lời chẳng phải là cái nào trong hai cái trên, họ chỉ ở trong tình trạng cảnh giác rất bình thường, cũng không có nỗi oán hận đối với nhân vật hung ác nào trông giống như tôi.
+
+Tôi không muốn tin, cũng không muốn thừa nhận, nhưng nguyên nhân quả thực nằm ở bản thân tôi... Đây là sự thật còn gây sốc hơn cả chuyện bất đồng ngôn ngữ nữa.
+
+Hình như khi bước đi, tôi đã tỏa ra một lượng ma lực vô cùng không lồ. Đó là một lượng ma lực lớn đến mức ngay cả người bình thường cũng nhận ra được tôi là kẻ bất thường. Nói một cách cụ thế, người ta có thể nhìn thấy cảnh vật trong khoảng vài chục mét xung quanh tôi bị bóp méo.
+
+Mọi người trong Á Không đương nhiên là nhận ra được ma lực khổng lồ mà tôi phóng ra.
+
+Tuy nhiên, khác ở một chỗ là chúng tôi có thể giao tiếp được với nhau, hơn nữa tôi còn có một con rồng với vẻ bề ngoài là Loài người điều khiến được không gian làm bề tôi. Ngoài ra, bản thân họ cũng không hề tỏ vẻ đế ý tới sự rò rỉ của ma lực.
+
+Không ngờ mọi người vốn chẳng hề nghĩ tôi đang vô thức tỏa ra ma lực mạnh mẽ, và cho rằng đó cũng không phải là việc bọn họ nên nhiều chuyện.
+
+... Làm ơn hãy để ý một chút đi?
+
+Sau đó nói cho tôi biết một tiếng được chứ?
+
+Gần đây, Emma, người đặc biệt giỏi về giao tiếp ở trong tộc Orc, nhân vật quan trọng của Á Không, đã nói rằng cô ấy "không hề cảm nhận được ma lực" lúc mới gặp tôi. Đó là vì khi ấy ma lực bị phong ấn trong thân thể sao?
+
+Kể từ khi tôi biết đến ma thuật tại hang động - nơi thanh tẩy cơ thể, ma lực đã rò rỉ ra ngoài và tràn đầy, giống như cái nắp nồi bị mở tung.
+
+Có vẻ ma lực của tôi luôn ở trong trạng thái tuôn trào cực độ. Hơn nữa, dường như nguồn năng lượng đó đang tăng lên mỗi ngày.
+
+... Xin mấy người đấy, nói sớm chút không được sao?
+
+_Ma lực của cậu đang phát ra đấy_, chỉ cần nói một câu đơn giản như vậy thôi.
+
+Tuy rằng giờ tôi biết rõ chuyện này vẫn đỡ hơn là để đến lúc có những sự cố dở khóc dở cười xảy ra.
+
+Giống như con suối trở thành đầu nguồn của một dòng sông lớn... Tomoe và Mio đã dùng một ví dụ ngầu như vậy để giải thích cho ma lực của tôi.
+
+"Thực tế, trong mắt những người kia, tôi trông như thế nào vậy?"
+
+"Để xem nào... Nếu tóm gọn lại trong một câu thì..."
+
+"Ồ, xin cô hãy nói sao cho dễ hiểu chút."
+
+Sau khi ngẫm nghĩ một lúc, Tomoe đáp, "Giống như đột nhiên có vài tên Ma vương xuất hiện ở trước mặt chăng?"
+
+"..." Suy nghĩ của tôi lập tức đình chỉ.
+
+... À, ra là vậy.
+
+Thì ra là vậy. Giờ tôi đã hiểu rồi.
+
+Một kẻ lạ mặt vừa tỏa ra một lượng ma lực đáng sợ vừa mỉm cười đuổi theo một cô gái xinh đẹp đang bỏ chạy và tiến tới gần cổng ngôi làng, quả là một cảnh tượng vô cùng kinh dị.
+
+Ừm, dân làng phản ứng như thế cũng là điều dễ hiểu.
+
+Tôi hít một hơi thật sâu.
+
+Chuyện này... là thế quái nào vậy?!
+
+Dù sao tôi cũng không chịu thua đâu!
+
+Chuyện chỉ ở mức độ này, chẳng lẽ tôi lại không thể vượt qua? Trưởng nam nhà Misumi sẽ không chịu khuất phục dễ dàng như vậy đâu!
+
+Tôi sẽ nhờ những Người lùn giúp đỡ, chắc chắn họ sẽ tạo ra được vật phẩm ngăn không cho ma lực phát tán ra.
+
+Dù sao đi nữa, khi gặp Loài người, ẩn giấu ma lực là điều vô cùng cần thiết.
+
+Tuy đã bị nhìn thấy mặt, nhưng nếu tôi đeo mặt nạ chắc sẽ không có vấn đề gì!
+
+Vậy hãy để các quý ngài Người lùn - những người thợ rèn khéo léo giúp tôi tạo ra một chiếc mặt nạ thật phong cách che được nửa trên khuôn mặt của tôi đi!
+
+Cũng nên thay đổi cả trang phục nữa nhỉ. Tôi sẽ nhờ Emma cho xem vài loại quần áo, rồi chọn ra vài bộ trang phục phù hợp với mình. Dù sao đi nữa, tôi nhất định phải cố gắng hết sức. Tốt nhất là mang theo cả Tomoe và Mio, những người có thể nói được ngôn ngữ chung. Nếu chỉ có mình tôi, có khả năng sẽ xuất hiện sơ hở.
+
+Trước hết, phải nhờ những Người lùn chế tạo xong trang bị đã, rồi sau đó tôi mới đi tới thị trấn.
+
+Vài ngày sau, tôi nhận được báo cáo từ Người lùn rằng chiếc nhẫn và mặt nạ đã hoàn thành, như vậy công tác chuẩn bị cho cuộc hành trình đã xong.
+
+Chiếc nhẫn này là tác phẩm đặc biệt do toàn bộ Người lùn cùng chế tạo, tên của nó là "Draupnir"!
+
+`Draupnir là tên chiếc nhẫn vàng của thần Odin trong thần thoại Bắc Âu.`
+
+Họ đã chế tạo cho tôi một chiếc nhẫn có thể hấp thu và nén được một lượng lớn ma lực! Hơn nữa, sau khi đeo vào, nó sẽ trở thành "Chiếc nhẫn bị nguyền rủa", liên tục hấp thụ ma lực và không thể tháo ra được cho tới khi đạt được một giá trị nhất định!
+
+Nếu không làm theo phương pháp này, trong trường hợp của tôi sẽ không thể che giấu được ma lực. Tôi vẫn có thể ức chế ma lực, nhưng cách đó chỉ có hiệu quả tạm thời mà thôi, rồi cuối cùng ma lực cũng sẽ tràn ra.
+
+Chiếc nhẫn này sẽ từ từ đổi màu theo lượng ma lực mà nó tích trữ, khi hấp thụ đến mức giới hạn, nó sẽ biến thành màu đỏ thẫm, còn màu sắc ban đầu của nó là màu trắng. Cũng không phải vì tôi thích màu này, mà dường như chiếc nhẫn đổi màu như vậy là do nguyên vật liệu làm nên nó.
+
+Tôi yêu cầu Tomoe đi cùng, và cô ấy đáp lại hai tiếng OK.
+
+"Nhóm chúng ta có ba người, quả nhiên là giống nhóm của ngài Koumon sao! Thiếu chủ là ngài Koumon đã về hưu... Còn tôi thích hợp làm Kaku nhất! Mio chắc làm Suke hay Hachibei đều được!"
+
+`Tokugawa Mitsukuni (1628 - 1701) hay còn gọi là Mito Koumon là một Lãnh chúa đầu thời kỳ Edo. Có một bộ phim được dựng dựa theo nhân vật này. Koumon ngao du khắp Nhật Bản cùng với hai samurai đi theo tháp tùng là Kaku và Suke. Hachibei là một thường dân phàm ăn mà ông đã gặp trên đường.`
+
+Tại sao cứ phải chơi trò đóng phim lịch sử trong thế giới của kiếm và ma pháp chứ...
+
+"Này, Tomoe, cô không biết ở thế giới này không có ngài Mito sao?"
+
+Cô nhìn lại đi, đây là thế giới kỳ ảo mang hơi hướng châu Âu thời Trung cổ đấy!
+
+"Ừm, đúng là không hề có nhân vật phụ nào hết."
+
+Không không, ý tôi là cô hãy dừng cái chủ đề phim lịch sử này lại đi!!
+
+"Không phải, sao cô cứ mang các thiết lập từ phim lịch sử ra áp dụng ngoài đời vậy hả?"
+
+"Cậu lại nói chuyện kỳ lạ gì nữa thế? Khó khăn lắm mới rèn ra được một thanh Katana, đương nhiên tôi phải lấy ra dùng thử rồi."
+
+Đó là lý do của cô đấy à?!
+
+Tomoe vừa hét "Lưỡi kiếm lạnh vung ra bốn phía! Ai dám tới gần! Ta liền chém!" vừa vung vẩy thanh Katana do Người lùn tạo ra. Cô phấn khích quá nhỉ. Nhưng dù sao tôi cũng có phải là ngài Koumon đâu.
+
+Mio cũng rất hào hứng với cuộc hành trình lần này.
+
+"Đầu tiên là đi ăn những món đồ nổi tiếng và đặc sản, aaa, không biết chúng sẽ thơm ngon đến thế nào đây. Đương nhiên, di tích thắng cảnh chỉ là điểm tâm, thiếu chủ mới là món chính."
+
+Tạm thời chưa nói đến mấy món nổi tiếng, nhưng cả tôi và di tích đều không phải là đồ ăn nhé. Cho dù là kẻ tham ăn đến mức nào thì cũng cũng đâu thể ăn được con người và vật vô cơ, đúng chứ?
+
+Thậm chí tôi còn là món chính nữa. Uaaaa, thất bại! Đúng thật là thất bại!
+
+"Đương nhiên từ bây giờ phải ưu tiên chất hơn là lượng. Máu và ma lực của thiếu chủ, rồi sau đó... Ha ha ha ha."
+
+... Đầu tôi đau quá. Tôi quả thực không muốn nghĩ tới nội dung phía sau tràng cười "Ha ha ha ha" của cô ấy nữa.
+
+Kể từ bây giờ, tôi phải mang theo hai người kia tiếp tục cuộc hành trình ư? Mặc dù ngoài rào cản ngôn ngữ, tôi còn phải chịu đựng nhiều điều bất lợi khác nhưng tôi vẫn sẽ cố gắng hết sức. Tôi nhất quyết không chịu thua bởi vì tôi biết, phía trước còn có tương lai tươi sáng đang chờ đợi mình.
+
+Với những đại biểu của các chủng tộc, tôi đã trực tiếp giao chỉ thị cho bọn họ, vì vậy cho dù chúng tôi vắng mặt khỏi Á Không chắc cũng không có vẩn đề gì.
+
+Như vậy, cuối cùng tôi cũng có thể bắt đầu cuộc hành trình.
+
+Theo kết quả của cuộc họp bàn, thiết lập của tôi - kẻ có ngoại hình kỳ quặc đạt điểm tối đa, sẽ là con trai của một thương nhân có tài sản kếch xù ngao du khắp nơi để học tập và rèn luyện. Tôi mang theo hai người với vai trò là vệ sĩ kiêm người hầu cùng đồng hành và buôn bán những vật phẩm quý hiếm. Những vật phẩm quý hiếm đó là trái cây tươi sạch và các sản phẩm do người dân Á Không làm ra. Một căn bệnh thời thơ ấu đã khiến tôi mất đi giọng nói, hơn nữa còn phải đeo chiếc nhẫn và mặt nạ bị nguyền rủa, chịu đủ loại bất tiện. Đúng là một thiết lập siêu khó tín.
+
+Rốt cuộc tôi bất hạnh đến mức nào vậy? Còn "đủ loại bất tiện" là cái quái gì thế...
+
+Cứ thế, cuộc hành trình đi cải cách vòng quanh thế giới đầy sóng gió của tôi - người được gọi là thiếu chủ, đã bắt đầu.
+
+Để không làm cho bản thân trông khả nghi trong mắt người khác, tôi cố gắng không thay đổi sắc mặt, chỉ đảo mắt để quan sát tình hình ở bên trong ngôi làng.
+
+Lúc trước, khi bị người dân đuổi đi, tôi chỉ mới thấy được bên ngoài, nên có cảm giác nơi này giống một khu dân cư nhỏ, nhưng thực tế, bầu không khí ở đây giống như trại tị nạn mà tôi từng xem trên tivi trước kia. Khó có thể gọi đây là thị trấn của Loài người.
+
+Nơi này là cứ điểm của Loài người ở nơi "Tận cùng của Thế giới". Mặc dù không có nhiều thiết bị đến mức được gọi là căn cứ, nhưng cũng có đủ những thứ cơ bản. Người ta dựng rất nhiều căn lều, nhưng cũng có những ngôi nhà làm bằng gỗ đâu ra đấy được xếp thẳng hàng (tuy chỉ là các căn nhà gỗ nhỏ).
+
+Nơi ở của người dân và cửa hàng khá khác nhau, các kiến trúc được làm tỉ mỉ bằng các loại đá nằm rải rác khắp nơi. Những công trình đó đều được canh gác nghiêm ngặt như muốn nói rằng ở đây có vật quan trọng. Có vẻ như đó là nơi tập trung và bảo quản những vật phẩm quý giá.
+
+Qua cuộc trao đổi với người gác cổng mà tôi vừa gặp lúc nãy, những người sống ở đây chủ yếu là vì mục đích rèn luyện và tìm kiếm tài nguyên.
+
+Sức mạnh và tiền tài. Cũng dễ hiểu thôi. Căn cứ ở nơi Tận cùng của Loài người tập trung toàn những người như vậy. Thực tế, chưa nói đến đám người mang mục đích rèn luyện, khó có thể khẳng định mọi hành động của đám người đến vì tài nguyên đều xuất phát từ lòng nhân đạo. Mong rằng đó chỉ là tôi đoán mò mà thôi...
+
+Đây là nơi ở đầu tiên của Loài người mà tôi nhìn thấy, nhưng trong mắt toàn bộ cư dân khác, nơi này chính là thị trấn "sau cùng" tiếp giáp với vùng hoang vu. Trẻ con bình thản chơi đùa ở quảng trường, liệu tôi có sai lầm khi mong chờ một quang cảnh thú vị hơn...
+
+Từ con đường chính, chúng tôi tiến thẳng vào bên trong mà không gặp trở ngại gì.
+
+Có vẻ như không ai nghĩ rằng tôi chính là kẻ lạ mặt khả nghi ngày hôm trước. Thật cảm ơn chiếc nhẫn và mặt nạ.
+
+Mặc dù chỉ là ứng phó tạm thời, nhưng chúng tôi cũng chuấn bị xe ngựa thích hợp để vận chuyển hành lý. Chúng tôi cũng mang theo cả hàng hóa quý hiếm, thế nên thay vì bị nghi ngờ, có thể nói rằng chúng tôi đã rất được hoan nghênh.
+
+Người đàn ông gác cổng vô cùng hứng thú đối với các loại quả, trái cây. Chúng tôi nhanh chóng bỏ trái cây đã hái được ở Á Không vào thùng, sẽ rất rắc rõỉ nếu như chúng tôi bị chú ý quá mức.
+
+Xung quanh nơi đây đều là những vùng đất hoang vu khô cằn, vậy nên sản phẩm như vậy chắc hẳn sẽ rất được chào đón. Ngẫm lại thì tôi chưa từng nhìn thấy một cái cây nào có thể ra quả ở nơi này. Trái cây có lẽ sẽ được coi là một loại sản vật quý giá.
+
+Trong chủng tộc Người lùn Elder đã di cư tới Á Không, có người từng sinh sống tại thị trấn của Loài người, vì vậy tôi đã nhờ người đó chỉ cho tôi biết giá trị của các hàng hóa, nhưng tại một nơi đặc thù như ở đây, cái đó chỉ có thể dùng để tham khảo. Bản thân thông tin ấy cũng đã cũ, nên tôi nghĩ rằng mình nên tìm hiểu thêm kiến thức để đề phòng.
+
+Tuy vẫn giữ ý định làm thương nhân, nhưng tôi cũng muốn đăng ký làm mạo hiểm giả. Người lùn đó đã nói cho tôi biết rằng có một tổ chức mang đầy tính kỳ ảo tồn tại, chính là Hội mạo hiềm giả.
+
+Do tính chất của địa điểm, ở đây đã trở thành nơi rèn luyện của những mạo hiểm giả cấp cao. Việc hỏi thăm chuyện "đăng ký" vào Hội thôi đã đủ hiếm thấy rồi, hơn nữa ở chỗ này, kẻ mới cấp 1 là tôi có lẽ sẽ bị coi là bất thường cho xem. Về phần mình, tôi định giải thích cho người trong Hội rằng tôi chỉ đăng ký vì mục đích tham khảo cho tương lai của mình.
+
+Cấp 1, có vẻ như đó là một bug đặc thù của tôi rồi. Thực ra, nhờ vào cuộn giấy phân biệt của tộc Orc Cao Nguyên, Tomoe và Mio đã được xác nhận ở cấp độ cao. Tôi nghĩ hai người họ đăng ký tại Hội này sẽ không bị nghi ngờ như tôi đâu.
+
+`Bug: Lỗi phần mềm hoặc lỗi chương trình.`
+
+Trong thế giới này, cấp độ không có giới hạn tối đa. Dựa vào kiến thức trong game, tôi thử hỏi có phải 99 là cao nhất không, họ đáp rằng đã xác nhận được có người đạt tới cấp độ mấy trăm. Ở trong một thế giới như vậy, người có cấp 1 như tôi rốt cuộc là cái gì đây....
+
+Tuy chỉ là ước lượng, nhưng chắc chắn cấp độ của Tomoe và Mio ít nhất cũng phải đạt tới ba chữ số. Và trị số đó cũng chỉ là bình thường trong Loài người mà thôi... Hơn nữa, tôi nghe được thông tin ấy từ Người lùn, và nó đã có từ hơn ba mươi năm trước rồi.
+
+Tuy nhiên, hai người đó thực chất là rồng và quái vật nhện, mặc dù họ có vẻ ngoài hệt như con người. Vậy nên, cũng không thể đánh giá họ theo tiêu chuẩn của Loài người được.
+
+"Các cô làm ơn đừng thu hút sự chú ý của người khác bằng cấp độ cao siêu của mình nữa được không?"
+
+Đó là một vấn đề. Tôi biết rõ hai người này có cấp độ hơn 100, hơn nữa, nếu lúc bọn họ được kiểm tra cẩn thận mà xảy ra chuyện ngoài ý muốn nào đó, tôi sẽ cảm thấy vô cùng khó xử. Tuy có thể dọa dẫm những người xung quanh, nhưng đồng thời chúng tôi cũng sẽ bị người khác chú ý... Trong tình hình hiện tại, chuyện đó mang đến tác hại nhiều hơn lợi ích.
+
+"Ừm, nhưng chúng tôi không hiểu lắm về chuyện này đâu. Vốn dĩ chỉ có Loài người và Ma tộc để ý đến những thứ như cấp độ này nọ chứ bọn tôi chẳng có hứng thú..."
+
+Tomoe thờ ơ đáp lại. Hình như cô ấy không thèm để ý đến chuyện này thật. Dù sao cũng là rồng trong truyền thuyết mà.
+
+"Đúng vậy đấy. Mà nhắc mới nhớ, trước đây có một nhóm Loài người cấp 250 hay 300 gì đấy đã hạ gục một trong những đứa con của tôi. Nghe nói cuộc chiến khá kịch liệt và cũng có vài Loài người đã chết."
+
+Mio đang nhớ lại báo cáo từ Arche, người thân của mình sao? Cô ấy đã đưa ra cho tôi một ví dụ chẳng biết có tham khảo được hay không nữa. Dù sao ký ức của Mio cũng rất rời rạc.
+
+Nghiêm túc đấy à? Theo như cấp độ bình quân của Hội mạo hiểm giả, chúng tôi có lẽ không nên đăng ký thì hơn. Nếu thân quyến của Mio đã đủ khả năng chiến đấu với nhiều đối thủ Loài người cấp 300, tôi nghĩ Tomoe và Mio còn ghê gớm hơn nữa.
+
+Trước hết, chúng tôi cứ ở tạm đây một tháng, ghi nhớ giá cả của hàng hóa và cơ sở buôn bán, nếu được thì sẽ học tập luôn lời nói và cử chỉ của mạo hiểm giả, vì vậy tôi hy vọng không có tin đồn kỳ lạ gì bị truyền ra... Hmm, tôi nên làm gì đây?
+
+... Thực ra, nơi này khá kỳ lạ.
+
+Vì đây là khu dân cư ở nơi Tận cùng của Thế giới, nên có nhiều chủng tộc cùng chung sống cũng là điều dễ hiểu. Tuy nhiên, Loài người và Ma tộc vốn là những chủng tộc giao tranh với nhau, nhưng lại giống như đang cùng nhau tồn tại.
+
+Lẽ nào bởi vì nơi đây là vùng đất xa xôi hẻo lánh ư?
+
+Dù sao bọn họ cũng chưa đến mức không đội trời chung với nhau. Hơn nữa, người xưa có câu "Ngô - Việt chung một thuyền" mà.
+
+`Hai nước Ngô - Việt là hai cường quốc trong thòi Xuân Thu - Chiến Quốc.`
+
+Bên cạnh những cửa hàng khang trang, cũng có rất nhiều hàng quán ở ngoài trời. Xem xét đến số lượng công trình kiến trúc và tình trạng tài nguyên của căn cứ này sẽ hoàn toàn hiểu được. Dù sao đây cũng là phòng tuyến đầu tiên thách thức với vùng đất chưa có người đặt chân tới.
+
+Tuy nhiên...
+
+Vì sao ở nơi này chỉ toàn người có bề ngoài xuất chúng không vậy?
+
+"Này, Tomoe, Mio?"
+
+"Ừm, gì vậy thiếu chủ?"
+
+"Ngài có chuyện gì sao, thiếu chủ?"
+
+Hai người đang bước đi hai bên quay sang nhìn tôi. Thực ra, cả hai người này đều là mỹ nhân... Bởi vì hai con quái vật kia đã trở nên xinh đẹp nhờ vào khế ước, dường như thế giới này có tiêu chuẩn cơ bản về cái đẹp vô cùng cao.
+
+"Tại sao nơi này có nhiều mỹ nam mỹ nữ thế? Chẳng lẽ có một quy định vô lý như là chỉ những người đẹp mới được ở đây sao?"
+
+Quả thật vậy. 
+
+Bất kể già trẻ gái trai, từ Loài người cho tới Ma tộc...
+
+Ai ai cũng đều ngầu và xinh đẹp! Không thể nào!!
+
+Không phải tôi cố ý tự ngược bản thân đâu, nhưng khi được xếp đứng giữa Loài người và Orc, trông tôi còn giống với Orc hơn.
+
+... A, kỳ lạ quá... Mồ hôi đang chảy từ mắt của tôi kìa...
+
+Tuy nhiên, cả Tomoe và Mio đều có vẻ chẳng hề để ý đến chuyện đó.
+
+"Thật sao? Nhưng tôi không nghĩ mấy người này đẹp đến mức khiến người khác chú ý đâu."
+
+Tomoe, mắt cô bị sao vậy? Ngay lúc này, một người phụ nữ hình như thuộc tộc Elf vừa đi ngang qua cô, xinh đẹp đến mức chẳng khác nào một tác phẩm điêu khắc luôn đấy! Nếu làm mô hình dựa trên vẻ ngoài của người phụ nữ đó, kiểu gì cũng sẽ bán rất chạy cho xem!
+
+"Hả? Quanh đây làm gì có ai xinh đẹp đến nhường ấy đâu?"
+
+Mio, cô đang thật sự nghiêm túc tìm kiếm người đẹp đó à?
+
+Tôi đảo mắt nhìn xung quanh, chẳng phải mỹ nhân xuất hiện ở khắp nơi sao, toàn những người đẹp cả!
+
+"... Hai người nói thật đấy à?"
+
+Bọn họ gật đầu với tôi. Còn làm vẻ mặt khó tin nữa chứ.
+
+... Chẳng lẽ ở thế giới này, bề ngoài như cô gái vừa nãy chỉ là mức độ bình thường?
+
+... Chuyện, chuyện gì thế này, sao thế giới này lại đối xử tàn ác với tôi đến vậy?!
+
+Hửm? Chờ đã?
+
+Hình như tôi vừa nhận ra một sự thật vô cùng trọng yếu.
+
+... Bình tĩnh lại nào, tôi ơi.
+
+Cha mẹ của tôi xuất thân từ thế giới này.
+
+Thực tế, vẻ bề ngoài của hai người họ đều đẹp đẽ và đáng yêu, tuy rằng ở thế giới này hình như mới chỉ đạt mức trung bình.
+
+Ngoài ra, tôi còn có chị và em gái. Không cần dùng ánh mắt thiên vị đánh giá cũng có thể thấy rõ họ là một cặp chị em vô cùng xinh đẹp.
+
+V-vậy còn tôi?
+
+Cha mẹ là Loài người, tôi là con của họ, vậy tôi không phải là con người... mà là Loài người?
+
+Tuy thế, rốt cuộc tại sao chỉ mình tôi có ngoại hình chẳng khác nào đứa trẻ thay thế? Hay thực ra tôi là con của Người lùn hoặc tộc Troll?
+
+`Đứa trẻ thay thế (取り替え子) tiếng Anh là Changeling, nghĩa đầy đủ là đứa trẻ thay thế cho đứa trẻ đã bị bà tiên bắt đi.`
+
+`Tộc Troll:	Người khổng lồ độc ác trong thần thoại Bắc Âu.`
+
+Chẳng lẽ mẹ tôi đã... lăng nhăng?
+
+Hay là... tôi được bố mẹ nhặt dưới gầm cầu?
+
+... Không, những khả năng đó đều không thể. Ngay cả bà Nữ thần kia cũng đã thừa nhận mối quan hệ huyết thống của chúng tôi mà.
+
+"Thiếu chủ, vẻ mặt cậu sao thế?"
+
+"Ngài thấy khó chịu ở đâu à? Hay chúng ta hãy vào trong những tòa nhà kia nghỉ ngơi một chút nhé?"
+
+Tôi lại để hai người phải họ lo lắng rồi... Dừng lại, dừng lại. Không được nghĩ về chuyện này nữa.
+
+"Không có gì đâu. Thực ra..."
+
+Đúng vậy, việc hiện giờ cần làm là tìm hiểu về thế giới mà cái gì tôi cũng chẳng biết này.
+
+"Tôi muốn hai người đi điều tra giá cả của hàng hóa và sự đa dạng về sản phẩm của những quầy hàng rong. Sau đó nói cho tôi nghe ý kiến của hai người, như là giá cả có hợp lý hay không, người ta bày bán những thứ gì..."
+
+"Ưmm, nghe có vẻ phức tạp."
+
+"Tôi hiểu rồi."
+
+Đây là phản ứng thể hiện rõ tính cách của hai người.
+
+"Vậy trước tiên chúng ta cùng tới Hội mạo hiểm giả... Tên nó là thế phải không? Tomoe, cô xác nhận địa điểm giúp tôi được chứ?"
+
+"Như ý muốn của cậu."
+
+Dứt lời, Tomoe liền lên tiếng gọi một người đàn ông trung niên và hỏi đường. Hiện giờ, giao tiếp với Loài người thông qua Tomoe và Mio chính là lựa chọn an toàn nhất đối với tôi.
+
+Vì không học tốt ngôn ngữ chung, nên ngoại trừ Tomoe và Mio, tôi phải giao tiếp bằng chữ viết với những người khác. Tuy cứ nhỏ giọng thì thầm cùng Tomoe và Mio với biểu cảm khó hiểu, nhất định sẽ khiến người qua đường cảm thấy nghi ngờ, nhưng thế vẫn còn đỡ hơn việc phải oang oang cái miệng nói thứ tiếng mà mình chưa thành thạo.
+
+... Cứ quyết định làm vậy đi.
+
+Sau khi hỏi thăm người đàn ông, Tomoe quay trở lại và nói.
+
+"Thiếu chủ, rẽ phải ở đoạn đó, đi thẳng tới cuối con đường chính là Hội mạo hiểm giả."
+
+Có vẻ cô ấy đã giải quyết êm đẹp, như vậy là tốt nhất.
+
+Được rồi, đi thôi nào.
+
+<br /><br /><br /><br /><br />
+#### **◇◆ Nhật ký của Misumi Makoto - Lần đầu tiên đi tới thị trấn ◇◆**
+<br /><br /><br /><br /><br />
+
+Thế giới cũ của tôi.
+
+Giờ đã là nơi tôi không thể quay trở về.
+
+Tuy nhiên, tôi vẫn dựa vào thường thức của thế giới cũ để suy nghĩ đủ thứ chuyện mà tôi đã gặp phải tại thế giới mới này.
+
+Tôi hiểu điều đó là vô nghĩa. Những giá trị quan của một thế giới nơi tôi không thể trở lại đã không còn cần thiết với tôi nữa rồi.
+
+Chủng tộc Loài người là con người giống như tôi. Ai cũng đều là mỹ nam mỹ nữ, cảm giác như tôi đang xem một bộ phim điện ảnh toàn những diễn viên hạng nhất đóng, hoặc một đoạn video CG tuyệt đẹp áp dụng công nghệ mới nhất.
+
+Mỹ nữ tóc vàng mà tôi nhìn thấy bên ngoài khu dân cư có vẻ cũng chỉ thuộc loại bình thường ở đây.
+
+Rốt cuộc tôi đã hiểu được vì sao mình bị bà Nữ thần kia chê xấu xí.
+
+Có điều, những con người với vẻ ngoài đẹp đẽ ấy không hề tự hào vì ngoại hình của mình mà ai cũng phải vật lộn để sinh tồn. Trong mắt tôi, cảnh tượng đó quả thực khó mà tin được.
+
+Nhìn đám người có thể sẽ được những người tìm kiếm ngôi sao lập tức lựa chọn để đào tạo làm nghệ sĩ nếu bắt gặp trên đường phố, giờ đây đang ngồi ôm đầu khom gối với khuôn mặt thiếu sức sống trong các con hẻm nhỏ.
+
+Tôi có thể quen với cảnh tượng này sao?
+
+Mỗi người sẽ có định nghĩa khác nhau về cái đẹp, nhưng đối với tôi chuyện này quả thực vẫn rất khó tiếp nhận. Ở thế giới cũ của tôi, chỉ cần sinh ra với vẻ ngoài xuất chúng, nghĩa là họ đã có được ưu thế nhất định.
+
+Đúng thật là...
+
+Mọi thứ ở thế giới này đều quá khó tin với tôi.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+"Hả? À ừm, ngài muốn. . . đăng ký sao?"
+
+Ánh mắt cô gái tiếp tân của Hội rõ ràng đang muốn nói "Người này nghiêm túc đấy à?".
+
+Đúng như tôi nghĩ. Làm gì có tên lính mới nào lại muốn đăng ký tại Hội của khu dân cư này. Tôi hiểu rõ điều đó mà.
+
+"Đúng thế. Nhưng vị này chỉ muốn tham khảo cho con đường tương lai thôi. Hai người chúng tôi mới thực sự muốn gia nhập Hội."
+
+Mio nhanh chóng bổ sung.
+
+"Được rồi. Có điều, vị kia... bề ngoài của anh ta khá đáng ngờ..."
+
+Cô gái tiếp tân nhìn tôi chằm chằm với vẻ hồ nghi, biểu cảm của cô ấy như đang muốn nói tôi rất đáng ngờ...
+
+Cô ấy thực sự rất dễ thương. Tôi nghĩ nếu cô ấy làm người mẫu áo tắm thì có lẽ sẽ thường xuyên được xuất hiện trên tạp chí hàng tuần. Tuy nhiên, cũng bởi vậy mà câu nói vừa rồi của cô ấy có sức sát thương quá lớn với tôi!
+
+Có điều... dù sao trước mặt cô ấy cũng là một chàng trai đeo chiếc nhẫn màu trắng hồng trên tay trái, mặc chiếc áo choàng màu xám với kích cỡ quá khổ, và đeo một cái mặt nạ che mất nửa trên của khuôn mặt.
+
+... Đúng là rất đáng ngờ. Hơn nữa tôi còn chẳng nói năng gì suốt từ lúc bước vào đây đến giờ.
+
+"Vị này là người thừa kế của một thương hội, nhưng vì hồi nhỏ mắc bệnh nặng nên ngài ấy phát âm không được tốt. Hơn nữa, trong cuộc hành trình của mình, ngài ấy đã bị vướng vào một sự cố và trúng phải lời nguyền nghiêm trọng..."
+
+Vừa nghe thấy hai chữ "lời nguyền", cô gái tiếp tân liền nhìn tôi bằng đôi mắt như thể đang nhìn một đồ vật dơ bẩn nào đó. Dường như ánh mắt ấy có thể đâm xuyên qua người tôi với một lực công kích không hề nhỏ...
+
+Có lẽ cảm thấy không vui trước thái độ của cô gái tiếp tân dành cho tôi, vẻ mặt Mio trầm hẳn xuống.
+
+Bỗng có âm thanh lạch cạch vang lên, tôi thấy bàn tay đặt trên thanh Katana của Tomoe đang run rẩy.
+
+Gì chứ, cái thiết lập này không phải là do mấy người nghĩ ra à!!
+
+Tôi vội vàng nắm tay Tomoe và đưa mắt nhìn cô. Tomoe miễn cưỡng gật đầu và bỏ tay ra khỏi thanh Katana.
+
+"Đế phong ấn lời nguyền, ngài ấy mới bất đắc dĩ phải đeo mặt nạ và chiếc nhẫn này. Tuy nhiên, may mắn thay, chủ nhân chúng tôi rất giỏi sử dụng ma lực, vậy nên để giao tiếp với người khác.."
+
+Mio dùng mắt ra hiệu cho tôi.
+
+Tôi tạo ra bóng thoại giống như trong truyện tranh ở cách gương mặt của mình một chút và viết chữ [Xin chào] bằng ngôn ngữ chung.
+
+Cô gái tiếp tân liền tỏ vẻ ngạc nhiên, nhưng hình như đã chấp thuận trường hợp của tôi. Xem ra tôi đã giao tiếp bằng chữ viết thành công rồi. Chắc tới giờ cô ấy mới cảm thấy yên tâm hơn một chút về tôi.
+
+"Nếu vậy, chắc là không có vấn đề gì chứ? Xin hãy châm chước cho chúng tôi. Tuy tự tin vào năng lực của bản thân, nhưng vì trước giờ chúng tôi chỉ phục vụ cho chủ nhân nên chưa từng đăng ký tại Hội. Có điều, khi nghĩ đến mục đích sau này, tôi cảm thấy quả nhiên vẫn nên đăng ký."
+
+Tomoe cũng gật nhẹ đầu, tỏ ý tán thành lời nói của Mio.
+
+"Còn vấn đề gì khác không?"
+
+Giọng điệu của Mio tuy nhẹ nhàng nhưng lại vô cùng áp lực. Vì ban nãy để Tomoe hỏi đường nên lần này tôi nghĩ nên nhường vị trí giải thích lại cho Mio, nhưng sau này chuyện nên giao việc cho người nào quả thực khiến tôi thấy băn khoăn. Đành phải tùy vào tình huống vậy.
+
+"A, không! Không có vấn đề gì nữa. Như mọi người đã biết, đây là nơi chỉ tập trung những người có thực lực, vì vậy trước giờ chẳng có ai đăng ký được. À ừm... tôi đã thất lễ rồi."
+
+Chị gái à, thật lòng xin lỗi vì đã làm chị sợ hãi.
+
+"Thế nên, trước khi đăng ký xin hãy để tôi xác định cấp độ của mọi người. Cần một chút thời gian đê chuẩn bị, nên trong lúc đó tôi sẽ giải thích về Hội mạo hiểm giả cho các bạn."
+
+Rất vui lòng. Tôi truyền đạt ý kiến chấp nhận cho Mio.
+
+"Xin nhờ cô."
+
+"Vâng. Giống như mọi người đã hình dung, Hội của chúng tôi chính là nơi giới thiệu các loại nhiệm vụ cho các mạo hiểm giả. Nhiệm vụ được xếp loại từ cấp E đến SSS, ngoài ra, còn có nhiệm vụ đặc biệt, nhiệm vụ được chia theo hạng dựa trên độ khó. Mọi người có thể nhận được hạng của mạo hiểm giả và nhiệm vụ tương đương với hạng của mình."
+
+Hạng ư? Thì ra đó là cách sắp xếp nhiệm vụ phù hợp với thực lực sao?
+
+"Còn về hạng của mạo hiểm giả, bất cứ vị nào cũng đều bắt đầu từ hạng E. Hội sẽ tăng hạng tùy thuộc vào xác suất thành công của nhiệm vụ và hạng."
+
+"Ồ, cho dù ban đầu ở cấp độ cao cũng phải lựa chọn từ nhiệm vụ của hạng thấp nhất sao?"
+
+Mio, cô lấy đâu ra sự tự tin đó vậy? Ngoan ngoãn lắng nghe hộ tôi được chứ...?
+
+Cho dù thực lực cao thế nào đi chăng nữa, nhưng vì độ tín nhiệm đối với mạo hiểm giả là do Hội đánh giá, nên cũng chẳng còn cách nào khác.
+
+"Đ-đúng vậy. Dù là người có cấp độ cao, ban đầu vẫn phải thực hiện nhiệm vụ hạng E. Vì là nhiệm vụ đơn giản nên tôi nghĩ việc tăng hạng sẽ nhanh thôi."
+
+"Hừm, đúng là phiền toái."
+
+Tomoe, cả cô cũng thế sao...
+
+Khi tôi nhìn họ bằng ánh mắt trách cứ, cả hai đều cúi đầu.
+
+"Các hạng còn được chia thành từng cấp độ như dấu trừ, không có ký hiệu, dấu cộng. Ví dụ như các vị thực hiện được ba lần nhiệm vụ E+, hạng sẽ được tăng lên một bậc. E là năm lần, còn E- là mười lần."
+
+May mà cô gái ở quầy tiếp tân không để ý điều đó cho lắm và vẫn tiếp tục giải thích. Nhìn xung quanh, cũng có lác đác một vài mạo hiểm giả trông giống mấy kẻ lưu manh đầy thô lỗ, nên có lẽ cô ấy vốn đã không thèm để ý tới thái độ ngạo mạn của hai người kia rồi.
+
+Về cơ bản, chỉ cần để cho Tomoe và Mio nhận những nhiệm vụ + trong hạng là được.
+
+"Ngoài ra, cũng có trường hợp ngoại lệ được xếp vào hạng đặc biệt, chúng tôi phân loại thành hai trường hợp. Một là cho dù người đó ở hạng nào cũng đều có thể tiếp nhận nhiệm vụ, nhưng trong trường hợp rõ ràng cấp độ quá thấp, hoặc bị đánh giá thực lực không tương xứng, chúng tôi có quyền tước bỏ nhiệm vụ đã nhận. Đối với loại nhiệm vụ này, bình thường Hội chúng tôi sẽ không áp dụng các loại bảo hiểm hỗ trợ trong bất kỳ trường hợp nào. Xin hãy tự mình chịu toàn bộ trách nhiệm. Những nhiệm vụ như thế, cho dù yêu cầu được phân công cho các hạng, nhưng cũng thường xuyên xảy ra chuyện thất bại. Khi hoàn thành thuận lợi, nếu mạo hiểm giả chưa đạt được hạng S, Hội sẽ tăng lên một hạng vô điều kiện cho mạo hiểm giả đó để thể hiện lòng biết ơn. Còn đối với những mạo hiểm giả đã ngoài hạng S, điểm mức độ cống hiến cho Hội của họ cũng sẽ được cộng thêm nhiều."
+
+Hả? Cũng có loại yêu cầu "nguy cơ cao lợi ích lớn" như vậy sao? Tuy nhiên, đối với chúng tôi quả thực là một cơ hội tốt. Hãy để Tomoe và Mio tích cực thực hiện hạng đặc biệt này đi.
+
+"Còn một trường hợp khác là người ủy thác yêu cầu chỉ đích danh mạo hiểm giả hay một nhóm xác định. Trong trường hợp này, mạo hiểm giả có thể nhận được một khoản tiền thù lao khá lớn bằng việc đàm phán với người yêu cầu mà không cần quan tâm đến giá thị trường. Tuy nhiên, ngoại trừ những trường hợp ngoại lệ đó, về cơ bản hạng trong Hội cũng không có gì thay đổi."
+
+... Thì ra là vậy. Cả trường hợp chỉ đích danh cũng có.
+
+"Hơn nữa, sau khi vào Hội, sẽ được nhận viện trợ của tổ chức chi viện, có thể được giảm giá khi sử dụng những cơ sở vật chất chủ yếu."
+
+Ồ! Tuyệt thật đấy!
+
+Tôi đang nghi ngờ không biết Hội mạo hiểm giả có phải là tổ chức môi giới người lao động bất chính hay không, nhưng họ có vẻ khá đứng đắn và quy củ.
+
+"Tuy nhiên, về vị kia..."
+
+Hửm? Tôi à?
+
+"Với trường hợp của vị kia, vì ngài đã đăng ký ở Hội thương nhân, nên chúng tôi sẽ phải ưu tiên quy ước của bên đó trước. Trong trường hợp hạng mục chịu sự ảnh hưởng của hai bên, chúng tôi sẽ tuân theo quy ước của Hội thương nhân, vì vậy xin ngài hãy hiểu cho."
+
+Thì ra là thế. Ra là thương nhân cũng có Hội riêng sao. Trong đầu tôi chỉ nghĩ rằng Fantasy chính là kiếm và ma pháp, mà không hề nghĩ đến thương nhân. Tôi đã quên mất chi tiết người thừa kế thương hội trong thiết lập của mình.
+
+"Do cần phải đề phòng các vấn đề xảy ra như thương nhân lợi dụng đặc quyền của mạo hiểm giả để độc quyền sản phẩm, hay những xung đột không cần thiết nổ ra bảo vệ lập trường của thương nhân, vậy nên xin ngài hãy hiểu cho."
+
+Hmm, đã kết thúc màn giải thích rồi sao? Mặc dù cô ấy nói rằng không quen làm chuyện này nhưng vẫn nghiêm túc giải thích cho chúng tôi. Quả thực chúng tôi vô cùng biết ơn.
+
+Tôi gõ gõ ngón tay lên bàn để thu hút sự chú ý của cô ấy, rồi viết chữ ở trên khung lời thoại.
+
+[Tôi có hai câu hỏi. Tôi có thể biết được thông tin của mạo hiểm giả nổi tiếng tại nơi này ở đâu? Hơn nữa, trong trường hợp có yêu cầu chinh phạt Lizoo, vậy nhiệm vụ sẽ thuộc hạng nào?]
+
+Cô gái nhìn theo chữ viết ở trong khung lời thoại, có vẻ như cô ấy đã hiểu được nội dung. Thật tốt quá.
+
+Sau khi đọc xong câu hỏi, cô gái nhìn về phía tôi và bắt đầu giải thích.
+
+"Đầu tiên, về mạo hiểm giả hạng cao tại Hội này, nếu chỉ là hạng và cấp độ, chúng có dán ở phía bên kia. Chúng tôi liên tục cập nhật các thông tin mới nhất, vậy nên về cơ bản sẽ không có sai lầm hay chậm trễ. Còn về việc chinh phạt Lizoo, có nhiều trường hợp như là loại bỏ hang ổ, tiêu diệt bầy đàn, thu thập nguyên liệu, ngài muốn hỏi hạng trong trường hợp nào?"
+
+À ừm, chi tiết quá. Nhưng nếu là yêu cầu thì sẽ có nhiều trường hợp nhỉ? Hmm.
+
+[Tôi muốn biết về trường hợp thu thập nguyên liệu và tiêu diệt bầy đàn.]
+
+Tôi tiếp tục hỏi.
+
+"Nếu là nguyên liệu vậy thì cần phải lấy da, răng, mắt. Về cơ bản đây là nhiệm vụ hạng C+. Nếu chinh phạt bầy đàn thì sẽ là B."
+
+Tuy nhiên, cô gái lại nói.
+
+"Thu thập nguyên liệu rất vất vả, không hề tương xứng so với hạng, vì vậy không có nhiều người tiếp nhận loại nhiệm vụ này. Chinh phạt bầy đàn cũng vậy, Lizoo là loài ma vật phiền toái, nên chúng thường xuyên trở thành nhiệm vụ hạng đặc biệt."
+
+... Tôi không thể nói với cô ấy rằng chỉ cần một cú đá của tôi đã đủ kết liễu nó luôn rồi.
+
+Sau khi cảm ơn cô ấy xong, tôi nói với hai người rằng sẽ đi xem danh sách những mạo hiểm giả hạng cao, rồi rời khỏi bàn đăng ký.
+
+Nếu có cấp độ khoảng chừng 300 hay 400 thì sao cũng được, nhưng nếu không có, có lẽ tôi không nên để hai người họ đăng ký ở chỗ này.
+
+Trong khi nghĩ như vậy, tôi đi về nơi có bản danh sách.
+
+...
+
+Đứng đầu trong danh sách.
+
+Hạng SS, cấp 444.
+
+Mils Ace.
+
+Ace hẳn là họ. Tôi nghĩ là tên dòng họ đó cũng khá kỳ lạ giống như Misumi, nhưng Ace sao?
+
+Hơn nữa còn là một cấp độ không may mắn tẹo nào. Tôi đã nhìn thấy một cái Flag tử vong rồi đấy.
+
+Người ở vị trí thấp hơn ở hạng S, cấp 280. Một cái tên bình thường.
+
+Khi xét tới sự chênh lệch cấp độ giữa vị trí thứ nhất và thứ hai, có vẻ như người tên Ace khá mạnh. Nếu đã không có ai đạt tới 500, vậy Tomoe và Mio...
+
+Tôi quyết định rồi.
+
+Dẹp việc đăng ký đi. Kiếm đại lý do nào đó là được.
+
+Cứ nghĩ đến việc cần huy động cả đám người có cấp độ tương đương với kẻ đứng vị trí thứ hai ở nơi này mới đánh bại được đứa trẻ của Mio, vây chuyện Tomoe và Mio nắm giữ sức mạnh hơn thế gấp nhiều lần là điều không cần phải bàn cãi. Trong tình trạng mơ hồ như hiện nay, tôi không muốn thu hút quá nhiều sự chú ý của người khác.
+
+Trong khi tôi đang xem xét bản danh sách, ở phía sau bỗng trở nên ồn ào.
+
+Tò mò, tôi quay đầu lại nhìn, thứ phản chiếu trong đôi mắt của tôi là hình ảnh Tomoe và Mio đang cầm cuộn giấy trong tay.
+
+... Chẳng lẽ hai người họ không nhận ra tại sao tôi đi xem danh sách những người có hạng cao sao?
+
+Cái đó... trông giống giấy kiểm tra nhi?
+
+Này?
+
+Bình thường, người khởi nguồn ra mọi vấn đề phải là tôi, người bị ném vào thế giới khác chứ? Vậy mà, tại sao các người, kẻ vốn dĩ là cư dân của thế giới này, lại gây ra đủ loại rắc rối kéo chân tôi vậy hả?!
+
+Ngay lập tức, tôi quay trở lại chỗ của hai người.
+
+Tờ giấy chỉ to bằng kích cỡ miếng giấy gấp Origami mà hai người đang cầm đã biến thành màu đỏ thẫm, đồng thời hiện lên một loại hoa văn phức tạp gì đó.
+
+Đây là giấy phân biệt cấp độ... Không sai.
+
+Có lẽ màu sắc ban đầu của nó không phải là đỏ... mà nó biến thành màu đỏ mới là vấn đề.
+
+Ánh mắt của mọi người xung quanh làm tôi đau nhói. Đau lắm đấy.
+
+Do thiết lập nên tôi không thể nói lớn tiếng, vậy nên chỉ có thể cố ý nhìn chằm chằm vào Tomoe và Mio.
+
+Hai người có vẻ đã hiểu được lý do bị tôi lườm.
+
+"A, không biết vì sao ngay lúc tôi vừa cầm tờ giấy này, nó liền biến thành màu đỏ thẫm."
+
+A ha ha, Tomoe gượng cười.
+
+Mio đứng ở bên cạnh cũng gật đầu liên tục.
+
+Tới giờ cả hai mới biết tôi đang vô cùng tức giận. Mấy người đáng lẽ nên nhận ra điều đó từ vài phút trước đi!
+
+Một cô gái lạ mặt chẳng biết đứng đó tự lúc nào. Hơn nữa còn có tai mèo. Nơi này không ngờ cũng có cả thú nhân nữa. Ưm, Good job! Cô gái tai mèo!
+
+"À ừm,... Mặc dù giấy phân biệt này có thể đo được cho tới tận cấp độ 400..."
+
+Cô gái tai mèo trông vô cùng khẩn trương. Đột nhiên có hai người với thực lực có thể chiếm ba vị trí đầu xuất hiện ở trước mắt, đây cũng là chuyện rất bình thường.
+
+Có khả nấng cao là hai người này sẽ vượt qua Ace và trở thành người có cấp bậc cao nhất.
+
+Với tình hình này, nếu tôi nói không đăng ký, làm gì có ai chịu chấp nhận chứ.
+
+Hết cách rồi, tôi đành đâm lao phải theo lao và tiếp tục điều tra.
+
+"À, à ừm, hay là dùng cuộn giấy 625 này..."
+
+Tôi dùng tay ngăn lại chị gái tai mèo đang định lấy ra một cuộn giấy khác lại.
+
+[Thực lực của hai người này có thể bảo vệ tôi đi vào nơi hoang dã trong vòng một tuần mà không chịu thương tổn nào.]
+
+Ánh mắt như muốn nói "chỉ như vậy thì dư sức" của hai người làm cho tôi có chút tức giận!
+
+[Nếu nói về thực lực, bọn họ có thể đánh bại ma vật cỡ như Arche. Vì vậy hy vọng cô có thể chuẩn bị cuộn giấy cao cấp hơn nữa.]
+
+Đám người vây xem trở nên xôn xao.
+
+"Arche?!"
+
+"Đó chẳng phải là con quái vật nhện được mệnh danh là hóa thân của hắc ám sao?!"
+
+"Là thân thích của con nhện Tai Họa!"
+
+"Nói vậy mấy vị kia là cấp 900 à?!"
+
+"Này này, mấy chị gái đó là cao thủ ở nơi nào vậy?!"
+
+"Lỡ phải dùng đến cuộn giấy 1600, chẳng lẽ ngang hàng với cả Tinh linh à?!"
+
+"Đồ ngốc, đó chắc là do cuộn giấy bị lỗi thôi!"
+
+"Đúng vậy, trước đây khi Ace đăng ký chẳng phải cũng rất bất thường sao. Đột nhiên anh ta đạt đến cấp độ cao như vậy..."
+
+Tôi nghe thấy được đủ loại lời bàn luận. Thực lòng tôi muốn bịt tai lại lắm. Tinh linh là gì? Mạnh đến như vậy sao?
+
+"Th-thật sao? Trước đây chúng tôi chưa từng dùng giấy 625 trở lên bao giờ... Tôi thử đi tìm trong kho hàng xem!"
+
+Cô gái tai mèo vội vàng chạy tới nhà kho. Không lâu sau, cô nàng quay trở lại với cuộn giấy hình ống trong tay.
+
+"Thiếu chủ, từ nãy bên ngoài đã rất ồn ào đấy..."
+
+Việc đã đến nước này có nói cái gì cũng vô dụng! Giờ chỉ có thể nhắm mắt mà tiếp tục thôi!
+
+"À ừm... Xin mời thử."
+
+Ồ, cuộn giấy lớn thật. Là loại phải cầm bằng cả hai tay à?
+
+Hửm, cô ấy tháo ra một thứ trông giống như bộ phận kim loại được gắn ở ngay góc cuộn giấy.
+
+Tôi cảm thấy một lượng nhỏ ma lực tỏa ra xung quanh cuộn giấy.
+
+[Tomoe, cô làm trước đi.]
+
+Tôi ra chỉ thị bằng chữ viết.
+
+"Như ý muốn của cậu."
+
+Tomoe dùng hai tay để cầm cuộn giấy đang được đặt ở trên quầy.
+
+Theo sự thay đổi của cuộn giấy, tiếng huyên náo ở xung quanh ngày càng trở nên lớn hơn. Một phần ba đã biến thành màu đỏ. Nếu toàn bộ cuộn giấy phân biệt bị nhuộm đỏ, Tomoe sẽ ở cấp 1600. Đối với tình trạng cuộn giấy đang nhanh chóng chuyên sang màu đỏ, những người xung quanh ngạc nhiên cũng phải thôi... Khi cuộn giấy bị nhuộm đỏ khoảng 80%, việc đo đạc đã kết thúc.
+
+A, ma lực biến mất khỏi cuộn giấy rồi. Người khác chạm vào sẽ không sao chứ?
+
+Cô gái tai mèo đeo một cặp găng tay đặc biệt, rụt rè gắn lại bộ phận kim loại mà cô đã tháo ra ban nãy.
+
+Cô ấy nhìn chằm chằm vào bộ phận kim loại. Hmm, cấp độ sẽ được hiển thị thành con số ở trên đó sao? Lời giải thích này tôi nghĩ khá là hợp lý.
+
+Cô gái tai mèo ngẩng đầu lên và thở hắt ra. Sau khi ghi chép lại thứ gì đó, cô truyền ma lực vào miếng kim loại trông giống như tấm thẻ đã được chuẩn bị từ trước. Có vẻ như là đang khắc tên và cấp độ.
+
+Hình như việc khắc con dấu lên tấm kim loại đã xong. Cô ấy một lần nữa nắm cuộn giấy phân biệt, rồi...
+
+Cuộn giấy được bao bọc trong ngọn lửa và biến mất trong nháy mắt. Đây là để bảo vệ bí mật à?
+
+Hay là, cuộn giấy sau khi được sử dụng xong sẽ có nguy hiểm gì đó?
+
+"Như vậy việc đăng ký đã kết thúc... Đây là chứng nhận đăng ký Hội mạo hiểm giả của ngài Tomoe."
+
+"Ồ, khuôn mặt của tôi được in lên tấm thẻ bằng Mithril kìa. Cậu thấy thế nào, thiếu chủ?"
+
+`Mithril là một kim loại hư cấu xuất hiện trong các tác phẩm của JRR Tolkien. Nó được mô tả là giống như bạc nhưng mạnh hơn và nhẹ hơn thép.`
+
+Tôi gật đầu đáp lại Tomoe. Có lẽ còn chưa đến mức phải dùng tới khung lời thoại. Dù vậy, Mithril cũng xuất hiện một cách bình thường quá nhỉ. Thứ kim loại kỳ ảo này nhìn qua chẳng có gì đặc biệt, cũng không hề phát sáng lấp lánh.
+
+
+"Hạng và cấp độ của ngài Tomoe là..."
+
+Những người xung quanh nuốt nước bọt và nhìn chằm chằm vào chúng tôi, cấp độ đó rốt cuộc cũng được công khai.
+
+"... Hạng E, c-cấp độ... 1320. Hiện tại, là người có cấp độ cao nhất... trong tất cả mạo hiểm giả."
+
+Number One luôn sao?!
+
+"Ây dà, chuyện không đáng nhắc đến mà thôi. Nếu đã là đứng nhất, vậy tôi có thể hỏi cách người đứng sau bao xa được chứ?"
+
+Tomoe có vẻ đang vô cùng cao hứng. Cô định khiến mọi người chú ý tới mức nào nữa vậy hả!
+
+Tuy nhiên, tôi cũng rất có hứng thú. Rốt cuộc cấp độ của mạo hiểm giả đứng đầu là bao nhiêu?
+
+"Người đứng thứ hai là ngài 'Sát Long Nhân' Sophia Bulga. Hạng SSS.. Cấp 920."
+
+"Hô hô, Sát Long Nhân ư? Người đó đã săn được loại rồng nào vậy?"
+
+Nheo mắt có phần vui vẻ, Tomoe hỏi lại.
+
+Đúng rồi, cái tên này cũng là rồng mà.
+
+"Tôi nghe nói rằng nhóm của ngài Sophia đã chinh phạt được 'Lancer', chủng rồng cấp cao chiếm giữ ở Đế Quốc."
+
+"Lancer? Hô, hắn kiêu ngạo đến mức tự gọi mình là 'Ngự Kiếm' mà. Cái tên ngốc đó."
+
+Thật sự phải cảm tạ chiếc mặt nạ trên mặt mới được, vì nó mà tôi rất khó cử động cơ mặt.
+
+Dù vậy, hai cái tên gọi đó đúng là ngầu thật. Nếu con rồng đó vân còn sống, tôi cũng muốn thử gặp một lần xem sao.
+
+"Tiếp theo là đến lượt tôi phải không?"
+
+A, phải rồi. Vẫn còn Mio nữa.
+
+Không hiểu sao tôi có linh cảm rằng cô ấy chắc chắn cũng đạt được bốn chữ số cho mà xem.
+
+... Đang đo đạc.
+
+Xong!
+
+Vâng, 90% đỏ thẫm!!
+
+Bàn tay đưa tấm kim loại ra của cô gái tai mèo run rẩy.
+
+Nếu có hai người thừa khả năng giết rồng đột nhiên xuất hiện trước mặt tôi, chắc tôi cũng sẽ như vậy.
+
+Đến cả mồ hôi cũng chảy ròng ròng trên khuôn mặt. Cô gái đáng thương.
+
+"... Ngài Mio, hạng E, cấp... là, 1... 1500."
+
+Vâng. You-are-Number-One.
+
+Kể từ bây giờ tôi sẽ vô cùng được chú ý cho xem.
+
+Một thương nhân tân binh mang theo hai người hộ vệ với cấp độ bốn chữ số... E rằng tìm khắp cả thế giới này cũng chẳng có ai như vậy nữa.
+
+"Cái gì cơ?! Cấp độ của Mio là 1500, không lý nào ta lại là 1320! Này, cô... mau mang một cuộn giấy khác ra đây, ta muốn đo lại!"
+
+Tomoe lại cố chấp làm chuyện vô nghĩa gì vậy...
+
+_Bộp bộp._
+
+Tôi khẽ vỗ vai Tomoe và thử thuyết phục cô ấy.
+
+[Vì trong khoảng thời gian cô chìm vào giấc ngủ, Mio đã chiến đấu rất nhiều, nên kết quả này là đương nhiên. Tiếp theo đến phiên tôi.]
+
+Do lúc Tomoe còn đang ngủ ở trong ngọn núi đó, Mio vẫn còn đang trong tình trạng đói bụng và làm náo loạn cả thế giới. Vậy nên điểm kinh nghiệm đơn thuần của Mio cao hơn Tomoe cũng là điều dễ hiểu.
+
+... Thực ra nếu theo ý nghĩa chính xác, gọi nó là điểm kinh nghiệm cũng không hợp lý lắm, nhưng...
+
+Giao Tomoe - người vẫn chưa thôi càu nhàu cho Mio, tôi yêu cầu cô gái tai mèo, người vẫn đang chưa hết run rẩy đo cấp độ cho mình.
+
+[Làm phiền cô.]
+
+Tôi dùng bóng thoại để giao tiếp.
+
+Cô gái tai mèo rụt rè lấy ra cuộn giấy 900.
+
+Tôi không khỏi cười khổ.
+
+[Tôi dùng cái nhỏ nhất được rồi.]
+
+Tôi từ chối dùng giấy phân biệt có kích cỡ bằng hai bàn tay. Bởi vì nó hẳn là không cần thiết.
+
+Thứ được đưa ra là tờ giấy phân biệt tương tự thứ mà tôi đã nhận được từ Emma. Thật là hoài niệm. Tôi cầm nó bằng tay phải.
+
+Chờ đợi sự thay đổi trong một lúc... Tờ giấy này, không hề có hoa văn đặc biệt gì, làm thế nào nó có thể phân biệt được cấp độ thế?
+
+Nói sao nhỉ, sự trầm mặc của mọi người xung quanh như những chiếc gai nhọn, đâm vào lòng tôi không hề khách khí chút nào.
+
+Ồ, đã thay đổi màu sắc một chút rồi. Cuối cùng tôi đã tăng cấp độ rồi sao?
+
+"À, à ừm... hạng E, cấp 1"
+
+Cô gái tai mèo nói cho tôi biết kết quả bằng giọng nói thể hiện sự thất vọng rõ ràng.
+
+Phải rồi, phải rồi, là như vậy chứ gì. Tôi biết ngay mà.
+
+Được rồi, tôi biết thừa...
+
+Một thiếu niên cấp 1 dẫn theo hai bề tôi có cấp độ lên tới bốn chữ số. Ánh mắt của những người xung quanh đối với một nhóm người không thể nào tưởng tượng nổi là chúng tôi đây chắc hẳn đã bó tay hết cách rồi. Tên, cấp độ, và cả hạng đều là những thông tin công khai mà bất cứ ai cũng có thể nhìn thấy, sau này chuyện che giấu cấp độ của hai người sẽ khó khăn lắm đây.
+
+Tuy nhiên, so với cấp độ, hạng cao có vẻ sẽ nhanh nổi tiếng hơn, vì vậy nếu như hạng không tăng nhiều, tên của hai người sẽ không đột ngột bị truyền ra rộng rãi đâu... Chắc vậy.
+
+Tôi quả quyết từ chối việc điều tra trạng thái chi tiết hơn nữa. Bởi vì có trời mới biết được sẽ nhảy ra thêm một cái chỉ số lố bịch nào khác.
+
+Nhưng bản thân tôi cũng rất muốn biết các chỉ số của mình, vì vậy phải cố gắng tìm kiếm phương thức kiểm tra mới được.
+
+Như vậy, trong khi vừa đi xem những quầy hàng ngoài trời, chúng tôi vừa tìm kiếm quán trọ. Cô gái tai mèo đã chỉ cho tôi biết có vài quán trọ hợp tác với Hội.
+
+Những mạo hiểm giả khác ở trong Hội đều dạt sang hai bên như thể đang tránh né Tomoe và Mio, nên chúng tôi mới có thể nhàn nhã bước đi trên con đường rộng rãi hơn nhiều so với lúc mới đến đây và ra ngoài để tìm kiếm quán trọ nghỉ đêm nay.
+
+<br /><br /><br /><br /><br />
+# **Chapter 5**
+<br /><br /><br /><br /><br />
+
+`Kuzunoha Raidou là nhân vật chính trong series game Devil Summoner.`
+
+"Thương hội Kuzunoha đúng không ạ? Xin hỏi ngài có thẻ của Hội thương nhân không?"
+
+[Không, tôi đã làm mất nó trên đường đi. Chúng tôi sẽ xin phát lại thẻ ở thị trấn sau, nên chúng tôi muốn trọ lại với tư cách khách hàng bình thường... Không, với tư cách là mạo hiểm giả.]
+
+Tôi viết trong khung lời thoại và đưa ra tấm thẻ tấm thẻ mạo hiểm giả cấp 1 ở trước quầy tiếp tân của quán trọ.
+
+"... Ngài Raidou đúng không ạ? Tôi hiểu rồi."
+
+Cậu thiếu niên tại quầy vừa đáp vừa trả lại tấm thẻ.
+
+Nếu đưa tấm thẻ của Tomoe hay Mio, khả năng cao chúng tôi sẽ dính vào rắc rối không cần thiết, vì vậy, sau này khi bị yêu cầu khai báo thân phận, tôi sẽ đưa tấm thẻ của mình ra cho người khác thấy và xưng cái tên thương hội Kuzunoha mà bản thân đã ngẫu hứng nghĩ ra.
+
+Ha ha, tuy nhiên cũng không tệ chút nào. Tôi hiện tại chính là Raidou của thương hội Kuxunoha đấy.
+
+... Mặc dù tôi không có dáng vẻ thư sinh cũng như ống nghiệm của nhân vật chính trong game nào đó. Thực ra đó cũng chỉ là một cái tên mà thôi...
+
+Bởi vì hai người đồng hành của tôi là quái vật trong hình dạng con người, nên Summoner cũng coi như OK mà, đúng không? Còn về chủng tộc, là Long vương và... Yêu thú sao?
+
+`Summoner: Người triệu hồi.`
+
+"Ngài làm mất rồi ạ? Thật không may. Hội thương nhân ở nơi này chỉ là một nơi làm việc mà thôi, vậy nên chắc sẽ rất bất tiện với ngài."
+
+[Tôi đã phải vượt qua nơi nguy hiểm mới tới được đây, nên chỉ ở mức độ đánh mất thẻ đã là rất tốt rồi. Vốn dĩ, chúng tôi không có ý định đi tới nơi Tận cùng.]
+
+Hay nói đúng hơn, tôi không hề có ý định đi đến thế giới này!
+
+"... Thật đáng mừng khi ngài vẫn bình an vô sự. Ngài có thể đi tới được căn cứ này mà không hề có sự chuẩn bị gì đúng là kỳ tích đấy, thưa quý khách."
+
+[Đó là nhờ những người đồng hành của tôi rất ưu tú. Tôi muốn thuê hai phòng. Nơi này còn phòng trống không?]
+
+"Vâng, đương nhiên rồi. Tuy nhiên, chúng tôi chỉ còn phòng cao cấp nhất, như vậy có được không ạ?"
+
+Chậc, lại nữa sao. Nhưng những nhà trọ khác không còn phòng trống. Xem ra đã gần đến mùa du lịch, người người đổ về đây đông như trẩy hội.
+
+Không hiểu sao tôi lại có ấn tượng rằng một người chỉ cần vài đồng vàng là sẽ được ở lại ngay lập tức...
+
+Tôi chơi game quá nhiều sao?
+
+[Bao nhiêu tiền vậy?]
+
+"À vâng. Vì ngài dùng thẻ mạo hiểm giả để nghỉ lại nên phí chăm sóc xe ngựa sẽ khá cao, nhưng tiền nghỉ trọ sẽ rẻ hơn một chút so với sử dụng thẻ của thương nhân. Hơn nữa..."
+
+Cậu thiếu niên có vẻ như khó mở lời. Cậu ta là kiểu nhân vật em trai nhỏ trong một Otome game nào đó chắc?
+
+`Otome game là loại game hẹn hò dành cho phái nữ.`
+
+Biểu cảm ngượng ngùng đó quả là hợp với cậu ta một cách kỳ lạ.
+
+[Sao vậy?]
+
+"Về hàng hóa của ngài..."
+
+Tôi gật đầu thúc giục cậu ta tiếp tục.
+
+"Do ngài nghỉ lại với tư cách là mạo hiểm giả nên chúng tôi không thể bảo đảm an toàn cho hàng hóa của ngài. Thành thật xin lỗi, nếu trong trường hợp bị mất trộm, chúng tôi sẽ không chịu bất cứ trách nhiệm nào."
+
+Đúng là một vấn đề khó nói.
+
+Dù sao, làm gì có mạo hiểm giả nào lại mang theo một xe chất đầy hàng hóa và nghỉ lại đâu.
+
+Ngược lại, trong trường hợp của thương nhân, hàng hóa thường được chứa rất nhiều trên xe ngựa. Yêu cầu trách nhiệm đối với nhà trọ cũng là điều đương nhiên.
+
+Hơn nữa trị an của nơi này chắc chắn không thể tốt được. Tôi chưa từng nghe thấy trại tị nạn nào mà lại an toàn cả.
+
+[Không sao. Cho dù hàng hóa của tôi có vấn đề gì cũng không bắt mấy người phải chịu trách nhiệm đâu.]
+
+"Như vậy, ba vị khách cộng thêm phí trông nom xe ngựa, một đêm là sáu đồng vàng."
+Đắt quááá!!
+
+Theo mức giá chung của các quán trọ trên thị trường, cao lắm cũng chỉ dùng đồng bạc mà thôi, chẳng lẽ kiến thức kinh tế của Người lùn đã cổ lỗ sĩ lắm rồi sao?
+
+Tiền thông hành của thế giới này, về cơ bản có đồng vàng, bạc và đồng. Tiếp theo là đồng ma ngân, được làm từ kim loại có chứa ma lực tên là bạc Moria. Hơn nữa, còn một loại tiền tệ có giá trị cao hơn cả vàng - đồng tiền hoàng kim được làm từ kim loại có tên là "chân kim". Tổng cộng có năm loại đồng tiền.
+
+Ban đầu tôi cứ nghĩ rằng bạc Moria là tên gọi khác của Mithril, nhưng khi thử hỏi Người lùn, bọn họ dứt khoát bảo rằng "Hai kim loại đó hoàn toàn khác nhau". Quả thực, nếu là cùng một loại, thẻ mạo hiểm giả có thể dùng để làm đồng ma ngân.
+
+Nhân tiện, nếu muốn so sánh với Nhật Bản thời hiện đại, theo tôi có thể giải thích đơn giản như sau:
+
+Đồng tiền bằng đồng... Một nghìn yên.
+
+Đồng bạc... Mười nghìn yên.
+
+Đồng vàng... Một trăm nghìn yên.
+
+Đồng ma ngân là mười triệu yên. Đồng hoàng kim là một loại tác phẩm nghệ thuật không thể đúc, giống như loại đồng Koban cổ siêu cao cấp của Nhật. Nghe nói có thể xây được cả một tòa thành.
+
+`Đồng Koban là những đồng tiền hình bầu dục bằng vàng được lưu thông tại Nhật từ thời kỳ Edo.`
+
+Tôi nghĩ đồng hoàng kim được dùng làm quà tặng giống những loại tiền tệ như đồng Koban trở lên trong thời Edo, như Trung Phán năm lạng và Đại Phán mười lạng.
+
+`Đại Phán (tên gọi đầy đủ là Đại Phán Kim) là loại tiền vàng hình bầu dục thời cổ của Nhật. Câu này có thể hiếu rằng, Đại Phán là loại đồng vàng Koban cỡ lớn nặng 1 ki-lô-gam, Trung Phán là loại đồng vàng Koban cỡ trung nặng 500 gam.`
+
+Lương tháng bình thường của một người làm công ăn lương vào khoảng hai, ba đồng bạc. Tôi cảm thấy dường như tiền tệ ở đây bị lạm phát quá mức ấy.
+
+Haa, một người ở một đêm tại nơi này tốn đến tận hai trăm nghìn yên sao?
+
+Tuy là vùng biên giới nguy cơ cao lợi ích lớn, nhưng đây không phải là chém giá quá mức à? Thậm chí còn không đảm bảo an toàn cho xe hàng nữa!
+
+Làm thế nào bây giờ? Hay tôi cứ giải quyết như một người thương nhân hào phóng đi?
+
+Thế nhưng, đây là số tiền mà tôi đã nhận được từ tộc Người lùn. Họ cũng nói rằng chúng là thứ không còn cần thiết đối với bọn họ, tôi có thể sử dụng tùy ý, nhưng mà...
+
+Nếu chúng tôi bán được hàng hóa, chắc sẽ kiếm được ít tiền...
+
+"Vậy, chúng tôi sẽ tạm thời trọ lại đây mười ngày."
+
+Từ từ liếc mắt sang bên cạnh, Tomoe nhìn thấy ánh mắt của tôi, liền lấy ra đồng vàng từ túi đựng tiền và đặt lên quầy.
+
+Một đồng.
+
+Hai đồng.
+
+Ba đồng.
+
+Tôi có thể nghe thấy nhạc nền của bài Hi-fu-mi văng vẳng bên tai.
+
+`Hi~fu~mi~(ひ一ふーみー) là bài hát học đếm dành cho thiếu nhi.`
+
+Tomoe, cô không thấy tiếc tiền hay sao vậy... A, đương nhiên là không rồi.
+
+Dù thế, toàn bộ tài sản của chúng ta chỉ có một trăm đồng thôi đấy?
+
+Chẳng lẽ cô thực sự định dùng hết sáu mươi đồng trong số đó sao?
+
+Ở lại mười ngày mất sáu triệu yên, ha ha. Từ khi nào tôi lại đại gia vậy nhỉ?
+
+Sáu triệu để nghỉ lại căn nhà gỗ này.
+
+"Tôi đã nhận đủ. Như vậy, xin hãy để tôi dẫn mọi người tới phòng."
+
+"A, còn chuyện này nữa..."
+
+Tomoe lên tiếng gọi cậu bé Shota lễ tân đang vui vẻ ra mặt dừng bước. Tên ngốc này, lại đang định nói gì thê?
+
+`Shota là thuật ngữ trong manga, anime chỉ những bé trai trước tuổi dậy thì hoặc những chàng trai trưởng thành nhưng có ngoại hình trông như thiếu niên.`
+
+"Vâng... Hiii!"
+
+"Thiếu chủ là người tốt bụng, nhưng tôi lại rất dễ nổi nóng, vậy nên tôi thường bị quở trách."
+
+Tomoe thản nhiên lấy từ ngực ra tấm thẻ có ghi cấp độ mà có thể nói là vô cùng điên rồ của mình cho cậu ta thấy, vừa tiếp tục nói. Này, đó là uy hiếp đấy.
+
+"Nãy giờ, chúng tôi vẫn đang tìm kiếm quán trọ, nhưng chỗ nào cũng đã hết phòng... nên có thể nghỉ tại nơi này đúng là rất tốt, nhưng giá cả liệu có hợp lý không vậy?"
+
+"T-tất nhiên... B-bởi vì đây là trung tâm thị trấn, hơn nữa, chỗ chúng tôi chính là nhà trọ tốt nhất nơi đây."
+
+Thiểu niên sợ hãi đáp lại. Ồ, cậu ta có chút đáng ngờ.
+
+"Thế thì tốt rồi. Bởi vì nhà trọ lúc trước đã báo rằng căn phòng tốt nhất có giá một đồng vàng một đêm cho ba người, nên cái giá này khiến tôi rất nghi ngờ. Nếu cậu dám nói láo, cẩn thận tôi vô tình thổi bay cả nhà trọ đấy. Ha ha ha."
+
+Tomoe nở nụ cười hòa nhã, mặc dù tôi biết trong lòng cô ấy không cười.
+
+Tôi cứ tưởng Tomoe chẳng thèm quan tâm đến mọi thứ xung quanh, không ngờ cái người này cũng có để ý.
+
+Làm thế nào cô ấy biết được giá cả của căn phòng tốt nhất ở nhà trọ mà chúng tôi đã ghé qua lúc trước vậy?
+
+Liếc sang bên cạnh, tôi thấy Mio cũng đang thoáng cười. Một nụ cười mang lại cảm giác hết sức khủng khiếp.
+
+"Tôi sẽ xác nhận lần cuối cùng. Có đúng một đêm sáu đồng bạc không?"
+
+"Ư... Cái đó thì, à ừm.. ."
+
+Quả nhiên chúng tôi đã bị chém giá à? Một thiếu niên sáng sủa trông như đến cả côn trùng cũng không nỡ giết, không ngờ lại là một thằng nhóc bất lương. Có vẻ như ở thế giới này, không thể dựa vào ấn tượng bên ngoài để phán đoán tính cách được. Khó quá...
+
+A, nhưng lúc nhìn thấy mấy cô gái xinh đẹp, chẳng phải tôi cũng nghệt mặt ra đấy sao... Đâu thể trách tôi được? Tôi chỉ là một học sinh cấp ba mới lớn thôi mà?
+
+À phải rồi, thế giới này có trường học không? Tôi thấy ở đây là không có rồi đấy.
+
+"Là, là hai đồng vàng! Tôi đã nhầm, rất xin lỗi mọi người!"
+
+Thiếu niên làm động tác cúi rạp người, tay chạm đất và xin lỗi. Dù vậy, cậu ta vẫn tính tiền trọ của chúng tôi là hơn sáu trăm ngàn yên cho mỗi người một đêm sao?
+
+Nếu là khách sạn lộng lẫy xa hoa như cung điện thì tôi còn chấp nhận được, nhưng nơi đây ngay cả mái nhà cũng là thứ hiếm có, quả thực là quá quắt lắm rồi.
+
+"Hô hô, hình như cậu lại nhầm lẫn nữa rồi đấy... A."
+
+Rầm!
+
+Tomoe (giả vờ) tức giận và giậm chân xuống nền nhà.
+
+Nhìn cái lỗ ở trên sàn, cậu thiếu niên mặt cắt không còn giọt máu, đứng chết trân tại chỗ.
+
+"Xin lỗi, xin lỗi. Có vẻ như nền nhà đã cũ rồi."
+
+Tất nhiên làm gì có chuyện đấy. Chỉ cần nhìn vào sắc mặt của thiếu niên cũng đủ biết.
+
+"Tomoe, cô hãy cẩn thận một chút được chứ. Đúng rồi, cậu bạn nhỏ, số tiền còn lại cậu có thể trả lại khi chúng tôi rời đi, vì vậy cho tới lúc đó, xin cậu hãy chịu trách nhiệm và bảo quản chúng cẩn thận nhé."
+
+Mio cũng cay độc chẳng kém. Lần này cậu ta nhất định phải chịu trách nhiệm bảo quản số tiền mà mình đã lừa gạt được trong suốt mười ngày.
+
+Nếu như bị trộm mất... có lẽ sẽ là trải nghiệm còn kinh hoàng hơn cả hiện tại nữa.
+
+"Làm sao có thể như vậy?! T-tôi sẽ trả lại ngay lập tức, vậy nên...!"
+
+"Không không, bởi vì phiền toái lắm. Chủ nhân cũng không để ý tới số tiền vặt vãnh đấy đâu. Tôi rất mong chờ được dùng bữa đấy. Hy vọng, bữa-ăn-sẽ-tương-xứng-với-giá-tiền."
+
+Mio mỉm cười khúc khích và thúc giục cậu bé, không hề có ý định nhận lại, cũng không cho phép cậu ta từ chối. Nói xong, cô ấy liền bước về phía trước.
+
+Giờ tôi mới để ý, rõ ràng bọn họ rất khôn khéo và có thể ứng xử khôn ngoan như vậy, thế nhưng tại sao các cô lại gây rối loạn ở Hội thế?
+
+Tôi không hiểu. Dù vậy tôi vẫn có thể cảm nhận được ác ý ở đâu đó.
+
+Thiếu niên đứng trước cửa phòng, hướng mặt về phía tôi giống như đang cầu cứu.
+
+... Cậu là Chihuahua đấy à?!
+
+Nói cho mà biết, tôi thích mèo chứ không thích chó đâu!
+
+Cho dù tôi là người thích chó, chẳng lẽ tôi lại giúp đỡ con Chihuahua xấu xa đã cố gắng lừa gạt mình à?
+
+Dù sao tôi cũng không định biến suy nghĩ ở trong đầu của mình thành lời nói, nên tôi rời mắt khỏi cậu thiếu niên và bước vào phòng.
+
+"Ái chà, cứ lo mọi chuyện sẽ rối tung lên, nhưng cuối cùng chúng ta có thể thở phào một hơi rồi."
+
+"Chắc từ giờ thằng nhóc kia sẽ đứng ngồi không yên cho xem. Định lừa gạt một số tiền lớn, nhưng lần này lại phải tự mình bảo vệ nó, ha ha."
+
+"Tomoe, Mio, tính cách của hai người đúng là tệ hại hết chỗ nói. Mà thôi, ban đầu vốn là lỗi của thiếu niên kia, vậy nên tôi cũng chẳng có gì để nói."
+
+Bởi đã yên vị ở trong phòng, vậy nên tôi nói như vậy chắc là không sao.
+
+Đương nhiên, tôi cũng không mong đợi gì về khả năng cách âm của căn phòng này, nhưng nếu nói ở mức độ vừa phải, cuộc trao đổi chắc sẽ không bị truyền ra ngoài.
+
+"Giá cả có vẻ cao hơn khá nhiều so với giá thị trường mà chúng tôi từng nghe."
+
+"Bởi đây là vùng biên giới mà. Quyền quyết định thuộc về phía cung cấp dịch vụ... Theo mức độ nào đó, cũng không còn cách nào khác."
+
+"Hơn nữa ở đây người ta còn kiếm được tài nguyên quý giá, nên thu nhập hoàn toàn khác so với bên ngoài. Đúng là phiền toái."
+
+"Đúng vậy, giá cả vật chất ở nơi này rất kỳ lạ. Nước còn đắt hơn dao. Mà nanh và móng vuốt của quái vật còn có giá cao hơn cả nước."
+
+"Chúng ăn ngon không?"
+
+"Không, trừ nước ra chẳng có thứ gì cho được vào miệng cả. Mio, cô bỏ suy nghĩ cái gì cũng ăn được đi."
+
+Dù sao cũng là "cựu" nhện tham ăn mà. Hết cách rồi.
+
+"Những thứ chỉ có thể kiếm được ở nơi này được mua bán với giá cao hơn giá thị trường nhiều. Tiếp theo là đồ tạp hóa hàng ngày rất khó kiếm, và rẻ nhất lại là vũ khí áo giáp và đồ bảo vệ bình thường. Cũng thật là trái khoáy nhỉ?"
+
+Vật phẩm đặc thù và những vật được dùng làm nguyên liệu có giá cao thì tôi còn hiểu, nhưng chẳng hiểu sao các thứ như vũ khí và đồ bảo vệ lại còn rẻ hơn cả thực phẩm.
+
+Sau khi tôi thử vắt hết óc ra để suy nghĩ lý do vì sao chúng lại rẻ... tôi nhận ra rằng có lẽ là bởi vì tốc độ tiêu hao của những vật phẩm đó quá nhanh, chu kỳ mua thay thế cũng tăng theo. Nói cách khác, vũ khí bình thường sẽ nhanh chóng bị hư hỏng, nên càng phải cấp bách thay đổi món mới.
+
+Thế nhưng, vẫn có một điều khiến tôi lưu tâm.
+
+Cho dù là vũ khí và áo giáp thông thường, cũng cần thời gian để gia công và cả phí vật liệu. Thế mà chúng lại rẻ như vậy, còn loại hàng xa xỉ và thực phẩm lại khá đắt đỏ. Tôi đánh hơi được mùi đáng nghi ở đâu đây.
+
+... Khó chịu thật đấy. Đúng là ở thế giới nào cũng có quyền lực và âm mưu. Các thương nhân hoạt động ở nơi nguy hiểm này chính vì họ mong đợi có thể kiếm được thêm nhiều lợi nhuận. Xem ra có âm mưu gì mờ ám ở đây.
+
+"Phải rồi, hình như có cả Hội thương nhân nữa. Chúng ta tự tiện bán hàng hóa sẽ không sao chứ?"
+
+"Hmm, quả thực nơi làm việc của Hội thương nhân có tại nơi này."
+
+"Nếu như không được, họ hẳn sẽ tới ngăn cản chúng ta chứ?"
+
+Vấn đề không phải là như vậy đâu, Mio. Với tình hình hiện giờ, chúng tôi không thể thu hút quá nhiều sự chú ý.
+
+"Nếu như vậy, chẳng phải chuyện 'đã đánh mất' của thiếu chủ cũng có vấn đề sao? Là người thừa kế của thương hội mà đến cả thường thức của Hội thương nhân cũng không biết, vậy thì ai mà tin được lời nói của thiếu chủ chứ."
+
+Tomoe đã nói thay cho điều mà tôi muốn nói. Hôm nay cô ấy lại thông minh đột xuất, khiến tôi khá bất ngờ.
+
+"Mà, đúng là vậy. Mio, thật xin lỗi, nhưng cô có thể tới nơi làm việc đó, nói một câu thỏa đáng như là muốn gia nhập vào Hội thương nhân và nghiên cứu về quy định của họ cho tôi được chứ?"
+
+"Hả? Ngay bây giờ sao, thiếu chủ?"
+
+"Đúng vậy. Nếu đợi đến ngày mai, tin đồn về hai người có lẽ đã lan ra khắp cả thị trấn rồi. Hành động trong ngày hôm nay là thuận tiện nhất. Nào, đi đi."
+
+"Ôi... Tôi hiểu rồi. Tôi đi đây."
+
+Tuy không quá tự nguyện, nhưng Mio đã đồng ý đi tới Hội thương nhân.
+
+"Không tồi đâu. Có thể sử dụng được bề tôi, quả thực đã trở nên giống chủ nhân rồi đấy. Vậy mới là lão gia chứ."
+
+"Ai là lão gia hả! Nếu mấy người không làm chuyện gây chú ý đó, tôi cũng chẳng cần phải hành động lén lút như vậy."
+
+"Nhưng mà đến nghỉ ở quán trọ, rồi điều tra, không phải là thú vui của Mito Koumon sao?"
+
+Tomoe có vẻ không phục. Xin cô đừng quá cố chấp với ngài Koumon như thế nữa đi.
+
+"Không không, ở nơi này chắc gì đã có đại quan nào xấu xa."
+
+"Chắc chắn là có."
+
+"Làm sao cô khẳng định thể?!"
+
+Trong cuộc sống làm gì có lắm chuyện hướng thiện trừ gian diệt bạo thế?!
+
+"Bởi vì giá cả ở đây quá bất thường. Chắc chắc phải có điều gì đó khuất tất."
+
+Sắc bén lắm. Khi vào chế độ phim lịch sử là phần ngốc nghếch của cô ấy biến mất luôn sao?
+
+"Tomoe, xem ra cô cũng ghê gớm phết."
+
+"Chắc cậu cũng đã nhận ra rồi, thiếu chủ. Ở đây có những kẻ đang kiếm những đồng tiền dơ bẩn theo cách bất chính đấy."
+
+Cô đừng nói về chuyện đó với giọng vui vẻ như vậy chứ.
+
+"Nếu Mio nắm được điều gì đó, chúng ta sẽ dễ dàng hành động hơn nhiều."
+
+"Khó lắm. Bởi vì con nhện đó có chịu chú ý tới cái gì đâu... Có khi còn mang theo cả mấy kẻ bám đuôi về nữa đấy?"
+
+Vậy cô vui mừng về cái gì thế hả?
+
+Thôi được rồi, hàng hóa của chúng tôi chủ yếu là thực phẩm. Nếu như vậy, quả thực rất dễ thu hút sự chú ý.
+
+A... Không được rồi, ngay từ đầu đã hoàn toàn là triển khai diễn biến theo Mito Koumon rồi.
+
+"... Nói thực lòng, tôi nghĩ Tomoe phù hợp làm đại quan xấu xa hay Echigoya hơn đấy."
+
+`Echigoya là một nhân vật thương nhân đóng vai trò phản diện đầy tham lam, làm bất cứ điều gì để kiếm tiền trong bộ phim truyền hình Mito Koumon.`
+
+Thêm nụ cười "Khà khà khà" thì lại hợp hơn nữa.
+
+Bên cạnh đó, trong gia đình của Mito Koumon, không hề có nhân vật nào hợp với Tomoe.
+
+Ngoại trừ hai nhân vật mà tôi vừa nói ở trên.
+
+"Cho dù có nhìn thế nào hay là từ đâu, tôi rõ ràng là Kaku!"
+
+"Kaku vốn chiến đấu bằng tay không mà!"
+
+"Vậy tôi chính là Kaku chuyên dùng kiếm!"
+
+"Thế mà cũng được nữa à?!"
+
+"Nói tóm lại, vai trò của tôi chắc chắn là Kaku rồi, vậy nên xin hãy giúp đỡ nhiều hơn!"
+
+Cô đang ép buộc tôi chấp nhận đấy à!
+
+"Cô, thật là... rồi rồi, Kaku."
+
+`Ở đây được viết bằng chữ 核 (Hạch = hạt nhân), thay vì chữ 格 (Cách), cả hai từ đều phát âm là Kaku.`
+
+Người như cô làm Hạch được rồi, đồ trái bom.
+
+"Hửm? Tôi cảm giác được chữ 'Kaku' ngài dùng không đúng!"
+
+Cô có giác quan thứ sáu à?!
+
+"... Tôi đang nghi ngờ, liệu cô đã có ý xấu và cố tình gây ra rối loạn ở Hội đúng không?"
+
+"À..."
+
+À? Cái người này, cô thật sự có ý định kiếm rắc rối y như trong phim lịch sử à!
+
+"Ha ha ha ha... ha."
+
+Cô đúng là Hạch mà.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Tiếng gõ cửa "cốc cốc" vang lên.
+
+Hửm, ai đó?
+
+Tôi dùng mắt ra hiệu cho Tomọe.
+
+"Ai đó?"
+
+"Mio đây. Tôi mở cửa được chứ?"
+
+"Ừ, vào đi."
+
+Mio đã trở về rồi sao?
+
+Tôi mở rộng Giới Tìm Kiếm quét xung quanh. Có sáu người đang bao vây quán trọ. Động tác cơ thể có vẻ linh hoạt, không hề giống dân nghiệp dư.
+
+... Không thể nào, cô ấy thật sự mang cả những kẻ bám đuôi về kìa.
+
+"A, thiếu chủ. Có chuyện gì thế, sao ngài đột nhiên lại nhìn tôi như vậy?" Mio đỏ mặt cất tiếng hỏi.
+
+......
+
+"Không, không có gì." Tôi khó chịu trả lời.
+
+Có vẻ Tomoe cũng nhận ra sự tồn tại của mấy cái đuôi.
+
+Bọn chúng chưa tiến vào bên trong quán trọ. Hàng hóa tạm thời vẫn còn an toàn.
+
+Bởi cậu thiếu niên ở quầy tiếp tân đã bị chúng tôi hăm dọa, nếu không thì thông tin về chúng tôi đã bị tiết lộ rồi. Tuy nhiên, với bộ dạng của cậu ta, có vẻ rất dễ bị dụ dỗ bằng tiền...
+
+"Tôi đã hỏi chuyện ở Hội thương nhân."
+
+"Ừm, và?"
+
+"Buôn bán mà không có chứng nhận của Hội là vi phạm quy định. Thị trấn gần nhất có thể cấp và phát hành lại thẻ có tên là Ziege."
+
+"Khoảng cách?"
+
+"Từ đây phải đi qua ba thị trấn nữa. Bọn họ nói mất khoảng một tháng."
+
+Thị trấn sao? Chúng tôi phải đi qua ba nơi như thế này nữa mới tới được nơi cần đến.
+
+Xa quá. Và tệ hơn nữa, chúng tôi sẽ không có thu nhập cho đến lúc đó. Cho dù để hai người thực hiện yêu cầu của Hội mạo hiểm giả thì thù lao cũng chỉ ở mức hạng E.
+
+"Có cách nào để chúng ta bán được hàng hóa không?"
+
+"Nếu sử dụng sở giao dịch hình như sẽ không có vấn đề gì."
+
+"Sở giao dịch?"
+
+Có một nơi như vậy sao?
+
+"Nó thuộc về Hội thương nhân, là tồn tại giống như một nơi môi giới... Mà môi giới là gì vậy?"
+
+Nếu cô không biết, sao không hỏi Hội thương nhân luôn đi, quay về hỏi tôi làm gì.
+
+"Có nghĩa là chúng ta có thể bán cho các thương nhân giống chúng ta. Nhưng mà, cái đó..."
+
+Xem ra chúng tôi sẽ có thể tham khảo được giá trị của hàng hóa.
+
+Cứ nghĩ đến giá cả bất thường của hàng hóa tại khu vực này, e rằng tôi sẽ trở thành thương nhân bóc lột mạo hiểm giả mất. Có lẽ chuyện này sẽ giúp ích được rất nhiều, nên tuy không thú vị cho lắm, nhưng... tôi đã cả nghĩ quá rồi sao.
+
+"Trữ hàng sẽ làm hàng hóa nhanh hỏng đúng là sự thật. Được rồi, ngày mai chúng ta sẽ bán hết toàn bộ tại sở giao dịch."
+
+Có lẽ tôi sẽ có được một khoản thu nhập kha khá.
+
+Như vậy, cuối cùng đã kết thúc một ngày. Nhưng chúng tôi cũng không thể thư thả quá mức. Dù sao vẫn còn rất nhiều chuyện cần phải làm.
+
+Ngày hôm nay tôi sẽ nhanh chóng đi ngủ mà bỏ qua việc đi vào Á Không.
+
+"Phải rồi. Nhớ chú ý động thái của mấy kẻ bám đuôi nữa."
+
+"Kẻ bám đuôi?"
+
+"Cô bị theo sau đấy."
+
+"Tôi á?"
+
+Mio vốn là kiểu người sẽ không hề né tránh. Cô ấy mang đến cảm giác _"Để tôi nhận lấy và hấp thụ hết toàn bộ đi!"_.
+
+"Để tôi đi giải quyết bọn họ!"
+
+Mìo bước về phía cửa sổ.
+
+"Thôi được rồi, cứ để chúng vùng vẫy một chút."
+
+"Nhưng mà?!"
+
+"Được rồi."
+
+"Ư..."
+
+"Sắp tới giờ ăn rồi. Hãy thay đổi tâm trạng và tận hưởng đi."
+
+Tôi nói như vậy với Mio. Cô nàng có phản ứng với từ "dùng bữa" à, mà sao xoay người quay lại ngay lập tức.
+
+"Đúng rồi, Tomoe."
+
+"Vâng, thiếu chủ."
+
+"Tạm thời cô hãy chờ đợi ở trong xe ngựa đi. Đêm nay xin nhờ cô trông coi hàng hóa. Tôi bắt đầu nhìn thấy có một vài kẻ đang hành động giống như đang dò xét xe ngựa."
+
+"Cậu, cậu vừa nói gì cơ?!
+
+"Chẳng phải cô muốn làm Kaku sao? Những việc như vậy, là trách nhiệm của Kaku đấy."
+
+"Còn, còn bữa tối của tôi..."
+
+"Không-có."
+
+"Cậu, cậu là ma quỷ sao, thiếu chủ?!"
+
+"Mặc dù với tư cách là một thành viên của thương hội thì đây là chuyện đương nhiên, nhưng tạm thời tôi cũng khuyên cô trước... Đừng có ra tay với hàng hóa đấy?"
+
+"Á-ác ma, ở đây có ác ma!"
+
+"Nguyên cả ngày hôm nay, cô có biết tôi đã mệt mỏi đến thế nào vì cô không! Đây là mệnh lệnh!"
+
+Đôi khi tôi cũng cần nghiêm khắc một chút. Dù sau lưng Tomoe gọi tôi là quỷ, ác ma hay gì cũng được, tùy cô ấy. Mua ha ha ha.
+
+<br /><br /><br /><br /><br />
+#### **◇◆ Shin ◇◆**
+<br /><br /><br /><br /><br />
+
+Đúng thật là... Thiếu chủ không thể dịu dàng hơn một chút được sao?
+
+Ngay cả trong các đời Koumon, cũng chỉ có các ông lão tâm địa ác độc mới làm cách đó. Nếu được hỏi thích bên nào hơn, ngài Koumon thông minh sáng suốt, hiểu lộng biết nhiều hợp với sở thích của ta hơn đấy.
+
+Hơn nữa, ta hy vọng cậu ấy có lòng hiếu kỳ, muốn can thiệp vào những rắc rối xung quanh.
+
+Cả chuyện tiền nong ở nhà trọ cũng vậy, rõ ràng đã nhận ra nhưng thiếu chủ vẫn cố lờ đi như không nhìn thấy gì. Nếu cứ tiếp tục như vậy, sự việc sẽ kết thúc ngay trước cả khi nó kịp bắt đầu. Nếu ta không nhanh trí, chẳng biết chuyện sẽ thành như thế nào đây.
+
+Không thể tiếp tục như vậy. Cứ thế này, chúng ta sẽ không cải cách thế giới được.
+
+Vả lại, làm sao ta có thể rút đao vì những chuyện vụn vặt ấy. Chỉ dựa trên bề ngoài cũng có thể nhận ra thanh đao của ta là sản phẩm được tạo ra bởi tộc Người lùn Elder... Dài quá, gọi bằng Eldwa cho ngắn.
+
+Bằng sự ngốc nghếch hết mức có thể của mình, Mio đã hoàn thành rất tốt trách nhiệm. Cô ta rất hợp đóng vai Hachibei, hình tượng lơ đễnh tiêu chuẩn đó đúng là không thể coi thường.
+
+Thêm nữa, nếu thiếu chủ nghiêm túc, chúng ta đã có thể bắt đầu phần truyện "Cuộc hành trình cải cách Thế giới - Tận cùng của Thế giới" mà chẳng gặp bất cứ vấn đề gì rồi, thế nhưng...
+
+Hiện tại ta đang ẩn giấu khí tức và trông coi hành lý trong xe ngựa...
+
+Dù thật bất hạnh vì không có cơm tối, nhưng tối nay, nhất định sẽ có tình huống đáng mong chờ gì đó.
+
+Nghĩ vậy, ừm... Phải cảm ơn mệnh lệnh của thiếu chủ rồi.
+
+Vũ khí hiện giờ ta đang dùng là một thanh đao một lưỡi chú trọng vào độ sắc bén, mô phỏng theo hình dạng của Katana. Ta vẫn đang trong quá trình tìm hiểu thông tin chi tiết về Katana.
+
+Thiếu chủ từng cùng với cha mẹ đi tới lễ hội Hamono của thị trấn tên là Seki một vài lần và cũng có một khoảng thời gian nghỉ tại nơi ấy. Xem ra ta cần phải điều tra tỉ mỉ ký ức của thiếu chủ trong khoảng thời gian đó, và cả những tri thức liên quan nữa.
+
+`Hamono: Lễ hội dao kéo.`
+
+`Thành phố Seki, tình Gifu, là nơi có nghề rèn kiếm phát triển nhất Nhật Bản, hiện tại 80% dao Nhật được sản xuất tại nơi đây.`
+
+Một điều đáng mừng rằng thiếu chủ nắm được khá nhiều tri thức hỗn tạp. Có vẻ như chỉ cần có hứng thú thì sẽ ngay lập tức tìm hiểu đã trở thành bản tính của cậu ấy. Đối với ta đó quả là một thói quen vô cùng thuận tiện. Thực sự là vô cùng, vô cùng cảm ơn.
+
+Sau đó, ta nhìn vào đống hành lý.
+
+Đó là trái cây bên trong Á Không. Chúng hình như giống với trái cây có ở thế giới của thiếu chủ. Vậy nên chuyện chúng có ăn được hay không là do cậu ấy phán đoán.
+
+Mỗi trái đều tràn ngập sức sống, vô cùng mọng nước. Hương vị cũng rất ngon.
+
+Những loại thực vật này có thể phát triển tự nhiên ở một thế giới vô cùng khắc nghiệt như của thiếu chủ, quả thực rất mạnh mẽ. Nhờ vô số cây đã kết trái, nên bọn ta mới có thể thu thập được một vài chủng loại, ngoài ra, hiện tại chúng vẫn chưa có dấu hiệu bị hư hỏng. Thậm chí vẫn đang tươi ngon đầy sức sống là đằng khác.
+
+Đúng lúc này...
+
+"Ồ, hành động rồi sao?"
+
+Đám người bám đuôi Mio rốt cuộc cũng đã bắt đầu thực hiện âm mưu của mình.
+
+Độ thành thục của bọn chúng như thế nào, đối với người đã lâu chưa tiếp xúc với Loài người như ta không hoàn toàn nắm rõ được hết, nhưng... Ta nghĩ đám người tối nay có vẻ như khá thô lỗ.
+
+Cũng có biết phối hợp với nhau một chút, xem ra kinh nghiệm chiến đấu không phải đều bằng không.
+
+... Hmm, xem ra lần này ta phải cân nhắc rồi.
+
+Ngay trước khi rời khỏi phòng, thiếu chủ đã nhìn ta với ánh mắt khá nghiêm túc và yêu cầu rằng thay vì giết hết, tốt nhất hãy tha cho bọn chúng.
+
+Nhờ có khế ước, sức mạnh của ta đã tăng hơn trước đây rất nhiều, nhưng ta lại không có thứ gì để ức chế ma lực của bản thân giống như thiếu chủ.
+
+Nếu ta dốc hết toàn lực, e rằng mấy tên kia sẽ tiêu đời hết. Tuy nhiên, cũng không thể phớt lờ lời thỉnh cầu của thiếu chủ được.
+
+... Phải xác định sức mạnh của bản thân tăng giảm bằng bọn chúng ư?
+
+Hai người canh gác, bốn kẻ trộm.
+
+May quá.
+
+Cho dù tăng giảm sức mạnh không chuẩn, ít ra vẫn có hai người còn sống.
+
+Trong bốn người, hai người đi trước.
+
+Chúng đặt tay lên xe ngựa với ý định leo lên... Cơ hội tốt đây.
+
+Ở trong bóng tối, ta lặng lẽ đứng bên cạnh chiếc xe ngựa với thanh Katana đã được rút ra khỏi vỏ.
+
+"Này này, các ngươi có chuyện gì với chiếc xe ngựa của chúng ta sao?"
+
+Ta nói bằng một giọng hết sức hào sảng.
+
+Bọn chúng đồng loạt ngừng mọi động tác, tập trung dõi ánh mắt ngập tràn sát khí và cảnh giác về phía ta.
+
+Chuyện này cũng chẳng còn cách nào khác... Vì quá hào hứng với cuộc chiến, ta cứ nhìn chằm chằm vào bọn chúng bằng đôi mắt sáng ngời giống như rắn thấy con mồi.
+
+"..."
+
+Giữ im lặng sao? Bọn chúng ra hiệu cho nhau bằng mắt rồi sau đó gật đầu.
+
+Xem ra không có cơ hội để giao lưu rồi... Tốt thôi, một đám hỏi đáp cũng vô dụng. Rất có phong cách Ronin!
+
+`Ronin (浪人)là những samurai không còn chủ tướng trong thời kỳ phong kiến ở Nhật Bản.`
+
+Hai kẻ canh gác không có hành động gì, chúng đang quan sát tình hình để phòng trường hợp người khác can thiệp sao?
+
+Vũ khí trong tay của hai tên đang định leo lên xe ngựa tỏa ra ánh sáng lạnh lẽo. Bất chợt, một cái gì đó đang phóng tới từ hai kẻ đang lặng lẽ canh chừng ở xa.
+
+Lưỡi dao của hai kẻ gần đó lao đến tấn công ta. Đỡ được một đòn tấn công, ta dễ dàng né tránh đòn tấn công của tên còn lại. Ngay sau đó, ta dùng vỏ đao để đánh văng thứ gì đó vừa bị ném tới.
+
+Quá nhẹ, hơn nữa còn quá chậm. Chẳng đáng bận tâm.
+
+Con dao găm mà ta vừa né một lần nữa tấn công từ phía bên cạnh. Vị trí của hắn cứ như đang muốn nói với ta rằng, "Xin hãy đá tôi đi".
+
+Đúng như mong muốn, bằng tốc độ cực nhanh, gần như không dùng tới trọng lượng cơ thể, ta đá vào bàn tay đang cầm vũ khí của hắn ta.
+
+Một âm thanh trầm đục vang lên, kẻ đó bị đá bay lên không trung.
+
+Mặc dù đã nương tay, nhưng... chắc ta đã làm hắn bị gãy xương mất rồi.
+
+Cảm giác không đã lắm khi vung thanh Katana mà phải khống chế sức mạnh, nhưng quả thực là vẫn nên thử một chút.
+
+"Hmm."
+
+Nếu chỉ nhắm vào vũ khí chắc sẽ không có vấn đề gì.
+
+Nhẹ nhàng lùi về phía sau vài bước để tạo khoảng cách, ta dứt khoát chém một nhát vào thanh kiếm của tên trộm đang đờ ra vì kinh ngạc.
+
+"Cáiii...?!"
+
+Tên đó kêu lên một tiếng.
+
+Hắn ta hoàn toàn không kịp phản ứng, thậm chí có khi còn không nhận ra động tác nhảy về phía sau của ta nữa. Có lẽ vì cảm giác được ta đã biến mất, nên hắn mới ngạc nhiên đến cứng đờ người sao, đúng là non nớt.
+
+_Keng_, một âm thanh đinh tai vang lên. Nhìn thấy thanh kiếm của mình bị gãy đôi dường như càng khiến tên trộm kinh hoảng hơn. Hắn chẳng thể đánh trả được đòn nào, chỉ run lẩy bẩy đờ cả người ra.
+
+Ta hoàn toàn không có cảm giác chém trúng thứ gì. Tính năng của vũ khí và năng lực của cơ thể tốt hơn ta nghĩ nhiều... Ta quả thực rất mong chờ thời điểm những người Eldwa làm ra được một thanh Katana thực sự đấy.
+
+_Xoẹt._
+
+Hửm? Âm thanh gì vậy?
+
+Khi ta nhìn qua, ở đó là...
+
+"Phần" thân trên của tên trộm.
+
+Cơ thể hắn đứt rời ra làm hai nửa, cái xác bị cắt đôi trông hết sức thê thảm.
+
+Cái gì? Sao lại ra nông nỗi này...?!
+
+Không ổn rồi! Động tĩnh của ta đã bị bốn kẻ còn lại phát giác. Tất cả bọn chúng sẽ chạy thoát mất.
+
+Nói cách khác, ta sẽ không thể tra hỏi được chúng!
+
+Hai kẻ canh gác đã giữ khoảng cách khá xa. Không thế để cho tình hình rối loạn hơn nữa.
+
+Chẳng còn cách nào khác. Tốt nhất là phải mau chóng tóm được hai tên kẻ trộm còn lại!
+
+Ta cầm ngược thanh Katana. Theo cách nói của thiếu chủ, đây là tư thế Nghịch Nhận Đao.
 
 ![][IMG_0147.PNG]{:class="img-fluid"}
 
 [IMG_0147.PNG]: https://1.bp.blogspot.com/-fInEehgA_NE/YYQJtEBFxuI/AAAAAAAACck/vH-9gMIWWzEZVSspRFwijkBrG2ttzMhtwCLcBGAsYHQ/s16000/IMG_0147.PNG
 
+Trong đám người không biết xấu hổ quay lưng bỏ chạy kia, hình như có một người là nữ. Khuôn mặt được che chắn bằng một tấm khăn khiến ta khó mà phân biệt được. Tuy nhiên, dựa vào dáng người đó thì chắc chắn là nữ rồi.
+
+... Đằng nào cũng phải bắt được ít nhất một kẻ, nếu là nữ thì thiếu chủ có lẽ sẽ vui vẻ hơn. Nhìn qua cũng biết cô gái đó có bộ ngực khủng, vóc dáng chẳng phù hợp với bộ trang phục đen chút nào.
+
+Thiếu chủ liên tục khen mấy người với diện mạo chẳng có gì đặc biệt là mỹ nhân, xem ra cậu ấy rất thích phụ nữ... Dù vậy, thiếu chủ lại không yêu cầu sự hầu hạ từ chúng ta, đúng là kỳ lạ.
+
+Hửm? Khoan đã?
+
+Nếu bắt phụ nữ, có khi nào thiếu chủ lại gọi ta là đại quan xấu xa không?!
+
+Không, nếu là thiếu chủ, chắc chắn cậu ấy sẽ làm vậy!
+
+Hừ! Đúng là một cái bẫy tài tình. Không ngờ bọn chúng lại lợi dụng tâm trạng nghĩ cho thiếu chủ của ta...
+
+Quả không hổ là thiếu chủ! Hửm, không? Ta cảm thấy có gì đó không đúng...
+
+Thôi, những chuyện nhỏ nhặt đó để sau. Tạm thời ta sẽ để cho người phụ nữ ấy chạy trốn và bắt một tên khác.
+
+Tập trung một chút sức mạnh, ta đáp xuống mặt đất. Nhờ chênh lệch tốc độ, ta có thể dễ dàng bắt kịp đối phương.
+
+Đứng đối diện một kẻ mặc đồ đen không có ngực, ta dùng chuôi kiếm đánh mạnh vào vùng thượng vị.
+
+Một gã khác đang chạy ở phía xa hơn quay đầu nhìn lại. Vì tên đó cũng đã trông thấy cảnh tượng khủng bố vừa rồi, nên ta giả vờ vung thanh Katana lên dọa hắn.
+
+Đúng như dự liệu, tên đó loạng choạng trong giây lát rồi cuống cuồng bỏ chạy.
+
+Hô hô, mình thật lợi hại.
+
+Nếu nghe ngóng được thông tin từ kẻ này, ta sẽ có thể một mẻ hốt gọn cả đám người xấu xa đang chiếm giữ nơi đây!
+
+Khà khà, mọi việc quả là thuận lợi!
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+"Nhìn kiểu gì cũng thấy cô đúng là rất phù hợp với vai đại quan xấu xa."
+
+Tôi bất đắc dĩ thở dài một hơi, hết nhìn Tomoe - người đang cố gắng thu nhỏ sự tồn tại của bản thân trước mặt tôi, rồi lại nhìn kẻ mặc đồ đen vẫn đang bất tỉnh nhân sự.
+
+Mio đã được tôi phái tới chỗ chiếc xe ngựa để "thu dọn" hai người bị Tomoe giải quyết.
+
+Khoanh tay lại, tôi nhìn xuống Tomoe, phía sau tôi là một người đang ngồi trên chiếc ghế đẩu, không ngừng nhìn ngang liếc dọc xung quanh căn phòng với dáng vẻ bồn chồn.
+
+Đó là cô bé mà tôi đã nhặt được trong lúc đi dạo với Mio.
+
+Sau khi tách khỏi Tomoe, tôi dùng bữa tối với Mio và khi ra ngoài đi dạo để tiêu hóa thức ăn, chúng tôi đã gặp được cô bé này.
+
+Nói về lúc trước một chút.
+
+Tôi và Mio đã mang cô bé tình cờ gặp trong lúc đi dạo quay trở lại quán trọ.
+
+Ban đầu, tôi định sẽ hỏi chuyện cô bé kỹ càng sau khi về phòng, nhưng vừa về đến cửa nhà trọ đã thấy Tomoe đứng đó với khuôn mặt vui vẻ và nói, "Thiếu chủ! Tôi chưa giết hết toàn bộ nha!"
+
+Sau khi hỏi kỹ càng Tomoe về vụ việc, tôi mới biết ba trong sáu người đã trốn thoát.
+
+... Vậy còn được.
+
+Khi tôi hỏi lại "Cô đã bắt được ba người à?" thì...
+
+"Tôi lỡ tay giết hai tên, nhưng đã bắt được một kẻ rồi. Nhìn kìa, ở đó đấy."
+
+Cô ấy cứ dửng dưng như không.
+
+Có vẻ như một tên bị Tomoe đá bay lên không trung khi có ý định dùng dao găm tấn công cô ta, và hắn ta bất động luôn. Đó được gọi là chết vì sốc.
+
+Còn người còn lại, tuy Tomoe chỉ muốn thực hiện một nhát chém ngang nhắm vào vũ khí của hắn nhưng cuối cùng lại bị chém trúng cả cơ thể.
+
+Mặc dù Tomoe nhỏ giọng thanh minh rằng không hề cố ý giết chết bọn chúng, tất cả đều là sự cố, nhưng đó là vấn đề nằm ngoài phạm vi thảo luận rồi!!
+
+Tuy cũng không đến mức không thể chấp nhận, nhưng dù sao cô ấy đâu thể chỉ cười "Hi hi" là xong chuyện được đâu!!
+
+Đây là hiện trường một vụ thảm sát kinh khủng đến mức nào chứ?!
+
+Tôi thử hỏi Mio xem cô ấy có thể che đậy vụ việc này bằng sự háu ăn, à không, bằng năng lực xử lý mà không để lại dấu vết được không, và cô ấy trả lời rằng "Có thể".
+
+Ngay lập tức, tôi nhờ cô ấy tới hiện trường.
+
+Trước hết, tôi đi tới bên giường xác nhận xem liệu nhân vật bị bắt làm tù binh đã mất hết sức lực hay không.
+
+Người đó có một thân hình thon thả. Tuy không hiểu tiêu chuẩn của thế giới này, nhưng nếu đây mà được gọi là cơ bắp, thì chắc tôi giơ tay xin hàng luôn.
+
+"Tomoe, chắc cô không bắt phụ nữ đem về đấy chứ?"
+
+"Phụt, ha ha ha!"
+
+Tại sao cô ta bỗng nhiên bật cười vậy?
+
+"Tôi biết thế nào ngài cũng hỏi mà! Thiếu chủ!"
+
+Thế mới nói, cô đang cười cái gì vậy?!
+
+"Có phải tiếp theo ngài sẽ nói, 'Tomoe, cô quả thực là đại quan xấu xa!', phải vậy không?!"
+
+Sao cô ấy hiểu tôi thế? Thôi, dù sao đúng là cô ấy đã nói hết những điều tôi muốn nói rồi.
+
+"Tuy nhiên, tên đó là nam!"
+
+_Bùm!!_ Dáng vẻ của cô ấy khi nói khiến tôi cảm thấy như có hiệu quả âm thanh đi kèm vậy.
+
+...
+
+Không, cứ cho là đúng như Tomoe đã nói.
+
+Vậy thì, cái gì đây?!
+
+Hơn nữa, tôi hy vọng trước khi xác định giới tính, ít ra cô hãy làm chuyện cơ bản nhất là kiểm tra toàn thân kẻ địch chứ!
+
+Chắc hẳn Tomoe đã làm rồi nhỉ? Cô ấy quả quyết đó là nam mà.
+
+Tuy nằm trên giường nhưng người đó không được đắp chăn, nên tôi có thể nhìn thấy rõ mồn một toàn thân tù binh mà Tomoe khăng khăng là nam.
+
+... Đây thật sự là nam sao?
+
+Kỳ lạ... Sao tôi lại có cảm giác giống nữ thế? Đặc biệt là phần eo...
+
+Này này, Tomoe! Xin cô tập trung một chút đi.
+
+Cô không thấy lưỡi dao giấu trong đai lưng kia à?
+
+"Cô không lục soát cơ thể hắn ta sao? Trời ạ. Nếu để hắn ngủ ở trong phòng, ít nhất cũng phải kiểm tra xem có vật nguy hiểm hay không chứ. Cô bất cẩn quá đấy."
+
+Tôi rút con dao ra khỏi đai lưng của tù binh và tịch thu. Quan sát một hồi, tôi nghĩ thay vì được tạo ra để vung, có lẽ nó dùng để ném. Có thể cách sử dụng của nó là áp sát lại gần kẻ địch, lợi dụng lúc sơ hở và cứa một đường ngang cổ đối phương.
+
+"Nơi này chỉ có thiếu chủ và tôi, cho dù hắn có gây náo loạn thì cũng chỉ để mua vui cho chúng ta thôi."
+
+A ha ha, Tomoe cười gượng. Cô bớt nghĩ tới mấy cái hạng mục giải trí đáng sợ đi cho tôi nhờ.
+
+"Ưm. Haa."
+
+Ồ... Trở mình à...
+
+_Roẹtt._
+
+"Hả?"
+
+Tôi nghe thấy âm thanh vải rách toạc.
+
+Sau đó, vùng trước ngực của tù binh bắt đầu phồng to ra.
+
+... Một sự im lặng bao trùm.
+
+À thì, quay trở lại với lời nói ban đầu đi.
+
+Tomoe hết nhìn tôi rồi lại nhìn tù binh với vẻ mặt bàng hoàng, sau đó càng lúc càng cố gắng thu nhỏ sự tồn tại của mình.
+
+Những kẻ bị bắt phải đi diễu phố thị chúng chắc cũng có cảm giác như vậy đi. Và Tomoe đã đích thân kiểm tra tù binh đó sao?! Không ổn rồi.
+
+Để không gây chú ý, cô gái này đã quấn ngực chặt đến mức đó cơ à?
+
+Nếu không thì đã chẳng có tiếng "Roẹt" vang dội đến thế.
+
+"Đ-đây chắc chắn là âm mưu của kẻ nào đó! Chắc chắn là thế, bằng không sao có thể có chuyện ngoài ý muốn này!"
+
+Tiếng kêu thất thanh của Tomoe vang lên bên trong căn phòng.
+
+"Ít nhất hãy để tâm tới suy nghĩ của chủ nhân mình một chút đi chứ... Cô thừa hiểu tôi sẽ làm thế nào để thẩm vấn dễ dàng mà?"
+
+"Không phải, chính vì thế nên tôi đã tránh ngực bự mà. Lần này đáng lẽ phải là nam chứ."
+
+Tránh ngực bự? Là sao cơ? Tôi chẳng hiểu ý cô ấy là gì.
+
+"Dù sao đi nữa, nếu đã mang về, đầu tiên cô phải kiểm tra cơ thể chứ. Như vậy, có vũ khí hay giới tính chẳng phải sẽ rõ ràng ngay sao."
+
+"Không! Nếu lột sạch đồ của cô ta, không phải tôi sẽ bị coi là kẻ biến thái sao, tôi rất, rất, rất quan ngại về điều đó đấy."
+
+"An-toàn-là-trên-hết!! Đây không phải là phim truyền hình, ai thèm quan tâm cô là biến thái hay là tên khốn kiếp chứ! Giữa tên ngốc và biến thái, tôi cảm thấy biến thái còn đáng cứu hơn!"
+
+Tuy rằng đầy chỉ là quan điểm của riêng tôi.
+
+"Ư, ừm..."
+
+Và đừng có tạo ra mấy tiếng kêu kỳ quái nữa!
+
+"Hơn nữa, Tomoe cô..."
+
+"A, ừm..."
+
+Hửm?
+
+Âm thanh yếu ớt này ở đâu ra vậy... Không phải của Mio cũng chẳng phải Tomoe. Trong phòng còn ai khác sao...
+
+À! Phải rồi!
+
+Là cô bé mà tôi đã nhặt được trong lúc đi dạo ban nãy!
+
+Tôi đưa mắt nhìn qua, cô bé đang ngồi thu lu một góc với vẻ mặt bất an. Cô bé đang gặp rắc rối vì bị lạc mất gia đình, vì vậy tôi mang cô bé về đây luôn. Vì Tomoe mà tôi đã quên khuấy mất.
+
+Một cô nhóc xa lạ nghe không thể hiểu được lời nói của tôi (chắc vậy).
+
+Hmm, chuyện này đúng là bất an. Trên quãng đường trở về quán trọ, tôi đã viết ra để giải thích rằng mình không thể nói chuyện do bị bệnh. Vậy nên giờ có bị nghi ngờ cũng chẳng trách cô bé được.
+
+"... Được rồi, lần này tôi tha cho cô. Lần sau nhớ chú ý đấy."
+
+Bị một đứa trẻ nhìn bằng ánh mắt bất an, làm sao tôi có thể tức giận nổi chứ.
+
+"Ồ, cảm ơn nhé, cô bé lạ mặt!"
+
+Này, người mà cô nên cảm ơn đầu tiên đúng ra phải là tôi chứ?!
+
+Hơn nữa, cô ta lại nghiêm túc nói bằng ngôn ngữ chung.
+
+Đó là phạm tội trong tư tưởng đến mức nào chứ...
+
+Mấy trò khôn vặt đó của cô hãy dùng vì tôi một chút được không! Nếu được vậy thì tôi sẽ cảm động muốn khóc luôn đấy?
+
+"Anh trai, anh đã kể anh không thể nói chuyện mà..
+
+"Anh có thể nói được."
+
+Tôi thử nói chuyện lịch sự bằng ngôn ngữ chung.
+
+Bởi vì tôi có cảm giác mình sẽ làm được, nhưng...
+
+"?"
+
+Nhìn vào điệu bộ nghiêng đầu của cô bé, tôi đã biết được câu trả lời. Liếc qua Tomoe, cô ấy gật đầu và nhìn về phía cô bé kia. Tomoe quả là nhạy bén.
+
+"Thiếu chủ vừa mới phát âm câu 'Anh có thể nói được' bằng ngôn ngữ chung. Ngươi không hiểu sao?"
+
+"Dạ?! Nhưng mà em chỉ nghe anh ấy nói mấy từ 'Anh o e o ơ'?!"
+
+Sao, sao lại thành như vậy... S-sốc thật đấy.
+
+Không ngờ trong cả câu "Anh có thể nói được", cô bé chỉ nghe được mỗi từ "anh".
+
+"À, đó là do lời nguyền đấy. Thiếu chủ vốn có thể nói được nhiều loại ngôn ngữ, cậu ấy đã dùng một loại ngôn ngữ trong số chúng để nói chuyện với chúng ta."
+
+"Dạ? Vậy không phải bị bệnh à?"
+
+"Ừm, đúng vậy. Thực ra nó là một lời nguyền. Cho dù không lây nhiễm, nhưng vì sẽ có kẻ phân biệt đối xử với thiếu chủ, nên chúng ta mới che giấu sự thật. Nếu nói do ảnh hưởng của bệnh tật, thiếu chủ sẽ không phải chịu sự ghẻ lạnh dành cho những kẻ dơ bẩn vì trúng lời nguyền."
+
+Xem ra cô bé đã chấp nhận lời giải thích của Tomoe. Ừm ừm, kể từ bây giờ xin hãy dùng tài nói chuyện đó vì lợi ích của tôi nhé.
+
+"Có thể nói được nhiều loại ngôn ngữ, nhưng ngôn ngữ chung lại bị phong ấn... Đó chắc chắn là việc làm của Ma tộc rồi! Thật quá đáng!"
+
+Hửm? Chờ đã, sao lại là Ma tộc? Chẳng lẽ lời nguyền là đặc quyền của mấy kẻ đó sao? Xem ra lần sau tôi phải đổi lý do rồi. Chỉ bởi một lời giải thích gượng ép mà lại khiến một chủng tộc khác mang tiếng xấu thì thật không tốt chút nào.
+
+"Đúng vậy đấy, quả thực là mấy kẻ phiền toái... Vậy còn em, tại sao em lại đi cùng thiếu chủ tới đây?"
+
+Tuy nhiên, Tomoe cứ như không hề có chuyện gì xảy ra và tiếp tục nói chuyện.
+
+[Này, chờ đã.]
+
+Lần này tôi dùng giao tiếp bằng chữ viết và vỗ vai Tomoe. Vìììì cái gì mà cô ta lại thuận theo lời nói của cô bé vậy hả?
+
+"Ồ, thiếu chủ, có chuyện gì vậy?"
+
+Tomoe vô tư đáp lại.
+
+Cái người này, cô không cảm thấy có gì không đúng với lời nói của cô bé sao...
+
+[Vì sao em lại kết luận phiến diện rằng lời nguyền của anh là việc làm của Ma tộc?]
+
+Tôi hỏi cô bé. Cô bé có thể đọc được chữ viết thật là tốt quá.
+
+"Khi một đứa trẻ vừa mới chào đời, nó sẽ được nhận sự chúc phúc của Nữ thần, chính là ngôn ngữ chung, thứ mà mọiii người trên thế giới này đều có thể nói được!"
+
+"..."
+
+"A, nhưng quái vật thì không được mà nhỉ? Bởi những chủng tộc không phải Loài người sẽ không được Nữ thần thừa nhận, vậy nên họ sẽ không thể nói ngôn ngữ chung."
+
+"..."
+
+Tôi cảm thấy hơi tổn thương vì cụm từ "mọiii người" của cô bé chỉ bao gồm Loài người. Thế nhưng, hơn hết...
+
+Tôi bị xem là quái vật á?
+
+Ý tôi là, chúc phúc... sao? Theo những gì tôi biết, một người sau khi sinh ra, nếu hàng năm đều đi đến thần điện của Nữ thần để cầu nguyện, sẽ dần dần hiểu được ngôn ngữ và có thể nói chuyện.
+
+Thời điểm một đứa trẻ nói chuyện được trôi chảy sẽ chênh lệch ít nhiều tùy thuộc vào khả năng mỗi người, nhưng đa số khoảng ba tuổi là đã có thể hiểu được ngôn ngữ. Còn cô bé từ lúc bốn tuổi mới thông thạo được ngôn ngữ của mình.
+
+Vậy nên, tôi không thể nói được. Có thể nói, những vị không phải con người đã học từ đầu và thông thạo ngôn ngữ chung, thật đáng kính trọng.
+
+Bởi vì, đây chính là ngôn ngữ học đấy. Mặc dù chỉ rên rỉ mấy từ như là "A~, u~, e~",	nhưng sau khi nhận được một vài lần chúc phúc là đã trở thành ngôn ngữ rồi.
+
+Ra đây là ngôn ngữ chung à?! Là cái kiểu: _"Nào, tất cả những chủng tộc không phải là Loài người! Hãy phân tích những âm thanh rên rỉ này và bắt đầu học đi!"_ à?
+
+Hừmmm.
+
+Thì ra là vậy, ra đó là cách nó hoạt động sao.
+
+...
+
+Bà Nữ thần chết tiệt! Bà muốn tôi đấu tranh đến cùng đúng không!
+
+Tốt thôi. Nếu đã vậy, hãy làm thế đi!
+
+Sau khi nghe xong chuyện khó tin về ngôn ngữ chung, cô bé bắt đầu nói với Tomoe về chuyện chính.
+
+<br /><br /><br /><br /><br />
+#### **◇◆ Mio ◇◆**
+<br /><br /><br /><br /><br />
+
+Sau khi xử lý xong mọi thứ và quay trở lại, tôi liền trông thấy thiếu chủ với vẻ mặt không biểu cảm, và khuôn mặt Tomoe toát lên vẻ vi diệu.
+
+Còn một người đang ngủ ở trong căn phòng, chắc là cô bé mà chúng tôi đã mang về trước đấy.
+
+Tiếp đó, là một cô gái đang ngồi trên giường thể hiện địch ý đối với hai người họ.
+
+Cô Tomoe... Nếu chọn người để thiếu chủ tra hỏi, đáng lẽ cô nên chọn nam chứ.
+
+Dù vậy, cô gái khoác lên mình bộ đồ đen tuyền này, chính là một trong những người đã theo đuôi tôi sao? Những kẻ đồng hành với cô ta mà tôi đã xử lý ban nãy, thật là khó ăn.
+
+Bao trùm mọi thứ trong bóng tối, tôi cùng một lúc hấp thụ hết, nhưng mùi vị của chúng khác biệt hoàn toàn so với mùi vị của thiếu chủ. Nếu là tôi trước kia, chắc chắn sẽ không thèm để ý, nhưng bây giờ, khi đã quen với vị của thiếu chủ, chúng thật là khó nuốt.
+
+... Việc tra hỏi hình như là một cuộc nói chuyện không liên quan nhiều đến tôi.
+
+Hơn nữa, vì bản thân vẫn đang trong quá trình tìm hiểu về thế giới, cho nên đối với tôi, một kẻ vẫn chưa hiểu rõ hết được những góc khuất của con người mà nói, quả thật rất khó khăn.
+
+Nếu vì nôn nóng mà lỡ ăn mất cô ta, e rằng tôi chẳng còn mặt mũi nào nhìn thiếu chủ và Tomoe nữa.
+
+Tuy nhiên, tôi lại khá hứng thú với khuôn mặt không cảm xúc chưa từng thấy bao giờ của thiếu chủ.
+
+... Rốt cuộc đã xảy ra chuyện gì vậy?
+
+"Tomoe, làm đi."
+
+"Vâng."
+
+Sau màn đối đáp ngắn gọn, Tomoe dùng một lớp sương mù bao trùm cơ thể tù binh. Mặc dù cô gái kia biết mình không còn sức lực nhưng vẫn cố chống cự lại, rốt cuộc sự vùng vẫy đó dần trở nên yếu ớt và cô ta ngã vật xuống giường.
+
+Đó là ma pháp gây ngủ à? Thế nhưng, sương mù vẫn chưa biến mất.
+
+"Thiếu chủ, thế này mà cậu vẫn có thể nhìn thấy biểu cảm của cô ta sao?"
+
+Giọng điệu của Tomoe giống như đang muốn xác nhận điều gì đó.
+
+"Có vẻ không có vấn đề gì. Ở trong trạng thái này cô ta vẫn có thể giao tiếp được bằng ngôn ngữ sao?"
+
+Cho đến lúc này, thiếu chủ vẫn không bộc lộ cảm xúc. Đây là lần đầu tiên tôi nhìn thấy vẻ mặt đó của cậu ấy. Bỗng nhiên, tôi nổi lên sát ý với cô gái đã khiến cho thiếu chủ phải làm ra vẻ mặt như vậy.
+
+"Ta sẽ phiên dịch lại."
+
+"Được rồi. Bắt đầu đi."
+
+Có vẻ như cả hai người đều không chú ý việc tôi đã quay trở lại. Còn nguyên nhân, chắc là do áp lực nặng nề phát sinh từ việc không nói gì nhiều của thiếu chủ. Chẳng có sát ý hay phẫn nộ, một áp lực có thể gọi là như có như không.
+
+"Có điều, tẻ nhạt quá đi. Chẳng thấy vui sướng chút nào khi moi được thông tin gì cả."
+
+Trong tình cảnh này mà cô ấy vẫn nói đùa được, Tomoe cũng thật lợi hại.
+
+"Không cần vui sướng. Uy hiếp hay dùng thuốc nói thật để cho cô ta nói ra là được."
+
+"... Vâng."
+
+"Có cô đúng là giúp được nhiều. Không cần dùng thuốc nói thật là tốt nhất. Tôi cũng không biết phải tra khảo thế nào."
+
+Giọng nói của thiếu chủ cứ đều đều.
+
+Ngữ điệu vô cùng hờ hững. Tôi từng nghe nói rằng, thế giới mà thiếu chủ sống là một nơi hòa bình, hiếm khi phải chứng kiến những người thân qua đời.
+
+Vậy nên, vào thời điểm đối mặt với chuyện sống chết của con người, tôi đã nghĩ rằng thiếu chủ chắc chắn sẽ vô cùng phiền não.
+
+... Có lẽ, cô gái này sẽ bị giết chết.
+
+Nhưng dù sao, chuyện đó cũng chẳng liên quan tới tôi.
+
+Cho dù không bị trói buộc bởi khế ước chi phối, tôi cũng đã cống hiến mọi thứ mình có cho thiếu chủ rồi.
+
+Những chuyện không liên quan tới thiếu chủ đều chỉ là chuyện vặt mà thôi.
+
+Ừm, đúng vậy. Tôi lại khẳng định điều tất nhiên này một lần nữa.
+
+Hai người thản nhiên tiếp tục tra hỏi.
+
+Thông qua trao đổi, xem ra Tomoe đã làm gì đó để bức tù binh tự khai, cuộc tra khảo đang tiến triển rất thuận lợi.
+
+Xem ra, cuộc tập kích lần này không đơn thuần chỉ là ăn trộm. Cô bé mà thiếu chủ và tôi mang về cũng có liên quan đến sự việc này... Xem ra ở căn cứ này tràn ngập kẻ xấu.
+
+Sau khi có vẻ đã tra hỏi được kha khá, cả hai người thở ra một hơi dài, rồi giải trừ sương mù, và liếc nhìn nhau.
+
+Đây có lẽ là thời điểm tốt.
+
+"Mọi người vất vả rồi. Đã kết thúc rồi sao?"
+
+"Hửm, Ồ, là Mio à? À ừ, thì... Còn bên phía cô thế nào rồi?"
+
+Thiếu chủ có vẻ ngạc nhiên trong nháy mắt, nhưng sau đó ngay lập tức đổi sang giọng điệu ổn định và đáp lại tôi. Là dáng vẻ như mọi khi.
+
+"Đương nhiên là tôi đã hoàn thành rồi. Mặc dù vô cùng khó ăn."
+
+Tôi lườm Tomoe. Cô ấy cười gượng và nhận lỗi.
+
+"Cô đã giúp tôi rồi. Giờ thì mọi chuyện đã phát triển theo hướng mà Tomoe thích nhất rồi đấy."
+
+Tomoe gì cơ...
+
+Cái đó hình như chính xác được gọi là "Hướng thiện trừ ác". Mặc dù tôi cũng không có tìm hiểu kỹ lưỡng cho lắm.
+
+"Không không, bởi vì lần này sẽ kết thúc như vậy thôi. Chuyện đó, có vẻ như sẽ không quá thú vị đâu."
+
+Tôi không hiểu lời của Tomoe đang nói cho lắm.
+
+Điều tôi có thể lý giải được chính là chuyện này sớm sẽ kết thúc thôi.
+
+"Như vậy, chúng tôi sẽ hành động kể từ ngày mai sao?"
+
+Việc tra hỏi đã hoàn thành, nên tạm thời tối nay đến đây chắc hẳn đã kết thúc.
+
+Thay vì đáp lại câu hỏi, thiếu chủ im lặng đưa tôi xem một mảnh giấy nhỏ.
+
+"A?! À ừm, thiếu chủ, đây là?"
+
+Một bức tranh vẽ bằng than sao? Trên đó là một cô gái trẻ với nụ cười ôn hòa.
+
+Một bức chân dung đơn giản vẽ từ phần ngực trở lên, được phác họa khá tốt.
+
+"Là chị gái của cô bé kia."
+
+Thiếu chủ nói cho tôi biết thân phận của người trong tranh. À, vậy sao? Ra là cô gái này.
+
+Ban đầu, trong lúc thiếu chủ và tôi đang đi dạo đã gặp được cô bé đó, và cô bé đã hỏi chúng tôi rằng có biết điều gì về chị gái đã mất tích của mình không.
+
+Khi ấy, sau khi lờ mờ cảm nhận được dấu hiệu có người đang theo dõi cô bé, thiếu chủ liền quyết định dẫn theo cô bé trở về.
+
+Dù vậy, trước khi trở về quán trọ, dấu hiệu đã biến mất, nên tôi không biết liệu có cần thiết phải cho cô bé ở lại đây không...
+
+Nhưng quyết định của thiếu chủ là để cô bé ở lại, nên tôi cũng không có ý kiến.
+
+Thông tín mà chúng tôi đã tra hỏi được từ tên tù binh chính là chị của cô bé đó đã bị bắt bởi đồng bọn của những kẻ đã tấn công xe ngựa. Thiếu chủ xem ra có ý định cứu chị của cô bé đó... Mặc dù, có khả năng cô chị ấy đã chết rồi.
+
+"Chúng ta đã xác định được vị trí đại khái của chị gái cô bé. Sau đó, thật xin lỗi, nhưng hai người hãy ngay lập tức đi tìm cô ấy đi."
+
+... Hả?
+
+A ừm. Cái đó, nghĩa là... chúng tôi sẽ không được ngủ sao?
+
+"Th-thiếu chủ?! Cậu nói thế nghĩa là ta đã không được ăn tối, lại còn không được ngủ nữa sao?"
+
+Lời kháng nghị của Tomoe đúng là vô cùng chính xác!
+
+"Đúng vậy. Mấy người không ngủ một ngày cũng không có vấn đề gì cả, đúng chứ?"
+
+À, ừm. Quả thực là tôi có thể ngủ hoặc thức liên tục mấy tháng, thậm chí là mấy năm cũng là chuyện bình thường, thế nhưng...
+
+Với tư cách là bề tôi của thiếu chủ, tôi hy vọng sinh hoạt của mình cũng giống như thời gian sinh hoạt của chủ nhân.
+
+Hơn nữa...
+
+"Cái đó, à ừm, đúng vậy, nhưng mà..."
+
+"Thiếu chủ, ta muốn ngủ! Kế từ khi cơ thể biến đổi thế này, ta đã biết được giấc ngủ thật thoải mái!"
+
+Tomoe, cô đúng là thẳng thắn. Tuy nhiên, tôi cũng vô cùng đồng ý. Mặc dù mới ở trong hình dạng con người được mấy ngày, nhưng tôi đã biết rõ sự thoải mái của hành động mang tên "ngủ" này.
+
+"Tomoe, tôi nghĩ cô đã biết từ cuộc tra hỏi ban nãy rồi, cô gái đó nhất định đang gặp nguy hiểm. Địa điểm cũng đã tra hỏi được rồi, nếu hai người ra tay, chắc sẽ giải quyết được phần lớn sự việc."
+
+"Vẫn chưa biết cô gái ấy sống chết thế nào, chúng ta có nhất thiết phải gấp gáp như vậy không?"
+
+Tôi buột miệng nói ra điều mình đang nghĩ. Hình như tôi đã lỡ lời rồi, thiếu chủ đưa mắt nhìn vào xa xăm và nói:
+
+"Mio, nếu có thể, tôi muốn cứu chị gái của đứa trẻ đó và đem cô ấy bình an vô sự trở về. Nếu an toàn, nhờ cô hãy bảo vệ và đưa cô ấy tới đây... Còn nếu không, tôi cần cô thông báo kết quả sớm nhất có thể. Được chứ?"
+
+Tôi đành phải gật đầu. Cảm giác thật khó chịu. Tôi không muốn bị thiếu chủ nhìn bằng ánh mắt đó.
+
+Anh mắt vô định giống như đã mất hết hứng thú với mọi thứ. Nếu như tôi không còn giá trị, trở thành một sự tồn tại không còn đáng để cậu ấy chú ý đến, vậy thì tôi sẽ...
+
+Tôi nhìn về phía Tomoe. Cô ấy cũng gật mạnh đầu với dáng vẻ rất khẩn trương.
+
+"Xin lỗi. Ngày mai tôi sẽ đi tới sở giao dịch với đứa trẻ này, nên hai người không cần để ý đâu. Tạm thời, hai người chỉ cần xác nhận sự an toàn của người chị. Dù sao cũng không đủ nhân lực, làm sao có thể để hai người vừa làm Ogin vừa làm Yashichi được."
+
+`Ogin và Yashichi cũng là nhân vật trong Mito Koumon.`
+
+"Nếu như vậy thì không có cách nào khác rồi. Công việc của ngài Koumon là bảo vệ người gặp rắc rối và chờ đợi báo cáo mà. Mio, đi thôi."
+
+Vì lý do gì đó, Tomoe đã chấp nhận. Tôi không hiểu màn đối đáp này cho lắm.
+
+Nhưng tôi rất biết ơn vì bầu không khí đã dịu đi trông thấy.
+
+Đúng là thiếu chủ lúc ôn hòa vẫn là tốt hơn. Phải cảm ơn Tomoe một chút rồi.
+
+"À, còn nữa..."
+
+Lúc sắp bước ra khỏi cửa, Tomoe quay người lại.
+
+"Gì vậy?"
+
+Tốt quá, tôi cảm giác thiếu chủ đang nói chuyện như bình thường.
+
+"Nếu sự việc này kết thúc tốt đẹp.. . Thiếu chủ, tôi muốn được tự xưng là 'lão'."
+
+`lão: Ở đây, Tomoe dùng từ "儂" là đại từ nhân xưng mà những người đàn ông lớn tuổi thường hay dùng.`
+
+Tôi cảm thấy khí lực bị rút hết ra khỏi người thiếu chủ trong phút chốc.
+
+Mà ngay cả tôi cũng thế. Chuyện như vậy không phải cô cứ tùy ý là được sao?
+
+"T-tôi nghĩ cô cứ thoải mái theo ý mình là được. Nói đúng hơn, tại sao cô lại hỏi tôi?"
+
+Đúng thật là.
+
+"Chà, mặc dù 'lão' phù hợp với tính cách của tôi hơn, nhưng quả nhiên nó không hợp với vai của tôi rồi. Dù sao tôi cứ cảm thấy đó giống như là đặc quyền của ngài Koumon vậy."
+
+"... Cô thích làm gì cũng được."
+
+"Ồ! Rất cảm ơn cậu! Quyết định thế nhé!!"
+
+Sau khi vui vẻ cảm ơn thiếu chủ, Tomoe mở cửa đầy khí thế. Tôi cũng đi theo cô ấy ra khỏi phòng. Có vẻ như cô ấy biết nơi cần đến, vậy nên tôi chỉ cần đi theo là được.
+
+Đi ra ngoài quán trọ, đột nhiên tôi dừng bước. Bởi vì có một chuyện khiến tôi lưu tâm.
+
+May thay, bây giờ chỉ có hai người chúng tôi. Có lẽ do hiện giờ cũng đã khá trễ, chẳng có ai qua lại trên đường.
+
+"Này, Tomoe, thiếu chủ bỗng nhiên khác lạ như vậy, có chuyện gì xảy ra sao?"
+
+"Ta cũng không biết. Nhưng may mà có cô trở về nên cuộc nói chuyện mới có thể tiếp tục, cô đã cứu ta rồi đấy. Cô từng nhìn thấy bức chân dung này rồi chứ?"
+
+"Ừ, là chị gái của cô bé mà bọn ta đã mang về."
+
+"Đúng vậy. Cô bé đó nói mình có sở trường vẽ tranh nên đã vẽ bức tranh về chị mình đấy."
+
+"Không ngờ mới ở tuổi đó mà cô bé đã giỏi đến vậy."
+
+Nghe nói cô bé còn chưa tới mười tuổi.
+
+"Ừm, nhưng vấn đề là chuyện sau đó. Ánh nhìn của thiếu chủ... ừm, dường như chứa đựng một áp lực vô cùng kỳ lạ, hoàn toàn chẳng có chút tình cảm nào. Sau khi nhìn thấy bức chân dung, mặt nữ tù binh kia cũng biến sắc... Bọn ta nghĩ cô ta biết cái gì đó nên mới tra hỏi."
+
+Tôi nhớ lại biểu cảm khi nãy của thiếu chủ. Đúng vậy, tôi chưa bao giờ cảm nhận được một áp lực nặng nề đến thế.
+
+"Cô gái trong bức tranh đó là người quen của thiếu chủ sao?"
+
+"Tuyệt đối không phải. Đừng nói tới bạn bè, cậu ấy còn không có bất cứ một người quen nào ở đây."
+
+Tomoe dứt khoát phủ định suy luận của tôi.
+
+"... Mới quen biết chủ nhân chưa lâu mà cô biết rất rõ về chuyện của cậu ấy nhỉ?"
+
+Theo lời thiếu chủ, chính xác thì hai người gặp nhau trước khi thiếu chủ gặp tôi vài ngày.
+
+"À thì, trường hợp của ta có hơi đặc biệt."
+
+"Tôi có thể nghe được chứ?"
+
+"À, cũng không có gì. Ta có thể điều khiên được ảo giác, nhưng... Cái đó nên gọi là kỹ năng phụ hay là năng lực khác ngoài ý muốn đây nhỉ?"
+
+"... Vậy rốt cuộc đó là thứ gì?"
+
+"Nói chung là ta có thể nhìn thấy được ký ức của đối phương. Và chuyện là... ta đã nhìn thấy..."
+
+"Cô đã nhìn thấy?! Ký ức của thiếu chủ?! Một bề tôi như cô?!"
+
+"Lúc đó thiếu chủ vẫn là kẻ địch của ta. Giống như cô thôi."
+
+Ghen tị quá... À không, Tomoe, cô thật bất kính.
+
+"Vậy rốt cuộc thiếu chủ là người thế nào?"
+
+"Chuyện đó cô nên tự mình đi hỏi thiếu chủ thì hơn. Hiểu biết lẫn nhau sẽ càng giúp cho niềm tin giữa hai người thêm vững chắc."
+
+"Hừ... Mặc dù điều cô nói không sai, nhưng như thế thật quá gian xảo."
+
+"Hiện tại ta vẫn chưa nhìn hết toàn bộ đâu. Nhân tiện, ta cũng chưa xem ký ức của cô. Thiếu chủ chỉ cho ta xem một phần ký ức của cậu ấy mà thôi."
+
+Ký ức của tôi... Ký ức trong khoảng thời gian hành động theo bản năng của tôi, cũng có sao?
+
+"Vậy, theo như ký ức đã nhìn thấy lúc trước, cô có thông tin gì về cô gái trong bức tranh chân dung kia không?"
+
+Nếu đã nhìn thấy ký ức, có khả năng cao là Tomoe đã biết.
+
+Thế nhưng, Tomoe lắc đầu.
+
+"Quả thực, ta không biết được những chuyện tỉ mỉ như thế. Cũng có rất nhiều bộ phận bị phong ấn sau khi kết thành khế ước. Bởi vì ta chỉ có thể nhìn thấy ký ức không bị phong ấn, có lẽ nó nằm trong số đó, nhưng dù thế nào, chắc chắn một điều là..."
+
+Đang đi phía trước, Tomoe chợt quay người lại.
+
+"Cho tới khi chúng ta mang theo kết quả rằng đã bảo vệ được cô gái đó và trở về, thiếu chủ vẫn sẽ giữ nguyên bầu không khí nặng nề ấy."
+
+Chuyện đó đúng là rất quan trọng.
+
+Phải tiếp tục cuộc hành trình trong một bầu không khí như vậy, thực lòng xin hãy tha cho tôi đi. Tôi nhất định phải cố gắng hết sức để ngăn cản chuyện đó xảy ra...
+
+Thì ra là vậy, tôi đã hiểu được điều Tomoe định nói.
+
+"Tồi hiểu rồi. Hiện tại thay vì tọc mạch mấy chuyện không cần thiết này, việc hoàn thành nhiệm vụ trước mắt còn quan trọng hơn."
+
+Cũng vì mục đích sau này.
+
+Giấu mình trong bóng tối, tôi tập trung vào nhiệm vụ, tất cả đều vì một cuộc hành trình vui vẻ với thiêu chủ trong tương lai.
+
+<br /><br /><br /><br /><br />
+# **Chapter 6**
+<br /><br /><br /><br /><br />
+
+"Anh ơi, anh được gọi là thiếu chủ mà không điều khiển nổi xe ngựa thì chẳng phải hơi kém sao?"
+
+Mặc dù tiết trời lúc sáng sớm không quá lạnh, nhưng cô bé đang cầm dây cương ở bên cạnh tôi vẫn liên tục xuýt xoa "Lạnh quá".
+
+... Không phải tôi không làm được. Thực ra tôi vẫn có thể điều khiển xe mà không cần dây cương.
+
+Con ngựa kéo xe nhìn qua có vẻ là một con ngựa bình thường. Nhung sự thật là trên đầu nó mọc hai cái sừng. Tôi không biết là do ma thuật hay là do thể chất, nhưng giờ hai chiếc sừng đó đang được ẩn đi.
+
+Con ngựa này là một loại ma thú có tên Bicom, được tộc Orc và Người thằn lằn dùng làm vật cưỡi và phương tiện di chuyên.
+
+Tôi có thể nói chuyện với chúng, vậy nên chắc chúng cũng hiểu được phần nào suy nghĩ của tôi. Bây giờ, ngoại trừ vật vô cơ, Loài người và thực vật, còn lại tôi đều có thể giao tiếp được.
+
+Bởi vậy, tôi chỉ cầm dây cương cho có thôi chứ toàn trực tiếp chỉ thị con ngựa di chuyên.
+
+Tuy nhiên, giờ tôi không thể làm thế vì tôi không muốn củng cố thêm hình tượng một con người kỳ quái của mình chút nào. Ban đầu năng lực đó rất hữu dụng, nhưng khi nhìn thấy dáng vẻ ngồi trên xe ngựa của tôi trong Á Không, Tomoe đã nói rằng, "Người nói chuyện được với ngựa bằng thứ ngôn ngữ kỳ lạ đúng là quái nhân", khiến tôi vô cùng ngạc nhiên, và quyết định phong ấn năng lực ấy.
+
+... Tôi thật sự không muốn bị một cô gái mơ tưởng làm samurai ở thế giới khác nói như vậy đâu.
+
+[Xin lỗi, bình thường anh toàn để mọi việc cho hai người đó giải quyết hết.]
+
+"Thật là... Cho dù anh có tiền, nhưng thân là người thừa kế của thương hội, anh như vậy sao được?"
+
+Đúng thế, chắc chắn là không được rồi.
+
+Quả nhiên là một cô bé lớn lên ở nơi cần ý chí khát vọng mạnh mẽ. Còn nhỏ mà đã vô cùng chín chắn hiểu chuyện.
+
+[Vậy nên giờ anh mới bị ném ra ngoài đấy. Thay vì gọi đây là chuyến đi dài ngày để mở rộng hiểu biết, chẳng bằng nói rằng giống như bị đuổi ra khỏi nhà còn hơn.]
+
+"A, ra là vậy. Em hiểu rồi. Nhưng nếu mấy người Mio không ở đây, những món hàng hóa này có thể bán được đúng giá sao?"
+
+Cuối cùng cũng đã thuyết phục được rồi. Cô bé này có tính cách nghiêm khắc cẩn thận y như bà chị của tôi... Mặc dù vậy, khi so sánh với người giống hệt trong bức chân dung đó thì...
+
+Đêm qua tôi đã mất bình tĩnh khi nhìn thấy bức tranh cô bé vẽ.
+
+Nghĩ đến cách hành xử như thể đang bực bội vô cớ, tôi lại cảm thấy căm ghét bản thân.
+
+[Ừ, về những trái cây này, ai là người đi bán cũng như nhau thôi.]
+
+Nãy giờ cô bé vừa nói chuyện vừa ngắm nhìn mọi thứ xung quanh, bỗng nhiên quay mặt sang nhìn tôi.
+
+"Hả? Tại sao?"
+
+[Bởi vì đây là những thứ mà ngay cả anh cũng mới nhìn thấy lần đầu. Có lẽ tất cả mọi người ở trong thế giới này cũng vậy. Phí đi lại trên đang không ổn lắm nên anh định được bao nhiêu cũng bán. Dù sao trái cây cũng không thể tươi nguyên cho đến khi tới được địa điểm tiếp theo.]
+
+"Này, chuyện này có lẽ không phải là điều em nên nói nhưng..."
+
+[Hửm?]
+
+Cô bé chợt ngừng lại. Mặc dù đứa trẻ này nói rằng mình đang tìm chị, nhưng... có vẻ mục đích không chỉ là thế.
+
+"Những trái cây em chưa từng nhìn thấy này ăn rất ngon. Anh đã kiếm được chúng từ đâu, và anh mang chúng tới nơi này bằng cách nào vậy?"
+
+Đôi mắt cô bé trở nên sắc bén. Ánh mắt ấy giống của gián điệp hơn là của người mua bán bình thường.
+
+Nhưng chuyện về cô chị gái có vẻ là thật, nếu là người mua bán thông tin, vậy là do tinh thần buôn bán đang bộc lộ ra sao, không, nếu chỉ do tính thần buôn bán quá lộ rõ thì không sao. Nhưng giả sử như là gián điệp của ai đó thì tôi nên làm như thế nào đây?
+
+"Để đổi lại sự an toàn cho chị gái, hãy mang thông tin tới đây", kiểu vậy à? Thực ra, lúc cô bé nói chuyện với chúng tôi, tôi cũng đã cảm thấy có vài chỗ không được tự nhiên. Nhưng khi tôi hỏi có muốn tới nhà trọ không thì cô bé lại gật đầu chẳng hề do dự.
+
+Không, nếu đúng là như vậy, mấy kẻ ngầm giật dây trong bóng tối kia quả thực hết cứu nổi. Để một cô bé mười tuổi làm chuyện như vậy. Cô bé chắc cũng mới học lớp Bốn tiểu học chứ mấy.
+
+[Hmm, về chuyện đó, anh không tự tin rằng mình có thể làm cho em tin tưởng, nhưng...]
+
+"Gì vậy gì vậy?"
+
+Cô bé tràn đầy hứng thú. Thật dễ đoán.
+
+Dù sao cũng đâu có ai quan tâm chứ. Tôi đã suy tính kỹ về đống hàng hóa này.
+
+Nói đúng hơn, tôi rất hoan nghênh chuyện thông tin được công khai đấy. Nếu mục đích của cô bé này là thăm dò thì càng không cần phải nói.
+
+[Bọn anh vốn không định đi tới nơi Tận cùng của Thế giới. Chỉ là ngẫu nhiên mới tới vùng đất này.]
+
+"Dạ."
+
+[Tụi anh đi lang thang khắp nơi, rồi một ngày, bọn anh bị một màn sương mù dày đặc nuốt mất. Sau khi tiến vào trong sương mù đó, một ngôi làng xuất hiện.]
+
+"Ngôi làng? Ở khu vực này sao?"
+
+[Nơi đó cách chỗ này khoảng hai, ba ngày đường.  Ở trong ngôi làng đó toàn là những chủng tộc anh chưa từng nhìn thấy bao giờ, trông vô cùng hung dữ.]
+
+"Hả?!"
+
+[Tuy nhiên, toàn bộ bọn họ đều có thể nói được ngôn ngữ chung, và thực ra rất tử tế. Bọn anh ở đó trong vài ngày, còn được nhận những đặc sản này làm quà.]
+
+"..."
+
+Ồ, là ánh mắt nghi ngờ. Đó là câu chuyện kỳ lạ có pha lẫn nửa thật nửa giả mà, vậy nên cô bé nhìn tôi như vậy cũng là điều dễ hiểu.
+
+[Thế nào, câu chuyện rất khó tin đúng chứ?]
+
+"Ừ... ừm. Những chủng tộc đó là gì vậy?"
+
+[Người thằn lằn và Arche. Quả thực là một nơi bí ẩn. Anh cứ ngỡ tất cả là một giấc mơ...]
+
+Tôi nhìn về phía đống trái cây.
+
+Có vật thật sẽ làm tăng tính thuyết phục cho câu chuyện. Tuy thế, tôi không định kể chuyện này tại sở giao dịch. Tôi sẽ chỉ nói chúng là vật hiếm thấy và bán đi.
+
+"Có chuyện như vậy sao?! Khó tin quá."
+
+[Ừ, hiện giờ cả anh cũng không biết có phải mình đã nằm mơ trong sương mù không.]
+
+"Sương mù... ư?"
+
+Cô bé đang trầm tư suy nghĩ điều gì đó. Hiện tại, bộ dạng đứa trẻ này khá đáng ngờ.
+
+[Hửm, Rinon. Chỗ này là sở giao dịch à?]
+
+Tôi viết tên của cô bé ở trong khung lời thoại để kéo cô bé đang chìm đắm suy nghĩ quay trở lại thực tại.
+
+Tên của cô bé này là Rinon, còn chị gái tên là Toa. Toa nhỏ hơn tôi một tuổi.
+
+Những lúc như thế này, nói chuyện bằng chữ viết thật bất tiện. Nếu không nhìn sẽ chẳng thể giao tiếp được với nhau.
+
+"Không có thông tin về một ngôi làng như vậy ở quanh đây..."
+
+Rinon vẫn đang tự lẩm bẩm.
+
+Chẳng còn cách nào khác, vì vậy tôi khẽ vỗ vai để cô bé nhận ra.
+
+"Hyaa! Anh làm gì vậy hả? Đây là quấy rối đấy, cái con người này!"
+
+Q-quấy rối á? Tôi phải khinh thường cái thế giới này mới được! Thật không ngờ ở một nơi phải đặt nghi vấn về những quyền cơ bản nhất của con người mà tôi cũng có thể nghe thấy một câu như vậy cơ đấy!
+
+[Xin, xin lỗi... Tòa nhà ở phía sau kia có phải là sở giao dịch không?]
+
+"A! Chúng ta đi quá mất rồi! Em xin lỗi!"
+
+Ở thế giới này mà cũng có quấy rối sao... Đưa tay lên gãi gãi chiếc mặt nạ, tôi cảm thấy hết sức choáng váng.
+
+Chẳng mấy chốc, chúng tôi đã tới sở giao dịch.
+
+Một gương mặt mới như tôi đương nhiên thu hút rất nhiều sự chú ý. Hơn nữa, tôi còn đeo một chiếc mặt nạ kỳ quái, nên đấy cũng là chuyện bình thường.
+
+Chẳng hiểu vì sao, Rinon bướng bỉnh không muốn vào trong sở giao dịch, cứ khăng khăng nói, "Em ở lại trong xe ngựa."
+
+Vì trang phục sao? Cô bé ngại ngùng bởi vì quần áo của mình quá rách rưới sao?
+
+Nhưng giờ dù muốn đi tới cửa hàng quần áo, tôi cũng không biết chúng ở đâu, và khả năng cao là chúng chưa mở cửa vào khoảng thời gian này.
+
+Bên cạnh đó, việc tặng quần áo cho một người chỉ vừa mới tình cờ gặp có cảm giác đáng ghét như hành vi tùy tiện của một tên nhà giàu lắm tiền ăn chơi trác táng vậy... Điều này không hề bình thường, đúng chứ?
+
+"Chào buổi sáng. Đây là lần đầu tiên chúng ta gặp mặt nhỉ, xin hỏi hôm nay ngài có chuyện gì ạ?"
+
+[Chào buổi sáng. Hôm qua, nhờ bề tôi của mình mà tôi mới biết đến nơi này. Đó là một cô gái tóc đen với bộ trang phục kỳ lạ.]
+
+Tôi miêu tả ngắn gọn vẻ ngoài của Mio.
+
+Người đàn ông trước mắt hình như đã nhớ ra Mio, xem ra ông ta có ấn tượng sâu sắc với cô ấy.
+
+"! À ừm, đã thất lễ rồi, nhưng..."
+
+[Thật xin lỗi. Vì một vài nguyên nhân khiến tôi không thể nói được, nên mới phải giao tiếp bằng chữ viết như thế này, xin thứ lỗi.]
+
+Người đó đáp lại tôi rằng "Giao tiếp bằng cách viết cũng không sao". Tôi thực sự rất biết ơn ông ta.
+
+"A, à ừm. Vậy ngài là người đã làm mất chứng nhận của Hội sao...?"
+
+[Đúng vậy, thật xấu hổ. Thậm chí tôi còn bị mất trước khi tham gia vào buôn bán nữa, đúng là rắc rối.]
+
+"Thì ra là vậy... Nhưng thưa ngài, việc ngài có thể đến được đây cũng coi như là kỳ tích đấy. Không chỉ may mắn, tài trí của ngài cũng khiến tôi phải ngả mũ bái phục. Quả thực rất đáng ghen tị."
+
+[Thực ra trước khi tới được nơi này, tôi đã phải trải qua nhiều chuyện không thể tưởng tượng nổi. Vậy nên, tôi quyết định bán những thứ có được từ các trải nghiệm đó.]
+
+"Đúng là nếu không có chứng nhận của Hội, ngài sẽ không thể bán công khai các vật phẩm của mình. Tuy vậy, chúng tôi vẫn đánh giá cao việc ngài không bán lén lút mà thông qua sở giao dịch. Thật sự rất cảm kích những thương nhân giống như ngài."
+
+Người đàn ông cười hào sảng, rồi giục tôi dẫn đường tới chỗ để hàng hóa. Có vẻ như ông ta không liên quan tới vụ trộm cắp đêm qua. Hay do ông ta là người có địa vị thấp nhất nên không được biết về vụ trộm?
+
+Bởi vì miễn cưỡng có thể giao tiếp được với nhau, nên tôi quyết định thử dò hỏi gián tiếp xem sao.
+
+[Hàng hóa ở trong chiếc xe ngựa này.]
+
+Rinon đang ngồi ở chỗ của người đánh xe. Cô bé không định bỏ trốn sao?
+
+"Ồ, đó là nô lệ của ngài à? Này, cho ta xem hàng hóa đi."
+
+Cái gì? Nô lệ?
+
+... Tôi hiểu rồi. Quả thực nếu mặc bộ trang phục giống như cô bé thì bị coi thành người đánh xe cũng không phải chuyện gì kỳ lạ.
+
+Dường như nô lệ khá phổ biến trong thế giới này.
+
+Ông chú thương nhân này cũng tiếp nhận chuyện đó một cách rất bình thường.
+
+Tuy nhiên, tôi cần phải đính chính lại sự nhầm lẫn này mới được.
+
+Thay vì phản bác lại điều mà thương nhân kia vừa nói, Rinon cũng bóc dỡ hàng hóa ra cho ông ta xem, có vẻ cô bé đã quen với việc bị đối xử như nô lệ, nhưng kể cả thế...
+
+[Xin thứ lỗi, cô bé này có quen biết với tôi, là người đã dẫn đường cho tôi tới nơi này. Cô bé không phải là nô lệ của tôi.]
+
+"Ồ, vậy sao..."
+
+Người đàn ông im lặng nhìn Rinon, đoạn, ông ta cúi đầu nói.
+
+"Thất lễ rồi."
+
+Không biết có phải vì nghĩ rằng không nên gây hiềm khích hay không, ông ta liền xin lỗi Rinon. Rinon ngạc nhiên mở to hai mắt, ngập ngừng cúi chào lại rồi cố định tấm vải che phủ hàng hóa về phía mặt bên của thùng hàng.
+
+"Đây, đây là...?!"
+
+[Thế nào? Đây chắc chắn là loại trái cây ông chưa từng nhìn thấy trước đây đúng không? Mỗi loại quả trong số đó đều cực kỳ ngon. Ông cứ ăn thử thoải mái đi.]
+
+Tôi lấy ra hai quả táo, đưa cho ông ta một quả, quả còn lại cứ như vậy mà đưa lên miệng cắn một miếng thật to.
+
+"Vậy, cảm ơn đã mời."
+
+Có lẽ yên tâm vì đã thấy tôi ăn trước, người thương nhân cũng đưa quả táo lên miệng.
+
+Ngay sau đó, ông ta mở to mắt nhìn quả táo, rồi tiếp tục cắn thêm một miếng nữa.
+
+Không để nước quả tràn ra dù chỉ một chút, ông ta một mạch ăn hết cả quả táo. Ghê thật, xem chừng ông ta vô cùng hài lòng với nó.
+
+Có lẽ bán trái cây ở đây sẽ không gặp quá nhiều khó khăn đâu nhỉ.
+
+Nếu đưa ra một cái giá có thể giúp tôi bổ sung được vài phần tiền ở trọ, tôi sẽ chẳng có vấn đề gì, thế nhưng...
+
+[Có vẻ như ông rất thích nó.]
+
+"Cái này... Tôi chưa từng ăn một loại trái cây nào ngon như vậy! Rốt cuộc ngài đã kiếm được chúng ở đâu thế?!"
+
+[Xin hãy coi đó là bí mật. Tôi muốn bán sỉ toàn bộ số trái cây này, ông có thể đảm bảo cho tôi chứ?]
+
+"Bí mật?! Chẳng lẽ... ngài định độc quyền sản phẩm này sao?!"
+
+[Độc quyền gì chứ. Những loại hoa quả này tôi chỉ nhập được một ít thôi. Vậy nên chẳng có gì đảm bảo lần sau tôi vẫn có thể nhập được hàng...]
+
+"Hả?! Như vậy ý ngài là... chỉ được mỗi lần này thôi sao?"
+
+[Đúng vậy. Mấy ngày sau tôi sẽ rời đi. Vậy nên khi đã bán hết chỗ hoa quả này, sẽ không còn nữa.]
+
+"Hừmmm. Vậy sao. chỉ một lần à..."
+
+[Ông định mua bao nhiêu tiền?]
+
+"... Tôi có thể ăn thử những thứ khác không?"
+
+[Đương nhiên. Tuy vậy, tôi không có nhiều đến thế, nên mỗi loại ông hãy lấy một quả thôi.]
+
+"Tôi hiểu rồi. Số lượng là bao nhiêu?"
+
+[Tôi chỉ đi mỗi chiếc xe này, vậy nên có bốn loại, mỗi loại bốn thùng, tổng cộng là mười sáu thùng.]
+
+Người đàn ông gọi những người đồng nghiệp tới ăn thử đào, lê, lựu và táo do tôi đưa qua (táo đã ăn hết một trái vì vậy tôi đưa qua một trái khác).
+
+... Tuy tôi chỉ chọn đại bốn loại quả này, nhưng bất kể loại nào cũng ngon hơn nhiều so với giống ban đầu.
+
+Không chỉ vậy, tôi thực sự giật mình trước sự bừa bãi của thực vật phát triến trong Á Không. Cả mùa vụ lẫn phân bón cũng chẳng cần mà cứ thế phát triển.
+
+Sau này, tôi định cải tiến chủng loại, nhưng không biết nó có khó khăn quá hay không.
+
+"Chà, mỗi trái đều rất tuyệt vời!"
+
+[Cảm ơn lời khen của ông.]
+
+"Như vậy, còn về giá cả..."
+
+[Vâng.]
+
+"Mọi người đều nhất trí rằng chất lượng sản phẩm không có gì để chê, nhưng dù sao cũng là loại hàng hóa được đưa ra thị trường lần đầu. Chúng tôi cũng cần phải cân nhắc một chút..
+
+_Chúng rất ngon, nhưng bởi vì không rõ xuất xứ, nên tôi không thể trả nhiêu tiền, xin hãy thứ lỗi,_ có lẽ ý ông ta là như vậy.
+
+"..."
+
+Sau một khoảng thời gian trầm mặc, người đàn ông mở miệng nói.
+
+"Ba mươi đồng vàng cho mỗi thùng. Tổng cộng là bốn trăm tám mươi đồng vàng, ngài cảm thấy thế nào?
+
+Cao vậy!!
+
+Tôi cứ tưởng mấy người này sẽ ép giá chứ, không ngờ lại đưa ra cái giá trên trời! Hoa quả ở đây có thể sánh ngang với kim loại hiếm rồi! Không, phải là một thùng châu báu mới đúng!
+
+Đừng có nói là mấy phần tiền trọ, chỗ này có thể trả được toàn bộ luôn rồi đấy.
+
+Mà, đàm phán có phần thuận lợi quá, tôi có nên nâng giá một chút không? Nếu OK ngay lập tức, giá trị của mặt hàng này sẽ bị giảm xuống. Tuy nhiên, nếu hét giá, "Ít nhất phải một trăm đồng vàng" để xem thử phản ứng của bọn họ, thì rất có thể họ sẽ cho rằng tôi đang có ý đồ xấu.
+
+Hơn nữa, chỉ cần nhìn mặt họ là biết họ đang nóng lòng đợi câu trả lời của tôi. Đứng từ góc nhìn của những người này, xem chừng đó là cái giá tối thiểu được đưa ra để đàm phán.
+
+[Tôi rất ngạc nhiên với số tiền ngoài dự đoán này. Tuy nhiên, là bên phía người bán, tôi nghĩ cũng không nên đưa ra yêu cầu gì quá đáng.]
+
+"Như, như vậy là ngài đồng ý sao?!"
+
+Này, ông dễ đoán quá đấy!
+
+[Không không, quyết định gấp gáp như thế thì không tốt lắm, vậy năm trăm đồng vàng thì sao? Nếu vậy, tôi sẽ không còn dị nghị gì.]
+
+Tôi thử tăng thêm một ít.
+
+"Năm trăm! Được! Quyết định như vậy đi! Này!"
+
+Người thương nhân nói với những người xung quanh rằng giao dịch đã thành công. Từng người trong số họ đều không thể che giấu được sự vui mừng.
+
+Có lẽ, nơi những thứ này sẽ được đưa tới là chỗ của quý tộc hoặc các thương nhân lớn.
+
+Rốt cuộc chúng sẽ được bán lại với giá bao nhiêu đây nhỉ? Tôi cảm thấy chắc phải gấp hai cho đến ba lần.
+
+Khi nghe thấy giá tiền đó, Rinon ngay lập tức hóa đá.
+
+Trong trường hợp của Rinon, bởi vì cô bé đã ăn trái cây với giá còn cao hơn thu nhập hàng năm của chị mình nữa mà.
+
+[Vâng, tôi đã nhận được chính xác năm trăm đồng. Xin cảm ơn.]
+
+"Chúng tôi cũng vậy! Trong quãng thời gian ngài lưu lại nơi đây, nếu có cơ hội nhận được vật phẩm hiếm có nào nữa, xin hãy ghé thăm chúng tôi."
+
+[Vâng, chắc chắn rồi.]
+
+Rinon tỉnh lại từ cơn hóa đá và cầm lấy dây cương.
+
+Những trái cây tùy ý hái xuống, lại trở thành năm mươi triệu yên.
+
+Sau khi về đến nhà trọ và trở vào phòng,...
+
+Đương nhiên, cô gái mà Tomoe bắt được đã không còn ở đây.
+
+Không những không bị trói, còn không bị canh gác, làm gì có ai ngu ngốc mà ở lại đây chứ.
+
+Thả người lên chiếc giường lớn, tôi dang tay, dang chân thành hình chữ "Đại (大)".
+
+Trước đây, mỗi khi suy nghĩ tôi thường nằm theo tư thế này. Và cũng thường xuyên ngủ quên giữa chừng. Chậc, lạc đề rồi.
+
+Cơ thể lún sâu xuống tấm đệm, nhưng ngược lại tôi càng không thể bình tĩnh được.
+
+Một chiếc giường King size, nội thất trong phòng tràn ngập cảm giác sang chảnh... Đây là lần đầu tiên tôi suy nghĩ ở trong một căn phòng xa hoa như vậy.
+
+Rinon không ở đây. Cô bé chỉ bỏ lại một câu "Em trở về nhà một chuyến" và rời đi ngay lập tức mà không để cho tôi hỏi lại một câu nào.
+
+Tuy nhiên, đó là lời nói dối. Chị cô bé không có ở nhà, chẳng có lý do nào để cô bé quay trở về nhà một mình cả.
+
+Trong lúc ngả lưng nằm xuống, tôi vừa dùng Giới để lần theo hướng đi của cô bé. Không thấy dấu hiệu của ma lực, cũng không có chuyện bị nhận ra khí tức.
+
+Hiện tại Rinon đang gặp ai đó ở cách nhà trọ vài chục mét. Từ khoảng cách này, tuy không thể nhìn thấy được tận mắt nhưng khi tập trung ý thức, tôi vẫn có thể biết được toàn bộ nội dung của cuộc nói chuyện. Còn về vẻ mặt và cử chỉ, tôi có thể nhìn thấy khi nhìn từ trên cao xuống.
+
+Năng lực mà tôi nhận được từ ngài Tsukuyomi quả là tiện lợi. Tuy nhiên, việc không có hướng dẫn sử dụng khiến cho nó giống như viên ngọc có tỳ vết vậy.
+
+"Vậy ngươi đã biết được lai lịch của những kẻ đó chưa?"
+
+Rinon lắc đầu.
+
+"Không thể, điều duy nhất tôi biết anh ta là người thừa kế của một thương hội ở đâu đó."
+
+"Cái gì vậy... Thế chẳng khác gì thông tin từ kẻ trong Hội thương nhân."
+
+Đó là chuyện đương nhiên. Ngươi nghĩ ta sẽ ba hoa nói hết toàn bộ mọi thứ cho một đứa trẻ mới gặp được một đêm chắc? Ngươi là đồ ngốc à?
+
+"Nhưng, nhưng mà... Do xe ngựa bị tấn công tại nhà trọ, tôi không thể nói chuyện được quá nhiều với anh ta..."
+
+"Nhắc mới nhớ, mấy tên chạy thoát được đã trở về. Hiện tại chúng đang được kiểm tra thân thể tại nơi ẩn náu xem có bị đặt mánh khóe nào ở trên người không nhưng cũng chẳng tìm được chút lai lịch nào của đối phương. Ngươi có thu được manh mối gì không?"
+
+"Lúc sáng sớm tôi thức dậy thì mấy chị gái đồng hành đã không còn ở đó rồi. Hơn nữa, tôi có đi tới sở giao dịch với anh ta, nhưng..."
+
+"Đồng hành à? Là hai cô gái có cấp độ thật điên rồ sao? Đến cả lệnh cấm lan truyền thông tin cũng đã bị ban xuống, nên ta không thể hỏi được kỹ càng nhưng... Sau đó thì sao?"
+
+... Thì ra là vậy. Có vẻ như tạm thời mọi người trong Hội đều bị bịt miệng. Thật đáng mừng khi thông tin của chúng tôi không bị tiết lộ ra quá nhiều.
+
+"Chị gái đáng lẽ đang ngủ ở trên giường khi tôi trở về đã không còn ở đó."
+
+"Hả?"
+
+"Sau đó, tôi nói rằng mình sẽ trở về nhà và rời đi."
+
+"Cậu ấm kia đúng là ngu xuẩn. Không trói lại mà cũng chẳng cho người canh gác."
+
+Im đi! Mặc dù là sự thật, nhưng tôi vẫn rất tức giận.
+
+Dù biết là thế... Nhưng thái độ của người đàn ông này, thật sự giống như coi tôi là kẻ-không-thể-cứu-rỗi-nổi.
+
+"Hmm, còn về hàng hóa? Ngươi có nghe ngóng được tin tức gì không?"
+
+"Cái đó thì... tôi không rõ lắm."
+
+"Ồ? Chỉ cần biết một chút là được rồi, mau nói đi."
+
+"Anh ta bị một màn sương mù dày nuốt mất ở nơi cách đây khoảng hai đến ba ngày đi đường, ở trong đó có ngôi làng của Người thằn lằn và Arche."
+
+"..."
+
+"T-thật đấy! Đó là lời mà anh trai ấy đã nói! Anh ta cũng không quá bận tâm đến giá cả!"
+
+Có lẽ vì cảm nhận được nguy hiểm từ sự trầm mặc của người đàn ông, Rinon cố gắng hết sức biện minh. Theo phản ứng này, tôi không hề có cảm giác Rinon với chúng là đồng bọn với nhau. Tôi kết luận như vậy.
+
+"Không hề quan tâm đến giá cả?"
+
+"Anh ta nói chỉ cần bán được là tốt được rồi. Mọi người ở sở giao dịch đã mua chúng với giá năm trăm đồng vàng."
+
+"Năm trăm?!"
+
+Giọng nói của người đàn ông như muốn vụn vỡ.
+
+Đó quả đúng là một số tiền lớn, nhưng bây giờ chẳng phải là lúc ngươi nên giả vờ bình tĩnh sao?
+
+"Ừ, ừm."
+
+"Đó có lẽ là giá thấp nhất. Dù vậy, cái đám kia cũng là không thể tin được... Nhưng mà, năm trăm sao..."
+
+Người đàn ông lộ vẻ mặt hèn hạ. Tôi có thể nhận ra được sự căm ghét của Rinon.
+
+Dù vậy, đúng như tôi nghĩ, quả nhiên nó là giá thấp nhất. Hơn nữa, cái giá tiền đó, vô cùng kinh khủng. Bởi vì được đánh giá là chủng loài mới, vậy nên có lẽ ngoài việc có thể thu về một số tiền kếch xù, bọn họ cũng muốn thử gieo trồng chúng.
+
+"N-này! Để cho tôi gặp chị đi! Những người kia đã nói rằng nếu tôi hỏi được nhiều điều sẽ để cho tôi gặp chị mà?!"
+
+"Này này, chỉ có chừng ấy thông tin mà ngươi đòi hỏi gì thế... Cứ thế này, ngươi sẽ chẳng bao giờ được gặp chị gái nữa đâu."
+
+... Tên rác rưởi.
+
+Giam giữ trẻ con và bắt cô bé làm công việc quá sức mình.
+
+Tôi cảm thấy tức giận rồi.
+
+Thật sự tôi đang nghiêm túc nghĩ xem có cách nào để ném cho hắn một cái ma pháp từ đây không.
+
+... Được rồi, nếu là cái này thì có thể được.
+
+Làm nào.
+
+Tuy nhiên, khi bắt đầu niệm chú thì tôi lại thay đổi ý định.
+
+Nếu bây giờ tôi làm vậy, sẽ có người chết ở trước mắt Rinon. Cảnh tượng thảm khốc ấy sẽ trở thành nỗi ám ảnh của cô bé.
+
+Chết tiệt, ngươi vừa mới nhặt được cái mạng đấy, gã đàn ông rác rưởi.
+
+Rinon túm chặt áo hắn ta và liên tục câu xin.
+
+"... Nếu ngươi đã van nài đến như vậy, cũng chẳng còn cách nào khác. Làm nốt một việc cuối cùng, ta sẽ trả chị gái lại cho ngươi. Món nợ cũng xí xóa luôn."
+
+Nợ sao? Chắc hẳn ban đầu là một số tiền rất nhỏ.
+
+"!! Thật sao?!"
+
+"Ừ, ta hứa. Được rồi chứ?"
+
+Đề nghị của người đàn ông cực kỳ đê tiện.
+
+Đương nhiên Rinon từ chối.
+
+Thế nhưng...
+
+Tôi giải trừ Giới.
+
+Kết quả tôi đã biết. Bên cạnh đó, tôi không muốn nghe thấy câu nói ấy phát ra từ miệng của Rinon.
+
+Nếu lời nói của tên đó là sự thật, khả năng cao chị của Rinon vẫn còn sống.
+
+Trong trường hợp, chị của Rinon đã chết, có thể đây sẽ là lần đầu tiên tôi giết người. Mặc dù không có nghĩa là tôi ủng hộ Tomoe, nhưng tôi nghĩ rằng mình cũng phải gây náo loạn "một chút".
+
+Tôi nhắm mắt lại, cố gắng ngủ.
+
+Sau đó là cuộc nói chuyện với Tomoe và Mio khi họ trở về. Cho tới lúc đó, tôi chẳng có việc gì đặc biệt cần làm.
+
+Hơn nữa, sau khi nghĩ về chuyện của Rinon, tôi cảm thấy đi ngủ vẫn tốt hơn.
+
+Tôi hít một hơi thật sâu, rồi ngủ thiếp đi.
+
+<br /><br /><br /><br /><br />
+# **Chapter 1**
+<br /><br /><br /><br /><br />
+
+Ồn ào quá.
+
+À, phải rồi. Tôi đã ngủ nhỉ.
+
+Rinon không sao chứ?
+
+Nói thực lòng, tôi đã nghĩ mình sẽ quyết định kế hoạch ổn định cho cuộc sống của Rinon sau này tùy thuộc vào tình hình của cô bé.
+
+Nếu Rinon vẫn-còn-sống, tôi định sẽ náo loạn một chút.	
+
+Nhưng nếu "không", tôi sẽ gây nên một cuộc đại náo loạn.
+
+"Ưm, chào buổi sáng."
+
+Tôi đảo mắt nhìn xung quanh.
+
+Tomoe, Mio, Rinon, và... một cô gái trông giống hệt bức chân dung ấy.
+
+"Thiếu chủ! Ngài tỉnh rồi."
+
+"Thiếu chủ, chào buổi sáng."
+
+Chào buổi sáng vào lúc xế chiều, là kiểu đó phải không? Nói móc về chuyện chỉ một mình tôi đuợc ngủ?
+
+Tôi huớng ánh mắt về phía Rinon. Cô bé quay mặt đi, cố gắng không nhìn về phía bên này.
+
+Ngược lại, chị gái của cô bé cúi đầu thật thấp.
+
+Có vẻ cô ấy đã bình an quay về, tạm thời không có chuyện gì. Còn em gái... có lẽ bị Tomoe hay Mio tóm được ở nơi nào đó. Cô bé bị gã đàn ông kia ra lệnh trộm số tiền tôi kiếm được ở sở giao dịch, nên hiện tại mới xuất hiện ở trước mặt tôi, chắc chắn là vậy.
+
+Tuy phải trải qua rất nhiều chuyện, nhưng xem ra Rinon vẫn là một đứa trẻ may mắn. Đúng là đáng ghen tị.
+
+"Cô gái, ngẩng đầu lên đi."
+
+Bị Tomoe nói như vậy, người chị mới rụt rè ngẩng đầu lên.
+
+[Thứ lỗi cho tôi khi giao tiếp bằng chữ viết. Cô đọc chữ được chứ?]
+
+Làm gì có chuyện em gái đọc được mà người chị lại không, nhưng tạm thời tôi vẫn xác nhận thử xem.
+
+"A, v-vâng! Lần này nhờ, nhờ có sự giúp đỡ của ngài, xin cảm ơn ngài, rất nhiều!"
+
+Đừng có nói lắp chứ, cô gái này. Có vẻ như cô ấy đang khá căng thẳng.
+
+... Nhưng mà, tôi bỏ cuộc đây.
+
+Ha ha ha, thậm chí cả giọng nói cũng giống người đó như đúc nữa. Ngoại trừ màu tóc ra, có thể nói họ giống hệt nhau.
+
+[Không cần phải sợ hãi như vậy. Dù sao cô cũng đâu phải người hầu của tôi.]
+
+"Như ngài đã thấy, toàn thân lành lặn nhé, thiếu chủ."
+
+"Mặc dù bị chuốc loại thuốc hơi phiền toái, nhưng tôi đã thanh tẩy sạch sẽ."
+
+Hai người báo cáo cứ như thể đang yêu cầu tôi hãy khen ngợi kết quả của họ vậy. Nhưng thực ra, tôi cũng nghĩ họ làm rất tốt.
+
+Vậy ra Mio bí mật trang bị sẵn năng lực thanh tẩy à. Đúng là tiện lợi.
+
+Tôi nhìn người chị một lần nữa. Tên... tôi quên mất rồi. À ừm, là gì nhỉ.
+
+Chắc chắn Rinon đã từng nói với tôi rồi, vậy mà... Xấu hổ quá.
+
+Tuy nhiên...
+
+Mặc dù biết việc mình đang làm là không lễ phép, nhưng tôi vẫn cứ nhìn chằm chằm vào cô ấy không chớp mắt từ tóc đến chân.
+
+Thế này không phải là ở mức độ giống nhau nữa rồi.
+
+Mặc dù sống ở hai thế giới khác nhau, nhưng lại cứ như hai hạt đậu trong cùng một vỏ, đúng là đáng kinh ngạc, thật đấy.
+
+Cao hơn tôi một chút, ngay cả dáng người cũng có cảm giác đã trưởng thành... Dù phần phát triến chủ yếu là ngực.
+
+Và quan trọng hơn cả, khuôn mặt cô ấy như thể hình ảnh phản chiếu trong gương của người đó vậy. Tuy nhiên, ánh mắt có phần sắc bén. Đây chắc là đặc điểm vốn có của mạo hiểm giả, một đôi mắt tràn đầy cuồng nhiệt và hiếu kỳ.
+
+Mái tóc đỏ rực rỡ của cô ấy cũng giống như em gái. Không phải là tóc đen ánh sắc đỏ.
+
+Cho dù đã ở một thế giới khác, tôi vẫn nhớ đến đàn em ấy do Tomoe, hơn nữa còn hoang tưởng về cô ấy, dù chỉ trong ảo giác.
+
+Một người đàn em đáng yêu luôn luôn nghiêm túc với cung đạo và rất nhiệt tình luyện tập ở thế giới cũ.
+
+Bởi vậy, khi mặt đối mặt, tuy biết rằng đó là một người khác, nhưng trái tim tôi vẫn đập loạn nhịp.
+
+"Là Hasegawa... à?"
+
+Tôi bất giác nói bằng ngôn ngữ ở thế giới cũ.
+
+Cô gái phản ứng lại với bờ môi vừa khép mở của tôi và âm thanh phát ra từ đó.
+
+"Hả?"
+
+Tomoe làm lơ, Mio giật giật đôi tai. Tôi có dự cảm lát nữa mình sẽ bị gặng hỏi mấy câu vô nghĩa cho xem.
+
+[Không có gì... Tôi đã rất lo lắng khi nghe sự tình từ Rinon. Cô bình an vô sự là tốt quá rồi.]
+
+"Vốn là tự làm tự chịu, thế nhưng thực sự ngài đã giúp đỡ chúng tôi rất nhiều... Vì từ trước tới giờ mọi chuyện vẫn rất thuận lợi, thế nên tôi mới chủ quan, chắc chắn là vậy."
+
+Cách xem xét lại hành động của chính mình cũng giống Hasegawa như đúc.
+
+Nếu vì kiếm được nhiều tiền mà dám đi loanh quanh ở vùng biên giới, tôi cũng có thể đồng ý rằng quả thực cô ấy đã tự tin quá mức.
+
+Mặc dù vậy, tôi vẫn băn khoăn không biết có thật là chỉ vì lý do đó mà cô ấy dẫn theo em gái tới đây không.
+
+Chỉ vì một lần thất bại, em gái phải thất thểu lê bước trên con đường vào buổi đêm trong bộ dạng giống như ăn xin, người chị thì bị nguy hiểm tới tính mạng do thuốc.
+
+[Đây có vẻ là một nơi khá nguy hiểm. Nhờ những người đồng hành đi cùng rất ưu tú nên tôi mới may mắn sống sót được.]
+
+Tôi đáp lại cô ấy xen lẫn với nụ cười khổ.
+
+Thực ra, bản thân cấp độ của Tomoe và Mio đã là một thứ vô cùng hão huyền rồi.
+
+Hai người được nhắc tới đang thể hiện vẻ mặt tươi cười vui vẻ và bộ dạng vô cùng hài lòng. Cả hai đều mỉm cười khúc khích, chẳng tỏ ra căng thẳng chút nào.
+
+Phản ứng của người chị là cảm động, còn cô em gái thì sợ hãi.
+
+"Sức mạnh của hai vị quả thực là tuyệt vời. Đầu tiên, họ bỗng nhiên xuất hiện ở trong căn phòng giam giữ chúng tôi mà không hề phát ra bất kỳ âm thanh nào, thật lợi hại!"
+
+"Không không, không đến mức thế đâu..."
+
+"Nếu sử dụng ma thuật hệ Ám, mức độ như thế cũng chẳng là gì."
+
+Vẻ mặt của mấy người hơi thoải mái quá rồi đấy. Vui mừng cũng có mức độ thôi chứ.
+
+"Đúng vậy! Là ma thuật hệ Ám đó! Loại bỏ tác dụng của thuốc khỏi cơ thể của tôi, sau đó, cô ấy đã dùng loại thuật không cần niệm chú để phá vỡ tức thì cánh cửa được cường hóa cẩn thận bằng phòng ngự vật lý và phòng ngự chống ma thuật!"
+
+Hửm, lúc rời đi mới phá vỡ cánh cửa?! Tomoe và Mio đã làm thế nào để vào căn phòng thế? Theo lời người chị nói, họ đã xuất hiện mà không có âm thanh hay tiếng động, có lẽ họ đã sử dụng sương mù và bóng tối để dịch chuyển chăng? Nếu trở về mà cũng dùng cách đó, quả thực là không ổn.
+
+Tuy nhiên, năng lực thanh tẩy hữu dụng ra phết... Lần sau tôi sẽ thử hỏi Mio xem. Nhưng chuyện phá cửa vẫn làm hơi quá mức, điểm cộng của tôi cho cô đã về không rồi đấy, Mio.
+
+Có điều, chị gái đã trở về, nhưng tại sao Rinon vẫn không bộc lộ một chút cảm xúc vui mừng nào khi gặp lại chị mình vậy, tôi vẫn chưa được nhận lời giải thích.
+
+Có khả năng sau khi bị gã đàn ông kia ra lệnh trộm tiền, cô bé vừa trở lại nhà trọ thì bị một trong hai người Tomoe và Mio bắt lại...
+
+Không biết vì sao tôi lại cảm thấy thật lúng túng.
+
+Tuy nhiên, tôi nghĩ Rinon chắc hẳn sẽ rất hạnh phúc khi mục đích thực sự của cô bé là chị gái của mình vẫn còn sống sót quay trở về đã được thực hiện.
+
+Rinon với vẻ mặt đăm chiêu suy nghĩ, vẫn bất động rồi cúi đầu.
+
+"Hơn nữa, ngài Tomoe còn dùng thể thuật tuyệt vời của mình _pặc pặc_ hạ gục những người canh gác và lính đánh thuê đang làm nhiệm vụ."
+
+Ồ?
+
+Cảm giác như cô ấy đang nói về một bí mật động trời nào vậy... Người chị đang nói phóng đại lên hay sao? Dù tôi đã cảnh báo Tomoe, nhưng không ngờ cô ấy lại chiến đấu phô trương đến thế.
+
+"!! C-cô đang nói quá rồi đấy, Toa. Cũng không đến mức như vậy dâu..."
+
+Có một tên ngốc với vẻ mặt giống như một đứa trẻ bày trò nghịch ngợm vừa bị phát hiện kìa. Tomoe cố ngắt lời của người chị, nhưng bị tôi ngăn lại. Đồng thời tôi cũng phát hiện mồ hôi đang chảy trên trán của Mio.
+
+Không cần tôi giục, chị gái của Rinon, đúng rồi, tên là Toa, vẫn đang tiếp tục nói trong sự phân khích.
+
+"Nói quá gì chứ! Sức mạnh khủng khiếp như vậy, đây là lần đầu tiên tôi nhìn thấy đấy! Thậm chí cả tòa nhà được xây bằng vật liệu đặc biệt, được trang bị cả phòng ngự chống ma thuật cũng biến mất không còn dấu vết trước kiếm của ngài Tomoe và bóng tối của ngài Mio..."
+
+Tomoe và Mio bắt đầu run rẩy.
+
+"Họ còn đánh bại cả đội ngũ hỗn tạp mạo hiểm giả và lính đánh thuê được dẫn đầu bởi Ace - người có cấp độ cao nhất tại Hội ở đây."
+
+... Uôôô?!
+
+Sao lại trở nên như vậy?! Chuyện gì đã xảy ra thế?!
+
+Chẳng lẽ trong khoảng thời gian tôi ngủ, rất nhiều chuyện đã được giải quyết rồi sao?! Là nói dối, đúng không?!
+
+Lúc nghe Toa nói, vẻ mặt của tôi trong nháy mắt không biết đã thay đổi bao nhiêu lần, chắc hẳn đó là cảnh tượng không thường thấy đâu. Có mặt nạ thực sự tốt quá... A, tôi... đang khóc sao?
+
+Tuy nhiên, cuộc nói chuyện nãy giờ chỉ là màn dạo đầu, Toa bây giờ mới bắt đầu kể lại cho tôi biết chỉ tiết toàn bộ sự việc.
+
+<br /><br /><br /><br /><br />
+#### **◇◆ Toa ◇◆**
+<br /><br /><br /><br /><br />
+
+Không nhận trước bất cứ ủy thác đặc biệt nào, chúng tôi lập ra một đội năm người và đi đến vùng hoang dã nơi Tận cùng của Thế giới để thăm dò.
+
+Chúng tôi không đến nơi đã từng có người đặt chân tới như rừng rậm hay hang động trong khu vực này. Những nơi đó chỉ có thể khai phá được đến trung tầng là cùng.
+
+Sau khoảng hơn một tuần thăm dò, chúng tôi phát hiện ra một vành đai núi lửa có dấu vết sinh sống của tộc Người lùn Elder.
+
+Tuy nhiên, vì đội ngũ phát hiện ra vành đai núi lửa ngay sau đó đã bị con nhện đen Tai Họa tấn công và may mắn thoát chết, vậy nên chúng tôi cũng chưa thể hỏi được chi tiết.
+
+Dù thế, phát hiện được một nơi có thể thăm dò và kiếm được những món vũ khí hay đồ phòng ngự cao cấp hạng nhất cũng là một thành tựu lớn.
+
+Nói về những chủng tộc có tên "Người lùn" sinh sống bằng nghề thợ rèn, Người lùn Elder nổi tiếng là chủng tộc nắm giữ kỹ thuật cao nhất. Gần đây họ rất hiếm khi xuất hiện, thế nên nếu nói họ đang sống ẩn cư ở tại nơi Tận cùng của Thế giới này thì cũng hợp lý. Mặc dù có rất nhiều điểm đáng nghi, nhưng đấy là nơi cho dù có chuyện gì xảy ra thì cũng không có gì quá kỳ lạ. Nếu như, có thể nắm trong tay những món vũ khí và áo giáp do bọn họ làm ra...
+
+Tạm thời chưa nói tới đám thương nhân, nếu xét từ góc nhìn của những mạo hiểm giả chúng tôi, không gì đáng vui mừng hơn việc trực tiếp kiếm được những món vũ khí và áo giáp xuất sắc.
+
+Hơn nữa, chỉ với cấp độ như chúng tôi, tuyệt đối không có khả năng được chọn khi một cuộc tác chiến thăm dò quy mô lớn được tổ chức.
+
+Với tình trạng hiện giờ, nơi chúng tôi, những người với cấp độ bình quân là 120, đang ở thật sự rất gần với căn cứ này. Việc thu thập vật liệu và cung cấp bộ phận có thể bán được từ những con ma vật mà chúng tôi có thể tiêu diệt đã là cố gắng hết sức rồi.
+
+Vốn dĩ, nếu ở những quốc gia như Tứ Đại Quốc, đội ngũ với cấp 120 sẽ có địa vị khá cao, có thể hoàn thành được phần lớn Hầm Ngục và những cuộc chinh phạt ma vật. Thực ra, chúng tôi cũng là một đội ngũ khá nổi tiếng ở Đế Quốc.
+
+Nhưng ở nơi này, chúng tôi chỉ là gà con. Thực ra, có thế nói là ở trình độ như những kẻ mới vào nghề.
+
+Trong lần thăm dò đầu tiên sau khi đi tới căn cứ này, chúng tôi đã chết mất hai người. Lần thứ ba là một người.
+
+Mặc dù cứ mỗi lần đội ngũ thiếu người, chúng tôi đều chiêu mộ thêm người mới, nhưng khoảng thời gian gần đây, một người còn sống sót cuối cùng đã quyết định trở về và rời khỏi đội. Như vậy, thành viên từ hồi mới đi tới vùng đất này chỉ còn lại mỗi mình tôi.
+
+Và trong cuộc thăm dò lần trước, yêu cầu chinh phạt con chó đen hai đầu có tên là Lizoo đã thất bại.
+
+Một lần mất đi bốn người đồng đội vừa mới được bổ sung thêm, tôi quay trở về với hai bàn tay trắng.
+
+Đối với tôi, người đã chuẩn bị cho món nợ, dùng thành quả để trả nợ và lấy được lợi ích, đây là một thất bại trí mạng.
+
+Đương nhiên, tôi không thể trả được tiền cho người cho vay nặng lãi, và đành phải lao động chân tay để trả nợ.
+
+Đối với mạo hiểm giả, điều này có nghĩa là đã rút lui và không bao giờ có thể quay trở lại.
+
+Tôi chẳng có biện pháp nào chống lại kẻ cho vay nặng lãi luôn mang theo những người vệ sĩ với cấp độ cao hơn nhiều so với bản thân tôi, cuộc hành trình của tôi vậy là đã đến hồi kết thúc.
+
+Tôi là nữ, khuôn mặt và cơ thể cũng không có tôn hại gì. Khi ấy, cũng dễ dàng đoán ra bọn chúng sẽ bắt tôi làm công việc gì. Sau khi bị ép uống thuốc, tôi bắt đâu công việc tại nhà thổ.
+
+Khách hàng tại nơi này là những kẻ có nhu cầu giải tỏa áp lực. Cơ thể tôi nhanh chóng bị hủy hoại, trở thành một món đồ không thể sử dụng được nữa. Sau đó, tôi lại bị bán cho nơi khác.
+
+Bị đánh thuốc, không cách nào phản kháng lại, mê man bất tình trong một căn phòng, rồi chờ đợi đến phiên mình trở thành chuột bạch cho thí nghiệm trên cơ thể con người... Bây giờ ngẫm lại, từ lúc bị buộc phải trở thành gái điếm, số phận của tôi cũng đã được quyết định rồi.
+
+Trên con đường chông gai này, tôi chỉ mong muốn một thứ duy nhất.
+
+Thực ra, đối với tôi, vũ khí của Người lùn hay tiền đều được. Nếu nắm được chúng trong tay, tôi sẽ rời đi ngay lập tức. Nhưng ở nơi này, tôi mất hết toàn bộ mọi thứ, chẳng khác nào đã chết.
+
+Em gái tôi e rằng cũng không xong rồi. Nó vẫn còn nhỏ và chỉ có tôi là người thân duy nhất, nên thay vì đi thăm dò cùng chúng tôi thì con bé chỉ đợi ở căn cứ, nhưng khi tôi chết rồi, sự lo lắng này còn ý nghĩa gì nữa chứ.
+
+Ở nơi này, một đứa trẻ không cách nào tồn tại một mình. Em gái tôi lại không phải là mạo hiểm giả.
+
+Tôi vô cùng hối hận, nhưng chẳng thể làm được gì.
+
+Thực sự không còn cách nào nữa sao...
+
+Trong quá khứ, khi tổ tiên của tôi còn quản lý việc thờ cúng của thần điện Tinh linh, người có năng lực cao nhất trong bộ tộc đã tham gia vào một đội ngũ nào đó và khiêu chiến với nhiệm vụ tiêu diệt rồng.
+
+Có vẻ sinh vật cấp cao nắm giữ biệt danh "Vô Địch" tương truyền đang nằm ở phía sâu bên trong nơi tận cùng.
+
+Mọi người đều tin tưởng vào thành công của cuộc chinh phạt, thế nhưng kết quả lại ngược lại.
+
+Không một người nào quay trở lại, một chiến bại triệt để.
+
+Cấp độ bình quân của đội ngũ, theo như lời đồn khi ấy là khoảng chừng 600. Dù vậy, đáng lẽ cuộc chiến vẫn có phần thắng...
+
+Bởi quy mô của đội ngũ đó đã vượt quá trăm người.
+
+Lúc ấy, vì người đó đã làm mất một thanh đoản kiếm được gọi là thần khí, nên bộ tộc của tôi đã phải chịu sự phỉ báng và bị đuổi khỏi thần điện.
+
+Tổ tiên của tôi cũng vì tuân theo quyết định của thần điện, mới cầm theo món thần khí được dùng để cúng tế và mang đi tiêu diệt rồng mà thôi. Khi không một ai trở về, tại sao chỉ mỗi tổ tiên của tôi lại phải chịu trách nhiệm? Mặc dù bây giờ có tức giận cũng chẳng thể thay đổi được điều gì, nhưng mỗi khi nhớ đến tôi lại cảm thấy sôi máu.
+
+Bộ tộc của tôi chạy trốn tới thị trấn khác, hòa nhập vào đám đông như những dân thường, phải thay đổi nơi ở không biết bao nhiêu lần, cho tới thời của tôi.
+
+Đối với tôi, người luôn luôn lắng nghe câu chuyện đó, đương nhiên mục tiêu kể từ lúc bắt đầu hiểu chuyện chính là đi tới nơi Tận cùng và tìm lại thanh kiếm đã đánh mất.
+
+Trở thành mạo hiểm giả, không ngừng rèn luyện sức mạnh, chờ đợi cơ hội, và cuối cùng đã tới được nơi Tận cùng, vậy mà...
+
+Tôi không thể thu thập được bất kỳ thông tin gì về con rồng hay là thông tin về thanh kiếm. Thậm chí, ngay cả mục đích đó cũng đã dần tan rã trong tâm trí do tác dụng của thuốc. Thế nhưng, ngay khi khát vọng sống của tôi vụt tắt, kỳ tích lại phát sinh.
+
+"Có vẻ đúng là cô gái này rồi."
+
+"A, tốt quá! vẫn còn sống."
+
+Giọng nói của ai đó lao xao bên tai. Tuy nhiên, tôi chẳng thể làm được gì cả. Không thể cử động, cũng không thể nói chuyện.
+
+"Hửm? Dáng vẻ hình như hơi kỳ lạ?"
+
+"... Cô ấy bị đánh thuốc rồi."
+
+"Hmm. Nếu thế, mang cô ta đi trong tình trạng này chẳng phải sẽ cầm chắc cái chết hay sao?"
+
+"Đợi chút... Xem ra đây là là loại thuốc cướp đoạt tự do của cơ thể và suy nghĩ."
+
+"Hô, cô không ngờ lại có kiến thức về thuốc đấy. Thật thuận tiện. Vậy, làm thế nào bây giờ? Cô có cách gì không?"
+
+"Ha ha ha, đương nhiên. Chỉ là trò vặt vãnh mà thôi."
+
+Bàn tay của người nữ tóc đen đặt lên trên đầu tôi. Sau đó, trong chớp mắt, tri giác đã quay trở lại, đầu óc trống rỗng cũng trở nên minh bạch. Vậy mà nãy giờ, tôi chẳng thể nghĩ được một điều gì...
+
+"Hô, ghê thiệt đấy."
+
+Người nữ tóc màu xanh lam nhìn tôi và thở ra một hơi giống như đang thán phục.
+
+"Tiếp theo... Thêm món khuyến mãi này."
+
+Cô gái tóc đen nói như vậy xong, cánh cửa đáng lẽ đã được cường hóa từ trước bị bóng tối dần dần nuốt chửng, và vỡ nát.
+
+... A, hai người này làm thế nào mà vào được đây.
+
+Nếu cánh cửa vẫn còn nguyên, vậy rốt cuộc...
+
+"Cô là Toa à?"
+
+Cô gái với mái tóc màu xanh lam khoanh tay và nhìn xuống tôi.
+
+Gì thế, có chuyện gì đang diễn ra vậy? Là tới cứu tôi sao?
+
+"V-vâng. Tôi là Toa, nhưng..."
+
+"Cơ thể thế nào rồi? Không sao chứ?"
+
+Họ lo lắng... cho tôi sao? Vậy không phải là kẻ địch à? Chuyện này có thể là...
+
+"Tôi cảm thấy hơi mệt một chút, nhưng có thể cử động được."
+
+"Tốt lắm. Được rồi, nếu vậy thì... Mio, đi nào."
+
+"Được, chúng ta mau chóng trở về thôi, Tomoe."
+
+"Ừm, a... không, chờ đã. Nguy rồi nguy rồi! Chúng ta lại bị thiếu chủ gài rồi."
+
+Cô gái tên Tomoe đột nhiên thu lại bước chân đang tiến về phía cánh cửa.
+
+"Sao cơ? Có chuyện gì vậy?"
+
+"Nghe này Mio, thiếu chủ đã ra lệnh cho chúng ta cứu cô gái này đúng không?"
+
+"Đúng vậy, và như cô đã thấy, cô gái này chẳng phải đã an toàn rồi sao?"
+
+"Ngây thơ! Cô quá ngây thơ!"
+
+"Hả?! Tại sao?!"
+
+Mặc dù nơi này nằm ngay giữa lãnh thổ của kẻ địch, nhưng bọn họ nói chuyện mà không thèm kìm nén âm lượng của mình chút nào.
+
+Đáng lẽ tôi nên ngăn cản, nhưng trước tình thế quá xa vời so với hiện thực, tôi đã không thể phán đoán được như bình thường.
+
+"Thấy chúng ta chỉ cứu mỗi cô gái này, thiếu chủ thể nào cũng sẽ nói 'Tomoe, Mio, vậy những người khác đâu?' cho mà xem."
+
+"...Hả!"
+
+"Có vẻ như cô đã hiểu rồi đấy. Nói tóm lại, nếu chúng ta chỉ cứu và mang về mỗi cô gái này thì..."
+
+"Thiếu chủ sẽ nổi giận?!"
+
+Cô gái tên Mio kêu lên với vẻ mặt hốt hoảng.
+
+"Đúng vậy đấy."
+
+Tomoe gật đâu với vẻ mặt tự mãn.
+
+"Nói cách khác, nhiệm vụ của chúng ta là..."
+
+"Mặc dù phiền toái, nhưng chúng ta phải cứu tất cả mọi người mới là đáp án chính xác, đúng chứ?"
+
+"Ừ. Ngoại trừ cô gái này, khi quay trở lại thị trấn, chúng ta thả họ ở đâu cũng được. Mang toàn bộ mọi người về phòng thì không đủ chỗ ở đâu."
+
+"Thì ra là vậy, tôi đã hiểu rồi."
+
+Hai người họ _ừm ừm_ và gật đầu giống như đã ngộ ra điều gì đó. Nhưng bây giờ đâu phải là lúc bọn họ nhàn nhã như vậy...
+
+"Xin lỗi, nhưng các người chỉ đi được đến đây thôi, những kẻ xâm nhập."
+
+A, tôi hai tay ôm đầu. Biết ngay mà.
+
+Đã phá hủy cánh cửa bị khóa, lại còn nói lớn tiếng như vậy, làm sao mà mấy kẻ đó không nhận ra là có người xâm nhập chứ.
+
+Giọng nói này là của tên đó, kẻ có cấp độ cao nhất của Hội mạo hiểm giả tại căn cứ này - Ace.
+
+Thay vì đi thăm dò, tên đó lại thích kiếm được tiền từ việc làm hộ vệ cho mấy kẻ giàu có hơn.
+
+Tuy vậy, thực lực vẫn là thứ được coi trọng nhất ở nơi này. Cấp độ của người đứng thứ hai hoàn toàn cách biệt.
+
+Cơ hội tốt vậy mà...
+
+"... Bị phát hiện rồi sao?"
+
+"Ái chà, tới rồi đấy."
+
+Nhưng hai người họ chẳng hề mảy may dao dộng chút nào.
+
+Đối phương ở cấp 444. Trên thế giới, hắn cũng được tính là mạo hiểm giả hiếm có, chỉ đếm được trên đầu ngón tay đấy, tại sao hai người này lại ung dung quá vậy?
+
+"Hửm? Những kẻ đó... Này!"
+
+Ace lên tiếng gọi đồng bọn.
+
+"Vâng!"
+
+"Chẳng phải đó là mấy kẻ vô cùng kỳ quái mà các người đã nói sao?"
+
+Ace nói như vậy với một người trong đám đồng bọn.
+
+"A, đúng vậy. Chính là những tên này, Ace."
+
+"Hả? Vậy hai người là những con quái vật với cấp độ bốn chữ số à? Không ngờ chúng ta lại gặp mặt ở nơi kỳ lạ này."
+
+Bốn chữ số? Cái gì cơ?
+
+"Gì thế, bọn họ đã biết về chúng ta rồi à? Tin tức nhanh nhạy thật đấy."
+
+"Đúng như thiếu chủ đã nói, nhanh chóng hành động quả nhiên chính xác."
+
+"Ta cũng rất ngạc nhiên đấy... Từ nơi đâu mà các ngươi biết được phương pháp kia?"
+
+Ace nhìn hai người giống như đang đánh giá với vẻ mặt rất hèn hạ.
+
+Tôi không thể theo kịp cuộc nói chuyện. Dưới tình huống không hiểu rõ được tình hình như lúc này khiến tôi rất hoảng sợ.
+
+"Phương pháp?"
+
+"Là sao?"
+
+"Đừng giả vờ không biết. 'Phương pháp sửa đổi cấp độ và gây nhầm lẫn' ấy? Mấy người đã làm quá trớn rồi, cấp 1320 và 1500 á? Ha ha ha ha."
+
+Sửa đổi cấp độ? Nhầm lẫn? Ace đang nói về cái gì vậy?
+
+"Ta cũng chỉ ngẫu nhiên mới biết được mà thôi. Không ngờ chất dịch kia lại có hiệu quả như vậy... Ta còn tưởng rằng đây là bí mật chỉ mình ta biết."
+
+"Tôi cũng được Ace chỉ cho mới biết được. Hóa ra là vậy sao? Bốn chữ số rõ ràng là giả."
+
+Hai cô gái Tomoe và Mio thở dài.
+
+"Ta không quan tâm các ngươi nghĩ gì, nhưng..."
+
+Tomoe lên tiếng với biểu cảm ngạc nhiên.
+
+"... A, gì vậy? Chẳng nhẽ các ngươi cũng không biết sao? Ta lỡ nói ra mất rồi. Vậy ra kẻ còn lại đồng hành cùng các ngươi đã bày ra âm mưu này à?"
+
+Lời nói của Ace khiến cho bầu không khí giữa hai người có phần thay đổi.
+
+"Xem ra là một tay lừa đảo ghê gớm nhỉ?! Hắn còn nói rằng mình là người thừa kế của một thương hội nào đó, rõ ràng sặc mùi dối trá?!"
+
+Đột nhiên đám thủ hạ của Ace bật cười khoái trá. Chúng trông có vẻ rất hưng phấn, chúng đã uống rượu sao? Cậy có ưu thế tuyệt đối về số lượng nên mới ung dung như vậy à?
+
+... Cảm giác bứt rứt khó chịu vẫn âm ỉ trong lòng tôi, nhưng lại không phải do đám người Ace. Đây rốt cuộc là...
+
+"Là đàn ông mà lại mang mặt nạ, đeo một chiếc nhẫn màu hồng và dùng chữ viết để giao tiếp. Tưởng nơi này là hội trường hóa trang à!"
+
+A, đây là... tức giận.
+
+"Chắc chắn ở đằng sau chiếc mặt nạ là một con Goblin, hoặc xấu xí chẳng kém gì một chủng tộc không phải Loài người!! Hya ha ha ha!!"
+
+Rầmmmm!!
+
+Một tiếng va đập đột ngột vang lên.
+
+Tôi có thể nhìn thấy nắm đấm ngay sát khuôn mặt của Ace, và một khối bóng tối ở trước cơ thể anh ta.
+
+Nhưng cả hai thứ đều bị ngăn cản ở phía trước. Đây là...
+
+"... Clay... Aegis."
+
+Thanh âm không kiềm được bật ra khỏi miệng. Tôi giật mình trước cảnh tượng đang xảy ra ở trước mắt.
+
+Thứ được gọi là Clay Aegis - một loại trang bị được gia công từ nhiều kim loại hiếm chỉ có tại vùng xung quanh căn cứ này, có thể tạo ra kết giới chống lại những tác động vật lý và kháng ma pháp. Tuy số lần sử dụng có giới hạn, nhưng tôi nghe nói rằng nó có thể phát động một bức tường phòng ngự khá mạnh mẽ.
+
+Tiếng động vừa rồi là âm thanh phát ra khi đòn tấn công của hai người bị ngăn trở bởi kết giới sao? Không ngờ hai người họ có thể tung ra đòn tấn công mạnh mẽ chấn động đến mức gây ra một cơn cuồng phong.
+
+"Ồ, ồ. Hai người các ngươi cũng có sức mạnh đấy nhỉ. May mà ta đã chuẩn bị sẵn thứ này. Nhưng thật đáng tiếc..
+
+"Này, Mio, cô có thể nhanh chóng thanh tẩy cho những người khác được không? Lão sẽ giải quyết thứ này."
+
+"Xin cô đừng nói đùa được chứ? Đối với lời nói lăng mạ thiếu chủ kia, tôi xin chịu trách nhiệm xử lý tận gốc. Nhân tiện, Tomoe, không phải cô bảo rằng sau sự kiện này mới tự xưng là 'lão' sao?"
+
+Chẳng thèm để ý tới lời nói của Ace, kẻ vừa mới phòng thủ được đòn tấn công của họ, Tomoe và Mio tranh luận với nhau giống như đang tranh cướp con mồi.
+
+"... Này, nghe ta nói đây..."
+
+"Đằng nào cũng bị nhận ra rồi. Cô cứ thanh tẩy xong đi rồi tham gia vào là được. Quen với nó sẽ tốt cho cơ thể cô đấy. Nói chung, tôi phải đánh cho cái tên này một trận mới được."
+
+"Ha, nếu không để phần lại cho tôi, tôi sẽ không tha thứ cho cô đâu. Đặc biệt là khuôn mặt, tôi nhất định phải cho hắn vài cái bạt tai."
+
+"Hiểu rồi. Nhân dịp này, chúng ta hãy dùng tên đó để luyện tập kiềm chế sức mạnh đi."
+
+Cuộc trao đổi hoàn toàn phớt lờ Ace đã kết thúc. Và sau đó...
+
+Mio thanh tẩy những người đã bị bắt cùng tôi, giống như cách mà cô ấy đã làm với tôi trước đó. Đương nhiên... Vẫn như lần trước, cô ấy cũng chẳng thèm niệm chú.
+
+Tomoe nhìn về phía Ace.
+
+"Như vậy, ta sẽ bắt đầu bằng nắm đấm nhé. Vì Mio, ngươi nhất định phải chống đỡ được đấy." Dứt lời, Tomoe tung cú đấm rồi nhanh chóng thu cánh tay lại.
+
+_Choang._
+
+Nắm đấm thứ hai Tomoe tung ra phá vỡ bức tường kết giới Clay Aegis, trực tiếp trúng thẳng vào mặt Ace.
+
+Chỉ bằng một cú đấm, Ace bị đánh văng, lún sâu vào trong tường và ngã xuống mà không phát ra một âm thanh nào. Người đàn ông mạnh nhất ở căn cứ này bị...
+
+"Nào nào, mấy tên tiếp theo mau xông lên đi!"
+
+Nói xong, Tomoe không thèm dùng vũ khí tương tự kiếm đang đeo ở bên hông, mà lao tới đấm những người lính đánh thuê đang cầm những món vũ khí sắc nhọn lóe lên những ánh sáng lạnh.
+
+Cô ấy dùng nắm đấm đánh gãy kiếm của đối phương. _Chap chap,_ cô gái trẻ măng liên tiếp đánh gục những người đàn ông cường tráng.
+
+"Đợi chút! Tôi cũng tham gia nữa!"
+
+Sau khi thanh tẩy xong cho mọi người, Mio cũng sẽ tham gia vào cuộc loạn đấu. Khi tôi vừa nghĩ vậy thì Mio đã lao đến túm cổ áo của Ace đang lún sâu vào trong bức tường và xốc lên...
+
+_Pa pa pa pa pa pa pa pa pa pa pa pa..._
+
+Cô ấy tát liên tục vào mặt hắn ta. Động tác nhanh đến nỗi tôi không nhìn thấy được cánh tay phải của cô ấy. Chẳng cần phải đợi cho đến ngày hôm sau, khuôn mặt của Ace đã sưng phù thành một trái bóng ngay tại chỗ.
+
+"Phù."
+
+Dường như đã tạm thời hài lòng, đến lúc này cô ấy mới thực sự tham gia vào cuộc hỗn chiến.
+
+"Ồ! Tới rồi đấy à, Mio! Nghe này, nhớ phải ra tay nhẹ nhàng hết sức có thể đấy, và miễn cưỡng không chết thôi nhé."
+
+"Nếu chỉ với số lượng thế này, tôi chắc chắn sẽ nhớ. Đơn giản thôi ấy mà. Cái tên ban nãy chắc hẳn cũng chưa chết đâu!"
+
+"Hmm... Chúng ta có nên mở rộng nơi này thêm nữa không?"
+
+"Đúng vậy. Chỗ này hơi chật hẹp để náo loạn đó."
+
+Tomoe rút món vũ khí giống như kiếm của mình ra khỏi bao.
+
+Không một tiếng động, Mio dùng bóng tối bao quanh bàn tay nhỏ trắng nõn của cô ấy.
+
+Khi ánh sáng trên thanh kiếm lóe lên, cũng là lúc bức tường xung quanh sụp đổ, nền nhà chìm sâu vào trong bóng tối đang lan rộng.
+
+Tòa nhà đáng lẽ phải vô cùng kiên cố trong nháy mắt bỗng sụp đổ, mở ra một không gian thoáng đãng, rộng rãi.
+
+Đây là... mơ sao?
+
+"Được rồi."
+
+Nói xong, hai người họ dừng kiếm và bóng tối lại, rồi xắn quần áo lên để cho tiện cử động.
+
+Hai cô gái đấm, đá, ném và truy đuổi theo đám người có cấp độ gần 200 đang bỏ chạy tán loạn giống như đàn nhện con.
+
+Tôi... đã bắt đầu tin rằng bọn họ có cấp 1320 và 1500. Cảnh tượng trước mắt quả là có tác động vô cùng mạnh mẽ.
+
+Không chỉ tôi, mà cả toàn bộ những người bị bắt khác đều bị cơn sốc đó cướp mất năng lực suy nghĩ và khả năng điều khiển bản thân.
+
+... Cuộc hỗn chiến đã kết thúc. Tất cả chỉ mất khoảng vài phút.
+
+Thứ duy nhất còn sót lại trong tòa kiến trúc này là căn phòng mà chúng tôi đang đứng.
+
+Tòa nhà vốn là một dinh thự to lớn nằm ở phía ngoài căn cứ đã biến thành một đống đổ nát.
+
+_"Du la nga!!"_
+
+Bất thình lình, tôi chợt cảm nhận được một sự lạnh lẽo ở trên cổ.
+
+Có cái gì đó đang kề sát một vật sắc nhọn vào cổ tôi và kêu lên như vậy.
+
+Bất cẩn rồi. Là Ace. Âm thanh ấm ách phát ra từ khuôn mặt bị sưng phù khiến cho người khác cũng phải đồng cảm với hắn ta.
+
+Chắc hẳn hắn ta đang liều mạng cố gắng nói rằng "Dừng lại ngay".
+
+Tomoe và cả Mio, trông có vẻ như không hề quan tâm tới chuyện Ace đã tỉnh lại, mà vẫn tiếp tục tìm kiếm những kẻ còn lại và xử lý từng tên. Đúng là lợi hại.
+
+_"Du la nga...!"_
+
+Vào lúc hắn ta định lặp lại lời nói một lần nữa thì...
+
+Hai người họ bỗng xuất hiện ở bên cạnh tôi. Tomoe ở bên trái. Mio ở bên phải.
+
+"Ồn ào quá!"
+
+Trúng phải cú đá của Tomoe và nắm đấm của Mio, Ace bị đánh bay tới nơi nào đó. Đây là lần đầu tiên kể từ khi sinh ra, tôi được nhìn thấy có người bị đánh bay thành ngôi sao như vậy.
+
+"Hmm, có lẽ, chúng ta đã hơi quá tay rồi?"
+
+"Không không, vô lễ với thiếu chủ là vạn lần đáng chết."
+
+"Đúng thế. Như vậy, vấn đề đã được giải quyết! A hahaa."
+
+"Ừ, về kết quả, số người 'chết dở' của tôi nhiều hơn, đúng không? Ha ha ha."
+
+Đột nhiên, Tomoe ngừng cười.
+
+Hả... Không phải cuộc chiến đã kết thúc rồi à? Bầu không khí nguy hiểm này là sao?
+
+"Cô chưa tính ngủ à? Đúng là cô cũng rất cố gắng, nhưng bên lão nhiều hơn ba người mới đúng?"
+
+"Ai nha, cô không giỏi tính toán hay sao vậy? Bên phía tôi nhiều hơn hai chứ?"
+
+"Hô! Lão ngạc nhiên là cô còn không biết phép tính một cộng một đấy. Nghe này, bên phía lão mới nhiều hơn."
+
+"Không, là tôi."
+
+Hai người họ bắt đầu cãi nhau và tôi là người bị kẹp ở giữa. Thật đáng sợ. Bởi vì ngay cả một ngón út của bọn họ cũng tuyệt đối mạnh hơn tôi.
+
+"A, à ừm. Xin hãy tạm thời để cuộc trao đổi này sang một bên được không..."
+
+Tôi không nhịn được chen miệng nói. Mạng sống khó khăn lắm mới được cứu, tôi không muốn bởi vì hai người cãi nhau mà mất đi đâu.
+
+"Có thể để sau được không?"
+
+Không thể để sau!
+
+"Hi, hii!"
+
+Dứt lời, Tomoe nhìn chằm chằm tôi. Gì vậy, tôi nên làm gì đây?
+
+"Cô gái, cô tên là Toa đúng không? Nghe này. Lão có thể làm được chuyện như vậy nè. Có phải cô cũng nghĩ lão hạ gục được nhiều người hơn không?"
+
+Nói xong, Tomoe liên rút kiếm ra và chém một phát.
+
+Bức tường cao vây quanh ngoài dinh thự ầm một tiếng và đổ sập. Hả, cái đó, vừa rồi?
+
+Tôi sợ hãi gật đầu.
+
+Tôi nghĩ đây là phản ứng bình thường.
+
+"Trời!... Này, cô Toa? Việc đó cho nếu muốn tôi cũng làm được, hây... Thấy chưa? Không phải tôi mới là người làm tốt hơn sao?"
+
+Một vài tòa nhà của căn cứ mà có thể nhìn thấy ở trên con đường nhỏ phía trước, trong nháy mắt bị bóng tối nuốt chửng và biến mất.
+
+Ở khoảng cách như vậy, chỉ bằng một từ "Hây" thôi sao?!
+
+Tôi lại một lần nữa sợ hãi gật đầu.
+
+Tôi nghĩ đây là phản ứng bình thường.
+
+"•••! Hô, vậy cô muốn phân thắng thua sao?"
+
+"Ai da, tôi chỉ hỏi ý kiến từ góc nhìn của người thứ ba thôi mà?"
+
+"Ha ha ha ha."
+
+"Hô hô hô hô."
+
+_Xẹt xẹt xẹt!_
+
+Ánh mắt bọn họ nhìn nhau tóe ra ánh lửa trắng xanh.
+
+Tôi có dự cảm vô cùng xấu... Tôi biết, nhưng tôi không nghĩ mình có thể ngăn họ lại được.
+
+"Này, Toa! Là lão đúng không?!"
+
+"Không, cô Toa! Là tôi chứ?!"
+
+Vừa nói xong, hai người với thân phận không rõ ràng đã làm cho căn cứ tại nơi Tận cùng đã tồn tại hàng chục năm...
+
+Tôi mỉm cười trong nước mắt, trước quang cảnh bọn họ lần lượt phá hủy căn cứ, giống như đang phô diễn tài năng cho tôi xem.
+
+Chuyện này, đúng thật là cũng rất lợi hại.
+
+Toàn bộ các thế lực chống đối đều biến thành sao trên bầu trời cao, hầu hết các tòa kiến trúc đều biến mất.
+
+Thứ còn sót lại chỉ là vô số những cái hố to và đống gạch vụn được xếp thành núi.
+
+Và cả căn nhà trọ cao cấp nhất của căn cứ.
+
+Hai người vừa mới phá hoại hết sạch mọi thứ, bỗng nở một nụ cười kỳ lạ và bắt tay nhau.
+
 ![][IMG_0181.PNG]{:class="img-fluid"}
 
 [IMG_0181.PNG]: https://1.bp.blogspot.com/-SpEI56XgKDM/YYQJtmMLDpI/AAAAAAAACco/uMrdqpxCVeglJJz1BCoJK4-_dNa08FvyACLcBGAsYHQ/s16000/IMG_0181.PNG
+
+Bão táp đã qua.
+
+Tuy nhiên, họ đã phá hủy hết tất cả.
+
+Sau đó, tại cửa nhà trọ, tôi đã gặp lại em gái mình, được cứu sống giống như là kỳ tích, và được đưa tới gặp mặt người nào đó gọi là "Thiếu chủ" mà hai người kia phục vụ.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+"Không, không, không, không!!!"
+
+Sau khi nghe hết toàn bộ sự việc từ miệng của Toa, tôi bật dậy khỏi giường, lao nhanh về phía cửa sổ, kéo rèm và nhìn ra bên ngoài.
+
+Không hề có thứ gì. Căn cứ đã biến thành bình địa...
+
+Tôi quay ngoắt lại nhìn hai người! Nhưng, họ không nhìn vào mắt tôi!
+
+Trong tôi bỗng tràn ngập thứ cảm xúc muốn gào lên thật to. Nhưng nhờ suy nghĩ kỳ lạ nào đó trong đầu, tôi bỗng bình tĩnh lại.
+
+Tôi xoay người và nhìn khắp trong phòng.
+
+Rinon! Thì ra là vậy... Nếu gặp phải chuyện như thế, làm sao có thể lộ ra biểu cảm nào khác được.
+
+[Không có chuyện gì là tốt rồi.]
+
+Nhìn thấy câu đó, Rinon ôm chặt tôi và òa khóc.
+
+Chà, đúng rồi nhỉ.
+
+Mặc dù không biết cô bé đã về nhà trọ vào lúc nào, nhưng sau khi nhìn thấy nơi sinh sống từ trước đến giờ của mình bị phá hủy ngay trước mắt, chị gái được hai thủ phạm mang trở về, vậy cũng không có gì vô lý khi cô bé phản ứng như vậy.
+
+Sau khi khóc to một trận, cô bé đã ngủ thiếp đi. Có vẻ như sợi dây căng thẳng của cô bé đã đứt phựt.
+
+Tôi chỉ im lặng nhìn về phía Tomoe và Mio.
+
+Nếu như thứ bị đứt của Rinon là sợi dây căng thẳng, vậy thì thứ bị đứt của tôi chính là sợi dây tự kiềm chế.
+
+Rút ra một mũi tên được chế tạo đặc biệt bởi tộc Người lùn tôi cầm cây cung nhận được từ tộc Orc lên và mở cửa sổ.
+
+Tôi cột hai sợi dây vào bộ phận đuôi của mũi tên, đầu còn lại buộc vào quần áo của Tomoe và Mio.
+
+Tôi không hề nói gì. Dù chỉ một câu.
+
+Sau đó, tôi giương cung lên... ■ .
+
+"Chờ, chờ chút đã, thiếu chủ?"
+
+"A, à ừm, như vậy nguy h..."
+
+Hai người có vẻ như đã nhận ra được chuyện gì sắp diễn ra, thế nhưng đã muộn rồi.
+
+"Hãy tự kiểm điểm lại hành động của mình đi!!"
+
+"Fuoooooooo?!"
+
+"Waaaaaaaaa?!"
+
+_Viu_ một tiếng, hai người bay đi.
+
+_Quần áo của tôi! Kimono của tôi!_ Tuy nghe thấy rõ tiếng la hét của bọn họ nhưng tôi mặc kệ.
+
+Căn cứ đã bị phá hủy, rốt cuộc sau này tôi nên làm như thế nào đây!!
+
+Không được rồi, chuyện này chắc chắn là không được rồi! Từ lúc nào tôi đã biến thành phần tử khủng bố thế này! Không, tôi vốn đã thế mà! Nếu bị phát hiện, tôi sẽ không thể che giấu thân phận được nữa, làm thế nào bây giờ! Aaaaa! Cả tiếng Nhật của tôi cũng trở nên kỳ lạ nữa!
+
+Tomoe, trước tiên phải xử lý riêng với cô ta đã. Có vẻ như cô ta rất thích làm võ giả, nếu nói chuyện với cô ta, có lẽ cô ta sẽ đồng ý hành động một mình. Cứ làm thế đi.
+
+Mio biết nghe lời hơn nhiều so với Tomoe. Miễn là chuyện có thể giải quyết, khống chế Mio cũng dễ dàng hơn nhiều. Cứ để cô ấy làm hộ vệ đi, nói tóm lại, tôi cần phải nhanh chóng đi tới thị trấn Ziege.
+
+Nếu như không có Trouble Maker Tomoe, có lẽ sẽ không xảy ra chuyện phiền phức cũng nên... chắc vậy.
+
+Đúng rồi, cứ làm như vậy đi. Nhanh chóng đi tới nơi an toàn nào!
+
+Sau khi đã vạch ra được đại khái kế hoạch cho tương lai trong đầu, tôi tập trung những người đã được cứu ra cùng với Toa. Bọn họ hình như được Toa chỉ cho, toàn bộ đều ngồi quỳ ngay ngắn ở ngoài hành lang. Loài người, Elf và Người lùn, mỗi chủng tộc có một người.
+
+Tất cả mọi người đều nhìn tôi với dáng vẻ rất khẩn trương, rồi cúi đầu. Tomoe và Mio ban đầu có ý định tùy tiện thả bọn họ tại căn cứ, thế nhưng giống như tôi đã thấy, cả căn cứ cũng đã không còn. Vậy nên, hai người đành phải mang bọn họ tới nhà trọ này.
+
+Những người được cứu ra vì cảm thấy căn phòng quá nhỏ nên họ chờ đợi ở bên ngoài. Hơn nữa còn ngồi kiểu Seiza.
+
+`Seiza (正座) là một kiểu ngồi quỳ trang trọng trong văn hóa Nhật Bản, người thực hiện seiza sẽ quỳ với đầu gối cách nhau 20 xen-ti-mét, mu bàn chân áp xuống mặt sàn, lưng thẳng, vai thả lỏng, mắt nhìn về phía trước.`
+
+Khi đã bình tình lại một chút, tôi đành miễn cưỡng viết cho mọi người một câu.
+
+[Tôi sẽ đưa mọi người tới thị trấn tiếp theo.]
+
+<br /><br /><br /><br /><br />
+# **Ending**
+<br /><br /><br /><br /><br />
+
+**Tại Một Lâu Đài Nào Đó**
+
+Bầu không khí nặng nề tràn ngập khắp căn phòng yết kiến có ngai vàng được đặt bên trong. Từng người, từng người trong phòng đều trầm mặc.
+
+Sau khi nghe được chuyện Nữ thần đã tỉnh dậy và Dũng sĩ đã được triệu hồi từ Á Tinh linh, Ma vương - người đang ngồi trên ngai vàng, đã quyết định triệu tập mọi người lại mở cuộc họp. Vẻ mặt ông rất tệ, hai hàng lông mày nhíu chặt lại.
+
+"Ta nghĩ các ngươi đã biết rồi..."
+
+Ma vương cất lời. Giọng nói của hắn tràn ngập uy nghiêm và tự tin.
+
+"Nữ thần đã tỉnh giấc. Ta đã biết được từ ngài Tinh linh, điều này không thể nào là giả."
+
+"Còn về chuyện liên quan tới Dũng sĩ..."
+
+"Ừ, hắn đã được triệu hồi."
+
+Ma vương đáp lại rõ ràng câu hỏi của tướng quân có bốn cánh tay. Khắp nơi đều có thể nghe thấy được tiếng thở dài của những vị tướng quân.
+
+Mười năm trước, Nữ thân đột nhiên ngủ say, bà ta đã yêu cầu sự trợ giúp từ Á Tinh linh, và Ma tộc - chủng tộc đã phải chạy tới vùng đất khô cằn, sau khi bắt gặp được hai cơ hội tốt này liền quyết định phát động chiến tranh và mở rộng lãnh thổ.
+
+Đối với chủng tộc không được thần linh ban phước như Ma tộc, để có thể giành được vùng đất màu mỡ, họ bắt buộc phải phát động chiến tranh, không ngờ kết quả là thắng lớn.
+
+Ma tộc đã tiêu diệt được Elysium, Đại Quốc tín ngưỡng Nữ thần nhiều nhất và trấn áp được hơn một nửa lãnh thổ của quốc gia đó. Đối với Ma tộc, giành được đại thắng lợi tại khu vực trung tâm vốn được dự đoán rằng sẽ chiến đấu vô cùng ác liệt, đã khiến cho việc trấn áp những khu vực khác lại càng dễ dàng hơn.
+
+Kết quả, khoảng hơn mười quốc gia chống lại Ma tộc đã bị tiêu diệt, bản đồ thế giới đã có sự thay đổi rất lớn.
+
+Không chỉ chiếm được những vùng lãnh thổ màu mỡ, Ma tộc còn vươn tay đến các vùng biển. Những nỗ lực của việc đóng băng cảng biển với hy vọng sẽ cứu giúp đa phần người dân thoát khỏi nạn đói, đã có được thành quả tuyệt vời.
+
+Xếp ngang hàng cùng với Elysium là hai Đại Quốc nằm ở phía Nam, luôn tự hào với sức mạnh quân sự lớn nhất trong những quốc gia của Loài người, Vương Quốc Lumia và Đế Quốc Glitonia.
+
+Thực ra vào thời điểm Elysium thất thủ, nhờ hai quốc gia đó đã có hành động kịp thời, cho nên Ma tộc mới không thể thu được toàn bộ lãnh thổ của quốc gia này vào trong tay.
+
+Hai quốc gia này chính là mục tiêu kế tiếp của Ma tộc, nhưng trước hết, để ổn định khu vực vừa mới chiếm được, chúng cần phải ưu tiên công việc nội bộ. Vì vậy Ma tộc tạm ngừng tiến quân về phía Nam của Elysium, chỉ can thiệp vào Lumia và Glitonia với mức độ kiềm hãm sự xâm chiếm của đối phương.
+
+Đây chính là tình hình thực tế của "hòa bình" được kéo dài cho tới ngày nay.
+
+Mặc dù không đến mức vững như bàn thạch, thế nhưng vùng lãnh thổ mới đã bắt đầu ổn định. Vào lúc chuẩn bị phát động chiến tranh với Loài người lần thứ hai, điều tồi tệ nhất lại xảy ra...
+
+Nữ thần thức tỉnh và Dũng sĩ được triệu hồi.
+
+Vốn dĩ, Ma tộc không hề lơ là cảnh giác đối với Lumia và Glitonia, đã có kế hoạch hợp tác thế lực với các chủng tộc đang chiếm đóng vùng hoang dã Tận cùng ở phía Tây. Trước mắt, Ma tộc sẽ tiêu diệt Aion và Laurel, hai Đại Quốc còn lại ở phía Nam, rồi sau đó mới đánh gọng kìm hai quốc gia Lumia và Glitonia.
+
+Việc dụ dỗ các chủng tộc của nơi Tận cùng cũng đã tiến triến thuận lợi, vậy mà...
+
+Dị biến cực lớn mang tên "Nữ thần đã thức tỉnh" và "Dũng sĩ xuất hiện", sẽ sinh ra khả năng Ma tộc thất bại trong chiến tranh.
+
+"Đã đến nước này rồi, chẳng lẽ nỗ lực của chúng ta cho tới bây giờ biến thành bọt biển sao..."
+
+Tướng quân nửa người nửa rắn nói với vẻ mặt khó chịu giống như cắn phải sâu.
+
+_(Nếu Nữ thần ngủ lâu hơn một chút, việc Loài người đoàn kết lại với nhau có lẽ cũng sẽ có kết quả tương tự...)_
+
+Vừa nhìn các thuộc hạ của mình đang trầm mặc với vẻ mặt xót xa, Ma vương vừa suy nghĩ như vậy.
+
+Cố gắng phá vỡ bầu không khí yên lặng, Ma vương mở miệng nói:
+
+"Cũng không phải toàn bộ đều là vô ích. Thế lực ở nơi Tận cùng, có thể dùng làm đội quân mai phục cho chiến tranh sau này... Hơn hết..."
+
+Với vẻ mặt dần đanh lại, Ma vương càng nhíu chặt đôi lông mày hơn.
+
+"Dũng sĩ đã xuất hiện tại Lumia và Glitonia là chuyện không thể nghi ngờ. Ta đã cảm nhận được ma lực mạnh mẽ của chúng. Xem ra chúng vẫn còn chưa biết cách ẩn giấu ma lực... Theo như suy đoán, lượng ma lực của chúng còn vượt qua cả ta."
+
+"Cái gì?!"
+
+"Làm sao có chuyện như vậy được! Đó, đó còn là con người à?!"
+
+"Có vẻ như Nữ thần đã mang tới người khá mạnh từ thế giới khác. Nếu chúng học được phương pháp chiến đấu ở thế giới này, và biến nó thành một công cụ chiến đấu, cần hiểu rằng đó là sự phát triển vô cùng khắc nghiệt đối với chúng ta. Chắc hẳn Nữ thần cũng đã ban cho Dũng sĩ những gia hộ mạnh mẽ."
+
+Trái ngược lại với nội dung của câu nói, trong giọng nói của Ma vương lại không hề có chút tuyệt vọng nào.
+
+"Chúng chỉ có lượng ma lực là vượt qua ta mà thôi. Chúng vẫn cần nhiều thời gian tập luyện thì mới sử dụng được thành thạo."
+
+Dường như Ma vương cố ý loại bỏ nỗi bất an và cổ vũ ý chí chiến đấu của các thuộc hạ. Không hề có một chút dấu hiệu hoang mang nào trước sự xuất hiện của Dũng sĩ.
+
+"Vấn đề là..."
+
+Ma vương tiếp tục nói.
+
+"Lần này xuất hiện không chỉ có hai người này mà còn có thể còn một người nữa..."
+
+"Ba Dũng sĩ luôn sao?!"
+
+Một tướng quân đứng bật dậy khỏi ghế và hô lớn.
+
+"Đừng hoang mang như vậy... Dũng sĩ chỉ có hai người. Những người nhận được gia hộ của Nữ thần đã xuất hiện tại Lumia và Glitonia. Điều này là chắc chắn.
+
+Mà người còn lại...
+
+Nhìn thấy Ma vương hiếm khi lại lưỡng lự không biết nên nói nửa câu sau như thế nào, các thuộc hạ phía dưới bất an chờ đợi câu trả lời.
+
+"... Hình như đang ở nơi Tận cùng của Thế giới."
+
+Ma vương cảm nhận được một lượng nhỏ ma lực ở nơi đó. Tuy nhiên, làm sao có thể cảm nhận được ma lực tại nơi hoang dã ở Tận cùng của Thế giới từ tòa lâu đài nằm tại cực Bắc của đại lục này được cơ chứ?
+
+Thế mà lại cảm nhận được. Đây là vì sao?
+
+Bản thân Ma vương cũng không thể trả lời được câu hỏi đó. Vậy nên ông ta mới lưỡng lự.
+
+"Ngay cả ta cũng không thể cảm nhận được rõ ràng ma lực của một kẻ ở nơi hoang dã. Tuy không thể xác định chắc chắn vì khoảng cách từ nơi đây quá xa, nhưng ta luôn nghĩ rằng kẻ ở nơi đó là người của thế giới khác chứ không phải Dũng sĩ."
+
+Ma vương thở dài.
+
+"Đương nhiên là ưu tiên Dũng sĩ trước, nhưng hãy ra lệnh cho những người đang thực hiện nhiệm vụ tại nơi Tận cùng điều tra về người này luôn."
+
+Tướng quân đảm nhiệm công tác gật đầu.
+
+"Thần muốn tổ chức lại đội quân ở tiền tuyến. Xin cho phép thần được lui trước."
+
+Tướng quân khổng lồ có bốn cánh tay, kẻ mà cho tới bây giờ vẫn chưa hé răng nói một câu nào, để lại một câu như vậy và đứng dậy khỏi ghế. Ma vương cũng không có vẻ muốn trách cứ. Việc thống lĩnh tiền tuyến tại Lumia phụ thuộc chủ yếu vào sự phán đoán của người này.
+
+"Thật đáng tin cậy."
+
+Nhìn theo bóng lưng của vị tướng quân đang rời khỏi phòng yết kiến, Ma vương lẩm bẩm.
+
+_(... Nhưng giả sử, con quái vật ờ nơi Tận cùng của Thế giới với lượng ma lực mà ngay cả ta ở đây còn cảm nhận được thực sự tồn tại, hơn nữa còn đứng về phía chúng ta... Khi ấy, bất chấp Dũng sĩ, biết đâu lưỡi kiếm chứa đầy bi nguyện của chúng ta có thể kề ngang cổ họng của Nữ thần. Phía Loài người có hai Dũng sĩ, hơn nữa còn có Nữ thần. Giá như bên chúng ta có được quái vật kia thì tốt quá...)_
+
+Ma vương đang rất hứng thú với một người mà ngay đến cả sự tồn tại còn chưa thể xác định rõ ràng tại nơi hoang dã.
+
+Còn về Misumi Makoto - chàng trai đang có được sự chú ý của Ma vương - trung tâm cuộc náo loạn của toàn thế giới, xem ra sự gian khổ của cậu chỉ vừa mới bắt đầu.
