@@ -15,12 +15,9 @@ img: https://1.bp.blogspot.com/-nLAgHpjgI50/YYQKAikKCbI/AAAAAAAACcs/DzuMKxVY1vEl
 
 [IMG_0021.PNG]: https://1.bp.blogspot.com/-Ehx_IKPZNHA/YYQYtX4qUmI/AAAAAAAACdA/QxyEdQJdFF4_mzocvZ7IxFS0Rix9dOkvACLcBGAsYHQ/s16000/IMG_0021.PNG
 
-
-
 <br /><br /><br /><br /><br />
 # **Mở đầu**
 <br /><br /><br /><br /><br />
-
 
 Đó là một ngày bình thường như bao ngày khác. Tôi ngủ dậy, ăn sáng, nhân tiện làm cơm hộp. Sau đó, tôi đến trường. Sau khi kết thúc bài luyện tập buổi sáng ở câu lạc bộ bắn cung, học hết các tiết học, rồi lại tiếp tục hoạt động câu lạc bộ. Tiếp đó vừa cười đùa với những thành viên của câu lạc bộ, vừa cùng nhau đi về nhà. Thoải mái ngâm mình trong bồn tắm, ăn cơm tối cùng gia đình rồi về phòng nghỉ ngơi. Trải qua đêm thu dài đằng đẵng bằng cách đọc sách, lên mạng. Và cuối cùng là đi ngủ.
 
@@ -7617,3 +7614,4 @@ _(... Nhưng giả sử, con quái vật ờ nơi Tận cùng của Thế giới
 Ma vương đang rất hứng thú với một người mà ngay đến cả sự tồn tại còn chưa thể xác định rõ ràng tại nơi hoang dã.
 
 Còn về Misumi Makoto - chàng trai đang có được sự chú ý của Ma vương - trung tâm cuộc náo loạn của toàn thế giới, xem ra sự gian khổ của cậu chỉ vừa mới bắt đầu.
+
