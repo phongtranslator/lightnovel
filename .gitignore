@@ -10,3 +10,4 @@ Gemfile.lock
 vendor
 _projects/*_draft.md
 .idea
+_raw_donotcommit

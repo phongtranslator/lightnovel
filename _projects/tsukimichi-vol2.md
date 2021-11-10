@@ -1945,13 +1945,2078 @@ Tốt rồi. Khúc mắc coi như đã được giải quyết.
 
 Dù vậy... Tôi cảm thấy Rembrandt hình như không có ấn tượng tốt với mạo hiểm giả lắm. Còn điều tra cả thân phận, chẳng lẽ trước đây ông ta từng trải qua kinh nghiệm đau thương gì sao?
 
+Có khi nào do yêu cầu của ông ta không đạt được kết quả trong một thời gian dài cho nên ông ta mới cảm thấy bất mãn?
+
+Tuy nhiên, dù thực tế đã xảy ra bất hòa gì, lúc này tôi cũng không có thời gian suy đoán. Việc đầu tiên tôi cần làm chính là giải thích về yêu cầu này đã.
+
+"Ngài Raidou, ngài định hoàn thành yêu cầu của chủ nhân bằng cách nào?"
+
+Quản gia nhìn thẳng vào tôi bằng đôi mắt hẹp dài và hỏi. Người này... vốn là mạo hiểm giả sao? Không hề có động tác dư thừa, ánh mắt cũng rất đặc biệt.
+
+[Hiện tại tôi sẽ cho mọi người thấy.]
+
+"Cho chúng tôi thấy? Ý cậu là s...!"
+
+Ông Rembrandt còn chưa nói hết, tôi đã đặt một khối màu đỏ lên bàn.
+
+[Không cần phải cân nhắc tới kỳ hạn. Bởi vì tôi đã sở hữu nó. Xin hãy xác nhận.]
+
+Hai người vội vàng đeo một cặp găng tay mỏng, thận trọng kiểm định tròng mắt. A, không được chạm vào nó bằng tay không sao? Tôi bất cẩn quá! Sau này cũng phải đeo bao tay khi cầm hàng hóa mới được.
+
+Giám định thật giả là đương nhiên, nhưng có vẻ còn phải xác nhận cả chất lượng của nó nữa. Về chuyện thật giả thì không có vấn đề gì. Bởi vì cả Hội mạo hiểm giả cũng đã nói OK rồi mà.
+
+"... Thật đáng kinh ngạc. Đây là đồ thật, hơn nữa vẫn còn hơi mềm một chút. Nghĩa là nó mới được thu thập gần đây."
+
+Có vẻ ông Rembrandt có thể tự mình thẩm định. Quả không hổ là chủ nhân của một thương hội lớn.
+
+[Mới đây thì có vấn đề gì sao?]
+
+"Không có, nói đúng hơn, nó còn mang giá trị cao hơn, công đoạn gia công sẽ dễ dàng hơn nhiều."
+
+Rembrandt thận trọng trao mắt của Ruby Eye cho quản gia. Quản gia dùng một tấm vải bóng loáng bọc lại rồi đặt nó lên trên mặt bàn.
+
+"... Thật xin lỗi. Do nó là một vật phẩm rất có giá trị nên tôi hơi kích động một chút. Tôi sẽ nghiêm túc kiểm điểm lại lòng hoài nghi của mình, hy vọng cậu có thể tha thứ cho tôi."
+
+Ông Rembrandt đứng dậy và cúi đầu. Quản gia đang đứng ở phía sau cũng lặp lại hành động giống như ông ta.
+
+Khi hai người họ ngẩng đầu lên, tôi nói:
+
+[Không sao, đó là phản ứng bình thường. Tôi không để ý đâu. Phải rồi, nếu được, xin ngài có thể nói cho tôi biết vì sao ngài cần mắt của Ruby Eye được không? Tôi nghe một người bạn của tôi nói rằng nó được dùng để cường hóa cho đạo cụ.]
+
+Miệng thì nói vậy nhưng tất nhiên sự thật không phải thế. Dù đó là vật phẩm quý giá đến đâu, tôi nghĩ ông ta cũng đã đem lòng hoài nghi quá lớn với người cầm tờ giấy yêu cầu chính thức từ Hội mạo hiểm giả. Tuy nhiên, giờ cũng không cần thiết để truy hỏi một cách thô lỗ như vậy.
+
+"Việc người đã nhượng lại vật phẩm để ý đến mục đích sử dụng cũng là điều dễ hiểu. Tôi không biết liệu việc này có thể thay cho lời xin lỗi vì sự thất lễ trước đó của mình hay không, nhưng chúng tôi sẽ nói cho cậu biết. Này, nhờ ông đấy."
+
+Ông Rembrandt một lần nữa ngồi xuống chỗ ngồi.
+
+"... Chúng tôi thu thập mắt của Ruby Eye để tạo ra một loại thuốc đặc trị. Nguyên liệu của nó bắt buộc phải có mắt của Ruby Eye."
+
+Quản gia giải thích.
+
+Thuốc điều trị bệnh sao? Mắt của Ruby Eye tuy là loại hàng hóa rất khó đưa ra thị trường với số lượng lớn, nhưng ngoài mục đích cường hóa đạo cụ, thì ra nó cũng có thể được dùng để chữa bệnh.
+
+Tôi đã hiểu được vì sao mắt của Ruby Eye là vật phẩm quý giá được bán với mức giá cao như vậy.
+
+[Tròng mắt này là nguyên liệu làm thuốc ư? Đây là lần đầu tiên tôi nghe nói đấy.]
+
+"... Nó cũng có thể được coi là một loại thuốc vạn năng chữa trị cho các loại bệnh thông thường, nhưng..."
+
+Có vẻ như đã chỉnh đốn lại tâm trạng của mình, ông Rembrandt đáp lại tôi bằng vẻ mặt nghiêm túc.
+
+Hửm? Bệnh thông thường cũng được? Vậy là sao?
+
+[Là một loại bệnh khác thường sao? Vì tôi đến từ một nơi rất xa, nên tôi không rõ thường thức ở đây lắm...]
+
+Quản gia lên tiếng:
+
+"Không, dĩ nhiên chứng bệnh này không dính dáng tới cuộc sống bình thường. Chúng tôi cần thứ này là để cứu người bị xâm nhập bởi một loại bệnh đặc biệt được gọi là 'chú bệnh'."
+
+[Chú bệnh?]
+
+"Vâng, đó là một loại bệnh do chú thuật sư dùng nghi thức gây bùng phát bệnh. Sau khi căn bệnh xâm nhập vào cơ thể, ngoại trừ dùng thuốc ma pháp hoặc để người dùng thuật tự mình giải trừ thì không còn cách nào khác. Thi thoảng cũng xảy ra trường hợp ngay cả người dùng thuật cũng không thể chữa trĩ và giải chú, một khi lời nguyền phát động, cho dù làm gì cũng không thể giải trừ được nữa."
+
+... Đúng là một căn bệnh phiền toái.
+
+Tôi đã hiểu được lý do vì sao thuốc ma pháp lại đắt như vậy. Về phía chú thuật sư, hẳn là phải chuẩn bị rất nhiều nguyên liệu và chất xúc tác, còn với người bị trúng thuật, căn bệnh ấy cũng không phải trò đùa.
+
+"Trong đó, phu nhân và hai tiểu thư đã mắc phải chú bệnh cấp 8. Mặc dù chúng tôi đã dùng thuốc ma pháp đắt đỏ để tạm thời kìm hãm bệnh trạng, nhưng với căn bệnh ở cấp độ này, cần có loại thuốc ma pháp đặc biệt tên là Ambrosia được làm từ mắt của Ruby Eye mới có thể chữa trị hoàn toàn."
+
+Quản gia nhẹ giọng giải thích với vẻ mặt cay đắng.
+
+Hóa ra vợ con ông Rembrandt bị nhiễm bệnh. Có lẽ thủ phạm là của đối thủ cạnh trạnh với ông ta.
+
+"Người dùng thuật đã bị bắt giữ và chúng tôi cũng xác định được cấp độ của chú bệnh. Sau đó chúng tôi gửi yêu cầu thu thập mắt tới Hội từ ba tháng trước, nhưng vẫn chưa nhận được một cái nào.
+
+Hơn nữa còn xuất hiện mấy kẻ lừa đảo. Chúng tôi thật sự đã hết cách."
+
+[Kẻ dùng thuật đó hiện giờ...?]
+
+Ông Rembrandt trả lời cho câu hỏi của tôi.
+
+"Chúng tôi đã tra hỏi hắn ta về cách giảm nhẹ bệnh trạng nhưng hắn nói rằng chú thức của hắn là hoàn mỹ. Đến phút cuối cùng, ngoài cấp bậc của chú thuật ra, hắn ta không chịu hé miệng khai ra thêm điều gì khác."
+
+"Đến phút cuối cùng" ư? Nói cách khác, hắn ta đã không còn trên thế giới này nữa à? Tình hình có vẻ nghiêm trọng rồi đây.
+
+[Vậy nên ngài vừa thu thập mắt vừa áp chế bệnh trạng bằng thuốc ma pháp phải không? Có điều, tại sao ngài lại bị chú thuật sư nhắm tới?]
+
+Ông Rembrandt lắc đầu. Theo phản ứng của hai người, cấp 8 có vẻ khá cao. Là người quản lý của một thương hội lớn, bị vài kẻ căm thù cũng là chuyện dễ hiểu.
+
+"... Khi thương hội dần mở rộng quy mô, dù cố gắng khôn khéo đến thế nào, tôi vẫn không tránh khỏi việc bị người khác căm hận. Đối thủ cạnh tranh bị tôi đánh bại ở khắp nơi, không thể xác định được ai là kẻ chủ mưu đằng sau. Sau khi bắt giữ và tra hỏi những tên đang rình rập gia đình tôi gần đây, ngoài việc biết được rằng chúng từng là mạo hiểm giả tiếp nhận yêu cầu theo dõi thì cũng không thu thập được thêm thông tin gì hữu ích. Trước khi tên chú thuật sư xảy ra chuyện, có vô số những kẻ như vậy. Đưa ra yêu cầu là một kẻ rất cao tay, hắn khác hẳn với đám mạo hiểm giả đó."
+
+"Chỉ có kẻ ti tiện mới nhắm vào phu nhân và tiểu thư!"
+
+Giọng điệu của quản gia trở nên mất bình tĩnh.
+
+Ông Rembrandt an ủi quản gia rồi tiếp tục nói:
+
+"Vì bản thân tôi được bảo hộ rất nghiêm ngặt nên có lẽ chúng đã nghĩ rằng rất khó để làm gì được tôi.
+
+Thế nên chúng mới ra tay với vợ và con gái tôi, sự nông cạn của tôi chính là nguyên do dẫn đến chuyện này."
+
+Dứt lời, ông Rembrandt cúi đầu. Bản thân tôi cũng không biết nên nói gì.
+
+Nỗi thống khổ khi chỉ có thể trơ mắt nhìn người nhà chịu đau đớn trong suốt ba tháng trời là điều mà tôi không thể tưởng tượng nổi. Hơn nữa, tên hung thủ đáng căm hận vẫn đang quanh quẩn ở đâu đó, nếu là tôi, e rằng tôi không đủ tự tin có thể kiềm chế được bản thân mình.
+
+Tôi nghĩ rằng ông Rembrandt là một người vô cùng đáng kính trọng, ít nhất là ở bề ngoài, khi mà ông ta đã cố gắng bình tĩnh.
+
+Bầu không khí nặng nề bao trùm cả căn phòng. 9 Tuy nhiên, những kẻ muốn cho ông Rembrandt nếm trải nỗi đau đớn vẫn còn đang rình rập ngoài kia.
+
+Thậm chí kẻ dùng thuật kia còn không đưa ra yêu cầu nào, kiểu "Nếu ngươi muốn vợ con được chữa khỏi thì...", mà chỉ bất ngờ tặng một món quà bệnh tật có thể dẫn tới cái chết. Thật tàn nhẫn.
+
+"Vợ và hai đứa con gái tôi gần đây bắt đầu nói rằng họ mong muốn được chết. Tôi thực sự rất suy sụp... Tuy nhiên, hiện tại rốt cuộc đã có tiến triển tốt rồi."
+
+Ông Rembrandt ngẩng mặt lên và mỉm cười với tôi. Qua dáng vẻ của ông ta, có thể thấy rằng con người này quả thực đã phải trải qua một quãng đường dài tăm tối.
+
+Lúc này, ngay cả bộ râu Kaiser của ông ta cũng toát lên vẻ quyết tâm và tràn đầy sức sống.
+
+Muốn được chết sao? Nếu như chị em gái và cha mẹ của tôi cũng lâm vào tình trạng như thế... Hừ! Không được, không thể nào! Mau ngừng cái suy nghĩ này lại!
+
+[Ý ngài là sao?]
+
+"Để tạo ra phần thuốc cho một người cần có hai cái tròng mắt. Ngoài tròng mắt ra, tôi đã chuẩn bị đủ nguyên liệu cho ba người, nên trước mắt tôi đã có thể cứu được một người."
+
+Tất cả những thứ khác đã có đủ rồi sao? Như vậy thứ cần thiết cuối cùng chính là loại nguyên liệu siêu hiếm này.
+
+Quả đúng là đã tiến được một bước, tuy chỉ có thể kéo dài sinh mệnh cho một người.
+
+[Vậy thì tốt quá. Việc tinh chế thuốc Ambrosia đó không có vấn đề gì chứ?]
+
+"Đúng vậy. Ở Ziege tập trung khá nhiều mạo hiểm giả cấp cao. Nếu phía chúng tôi chuẩn bị đủ phương pháp luyện chế và nguyên liệu, chỉ cần một giả kim thuật sư với cấp độ khoảng 80 là đủ rồi."
+
+Quản gia đã thay ông Rembrandt giải đáp nghi vấn cho tôi.
+
+Ồ, đó là một loại thuốc hết sức quý giá, không ngờ một người bình thường cũng có thể chế được.
+
+[Hẳn là việc chuẩn bị phương pháp luyện chế và nguyên liệu rất khó khăn nhi?]
+
+"Đúng như cậu đã nói. Trong trường hợp lần này, giả kim thuật sư cũng có thể học được phương pháp luyện chế Ambrosia, nó sẽ trở thành điều kiện rất tốt để chúng tôi có thể thu tiền phí từ giả kim thuật sư trong tương lai. Bởi vì sự việc lần này đặc biệt nên chúng tôi chỉ định coi đây như một yêu cầu bình thường."
+
+Theo lời quản gia, chỉ riêng phương pháp luyện chế thuốc đã vô cùng có giá trị. Có lẽ các chuyên gia chỉ cần làm một lần thôi đã nhớ được cách làm luôn rồi.
+
+Chắc hẳn sẽ có nhiều người muốn biết phương pháp điều chế loại thuốc có thể được coi là thuốc vạn năng như Ambrosia.
+
+Nếu đúng là thế, tôi sẽ thử nói chuyện với anh chàng giả kim thuật sư trong nhóm Toa xem sao. Không thì Mio hoặc một trong các Arche... Không, thanh niên giả kim vẫn là lựa chọn tốt nhất. Nhỡ đâu Mio lại gây thêm họa thì sao, còn các Arche vẫn chưa thể hóa thành hình người.
+
+Dù sao tôi cũng muốn được quan sát việc chế thuốc. Sau khi được thấy toàn bộ quá trình, tôi có thể nhờ Tomoe ghi chép lại.
+
+... Được rồi, tôi thử nhờ cậy ông Rembrandt xem sao.
+
+[Có thể cho phép tôi quan sát quá trình điều chế thuốc không? Tôi chắc chắn sẽ không làm phiền đâu.]
+
+"Ừm, chuyện đó..."
+
+Có lẽ do không muốn tùy tiện lan truyền phương pháp điều chế loại thuốc giá trị, ông Rembrandt trầm tư suy nghĩ.
+
+Tuy nhiên, tôi nghĩ ông ta sẽ không từ chối yếu cầu của tôi. Bởi vì tôi vẫn còn nắm trong tay hai lá át chủ bài nữa.
+
+[Tôi có một người bạn là Alchemy Meister cấp 114. Nếu nhờ anh ta chế thuốc, ông sẽ không phải tốn nhiều thời gian và công sức đưa ra yêu cầu.]
+
+"Ồ!"
+
+Một tiếng cảm thán phát ra từ ông Rembrandt.
+
+Có vẻ tôi đã lo lắng không cần thiết rồi.
+
+[Hơn nữa...]
+
+Nói đoạn, tôi lấy thêm năm khối màu đỏ nữa từ trong túi ra và đặt chúng lên trên mặt bàn. Mặc dù họ đã có một cái, nhưng có lẽ để làm giảm tỉ lệ bị thừa nên họ mới thay đổi số lượng trên tờ yêu cầu.
+
+Phòng tiếp khách lặng ngắt. Đôi mắt của ông Rembrandt và quản gia cùng nhìn vào một điểm. Tôi mỉm cười thỏa mãn. Đúng vậy, vẻ mặt kinh ngạc đó mới là điều tôi muốn thấy.
+
+Đây chính là thời điểm mà tôi nên nói, "Bây giờ hoặc không bao giờ!".
+
+[Tôi có đủ sáu tròng mắt đúng như yêu cầu. Như vậy, nhiệm vụ đã hoàn thành rồi chứ?]
+
+Trong phút chốc... Hai người đàn ông trưởng thành to cao ôm chặt lấy nhau, thất thanh khóc lớn.
+
+Nghe thấy động tình đó, rất nhiều nhân viên bật mở cánh cửa phòng tiếp khách và đột ngột ập vào, tạo nên một khung cảnh dị thường. Nhìn ông Rembrandt và quản gia, dường như đã hiểu được nguyên nhân, bọn họ cũng lập tức khuỵu gối òa khóc ngay tại chỗ và ôm lấy người ở bên cạnh mình.
+
+Tôi đợi bọn họ bình tĩnh lại và dễ dàng nhận được chữ ký công nhận từ ông Rembrandt.
+
+Sau khi thông báo ngày mai sẽ dắt theo giả kim thuật sư đến đây, tôi rời khỏi thương hội. Khi tôi đi ra khỏi cửa hàng, toàn bộ những người làm việc trong thương hội, dẫn đầu là ông Rembrandt long trọng ra tiễn tôi.
+
+Đương nhiên, chuyện này siêu nổi bật.
+
+Bằng cách nào đó, tôi đã trấn tĩnh lại và hướng tới địa điểm tiếp theo, Hội thương nhân.
+
+Bầu trời loang loáng sắc đỏ.
+
+Đã sắp hoàng hôn rồi. Dù vậy, một ngày của tôi vẫn chưa kết thúc.
+
+<br /><br /><br /><br /><br />
+# **Chapter 3**
+<br /><br /><br /><br /><br />
+
+Cuối cùng, tôi đã tới được Hội thương nhân. Bất kể là định làm lái buôn hay mở cửa hàng ở đâu, gia nhập Hội thương nhân và nhận được thẻ Hội là điều tuyệt đối cần thiết. Nếu không, bạn sẽ bị coi là thương nhân chợ đen không giấy phép và bị truy bắt!
+
+Tôi đã chuẩn bị đầy đủ tinh thần, nhưng mà...
+
+Vừa nãy tôi mới biết được chuyện nến muốn gia nhập vào Hội cần phải thi. Quả thực tôi chẳng biết một cái gì hết!
+
+Nếu là cuộc thi một năm một lần thì làm ơn hãy tha cho tôi đi được không? Tôi thật sự hy vọng có thể thi bất cứ lúc nào cũng được.
+
+"Leng keng", khi tôi mở cửa, một âm thanh gợi nhớ tới những quán trà thời Showa vang lên.
+
+Không gian bên trong không quá rộng, chỉ lớn hơn cửa hàng tiện lợi một chút. Xét theo quy mô của thị trấn, tôi cảm thấy hơi nhỏ.
+
+Phía trước quầy tiếp tân đặt vài chiếc ghế dài.
+
+Nơi này khiến tôi có cảm giác giống như một ngân hàng nhỏ tại thành phố địa phương vậy.
+
+Đứng trong quầy tiếp tân là một chị gái khoảng gần ba mươi. Đó là một phụ nữ điềm tĩnh, toát ra sức hấp dẫn của người trưởng thành.
+
+Bước lại gần quầy tiếp tân, tôi đối mặt với chị gái đó. Chị ấy cúi đầu chào tôi với một nụ cười.
+
+"Hoan nghênh ngài tới đây, không biết hôm nay ngài có việc gì ạ?"
+
+Khóe miệng và hàng lông mày của chị ấy khẽ run rẩy trước dáng vẻ cổ quái của tôi. Tuy thế, chị ấy vẫn có thể giữ vững nụ cười thương mại của mình... Nếu là tôi, có lẽ tôi đã bật khóc luôn rồi.
+
+Mức độ chuyên nghiệp này chắc chỉ đứng sau quản gia của thương hội Rembrandt. Thực ra, người đàn ông đó chẳng hề thay đổi chút sắc mặt nào, đúng là không thể so sánh được.
+
+Tôi cũng cúi chào lại, tạo ra một khung lời thoại ở khoảng không gian trước mặt và viết [Cô có thể đọc được chứ?]. Nhìn thấy điều đó, khuôn mặt của chị gái thoáng ngạc nhiên, nhưng ngay lập tức chị ấy trở lại với vẻ mặt tươi cười và đáp: "Không vấn đề gì".
+
+[Xin lỗi, tôi muốn gia nhập Hội thương nhân.]
+
+"Gia nhập sao ạ?"
+
+Chị gái nghiêng đầu khó hiểu.
+
+A, trông quyến rũ thật đấy.
+
+Quả thực dung mạo của tất cả mọi người ở thế giới này đều vô cùng đoan trang xinh đẹp.
+
+Nhắc mới nhớ, kể từ khi tới Ziege, rất hiếm thấy những người có vẻ ngoài giống như tôi.
+
+... Nếu có thì cũng là những người thuộc Thú nhân tộc, như tộc Chuột chũi và chồn.
+
+"... Trông ngài có vẻ giống ma pháp sư."
+
+[Không, tôi là mạo hiểm giả.]
+
+Mạo hiểm giả, một từ thật thuận tiện. Công việc ấy khá giống làm việc tự do, nhưng không biết sao khi nghe lại có cảm giác như đó là một nghề rất lợi hại.
+
+"Mạo hiểm giả... vậy tức là ngài muốn làm hội viên mới trong Hội chúng tôi mà không có lời giới thiệu từ một ai khác sao?"
+
+[Đúng vậy, tôi đã tìm được vài vật phẩm giao dịch hiếm có, tôi nghĩ nhất định phải tự mình buôn bán nên mới tới nơi này.]
+
+Chị gái tiếp tân đắn đo suy nghĩ. Có vấn đề gì khi làm hội viên mới sao?
+
+"Nếu thế, ngài cũng có thể đăng ký hình thức buôn bán bằng con đường giao dịch cho chúng tôi mà."
+
+Còn có thể kiếm tiền thông qua con đường giao dịch sao? Đúng là một thế giới đặc biệt, hay chỉ có mình tôi là ngu dốt thôi?
+
+Chắc hẳn đó là một cách thức thông dụng ở thế giới này. Biểu cảm của chị ấy không có gì khác lạ khi đưa ra lời đề nghị.
+
+Tuy nhiên, với mong muốn trở thành thương nhân, tôi nhất định phải thể hiện được sự nghiêm túc muốn gia nhập vào nơi này của mình.
+
+Mặc dù khá có hứng thú với việc mua bán qua con đường giao dịch, nhung lần này đành thôi vậy.
+
+[Không, tôi nghĩ mình muốn bắt đầu công việc buôn bán hơn.]
+
+"Nhưng nếu ngài che mặt như vậy, hơn nữa còn không thể nói chuyện bằng ngôn ngữ chung, cho dù qua được những điều kiện khác của bài thi, nhưng trong giới thương nhân đặt chữ tín làm sinh mệnh thì..."
+
+...
+
+Thay vì nói tôi có vấn đề chẳng bằng nói chị ấy lo lắng cho tương lai của tôi vì vẻ ngoài thì đúng hơn. Chị gái này đúng là một người khá là, không, rất là tốt.
+
+[Cảm ơn sự lo lắng của cô. Vì tôi còn có hai người đồng hành nữa, trong trường hợp tệ nhất, tôi cũng sẽ xem xét tới việc không xuất đầu lộ diện. Quan trọng hơn, cô có thể nói cho tôi biết về bài thi và các điều kiện khác được chứ?]
+
+"Người đồng hành sao... Thì ra là vậy, tôi đã thất lễ rồi."
+
+Sau đó, chị gái tiếp tân đã giải thích cặn kẽ cho tôi về bài thi và những điều kiện cần thiết, ngoài ra còn nói thêm về những câu chuyện đằng sau cuộc thi nữa.
+
+Thông thường, cuộc thi sẽ được tổ chức theo mùa, những người từ vài thương hội lớn sẽ tới làm bài thi. Có khá nhiều người dự thi lần đầu.
+
+Tuy vậy, cũng có thể đăng ký thi vào bất cứ lúc nào, trường hợp chỉ có một thí sinh ngoài mùa thi cũng không hiếm.
+
+Bài thi bao gồm hai phần, thi viết và cung cấp vật tư. Bài thi viết là những tri thức cơ bản mà thương nhân cần có, còn cung cấp vật tư là kiểm tra kỹ năng thực tế.
+
+Về bài thi viết, tôi có thể học trước bằng sách giáo khoa của Hội.
+
+Sau khi qua được bài thi viết, bài thi cung cấp vật tư sẽ bắt đầu, đề bài sẽ là thu thập một vài loại vật tư.  Về bài thi này, thí sinh khá tự do, có thể dùng nhiều cách thức để kiếm được chúng. Vậy mới nói, những người với nguồn lực tài chính hùng hậu có thể dễ dàng giành chiến thắng. Bất cứ cách nào cũng được, miễn là không phạm pháp và gây ảnh hưởng đến Hội. Tuy nhiên, trong đó cũng có một vài đề bài với độ khó vô cùng cao, được gọi là "Rủi". Bốc phải nó đồng nghĩa với việc có thể bị loại ngay tức thì.
+
+Ngoài ra còn có những điều kiện khác, chủ yếu là tiền, ví dụ như phí dự thi, tiền kí quỹ và phí Hội hàng năm. Quả nhiên làm buôn bán, nếu không chứng minh được mình có nguồn lực kinh tế ở một mức độ nào đó thì sẽ không được gia nhập.
+
+Có thể thi bao nhiêu lần cũng được, nhưng mỗi lần đều cần trả lệ phí dự thi, và khoảng cách giữa các lần thi của một người ít nhất là nửa năm.
+
+... Hmm, nếu lần này bị trượt thì trong nửa năm tới không được phép thi lại, xem ra bài thi này rất rủi ro.
+
+Tạm thời, tôi sẽ đọc thử quyển sách giáo khoa được chị gái tiếp tân nhắc tới ban nãy xem sao.
+
+[Vậy, cô có thể đưa tôi một quyển sách giáo khoa được chứ?]
+
+"A, vâng. Một quyển hai đồng vàng."
+
+Đắt quá! Tương đương với hai trăm nghìn yên đấy? Sách học thuật của nơi nào thế!
+
+Không, khoan đã.
+
+... Xem ra sách là một thứ khá đắt đỏ ở thế giới này.
+
+Cuốn sách ở chỗ ông Rembrandt cũng có giá gần tương đương.
+
+Tuy nhiên, lúc này tôi không thể cứ thế xoay người và rời đi được...
+
+"À ừm, ngài không bắt buộc phải mua nó đâu, ngài cũng có thể xin việc ở một thương hội và bắt đầu học tập tại đó mà?"
+
+Để ý thấy dáng vẻ run rẩy khi nghe giá tiền của tôi, chị gái tiếp tân đã nghĩ tôi không đủ tiền nên cô ấy gượng cười dề xuất một phương pháp thay thế khác.
+
+Nhưng nếu làm theo phương pháp đó, tôi sẽ cần phải học việc bao lâu mới nắm được hết kiến thức chứ.
+
+Tuy có thể trau dồi qua công việc thực tế, nhưng hiện tại điều đó đối với tôi là không thể.
+
+Chà, được rồi. Sách đã là thứ quý giá đến thế, vậy thì cứ trả tiền thôi. Dù sao số tiền khi bán được rương châu báu (trái cây) vẫn còn rất nhiều.
+
+Với mức giá ấy, tôi vẫn có thể thoải mái rút ví mà không hề cảm thấy đau đớn.
+
+[Không, không có vấn đề gì. Hai đồng vàng đúng không? Của cô đây.]
+
+Tôi đưa cho chị gái hai đồng vàng.
+
+Chị gái vươn tay ra nhận tiền với vẻ mặt ngạc nhiên. Chẳng lẽ rất hiếm người mua sách giáo khoa khi dự thi lần đầu sao?
+
+Xem nào... Rốt cuộc nội dung của nó là gì?
+
+*Loạt soạt...
+
+Loạt soạt...
+
+
+Soạt...*
+
+Hả? Đây là...
+
+*Soàn soạt*...
+
+... *Bộp*, tôi dứt khoát đóng sách lại.
+
+[À ừm, tôi có thể dự thi ngay bây giờ chứ?]
+
+"HẢ?!"
+
+Quá đỗi bất ngờ, chị gái không kìm được lớn tiếng kêu lên, cả Hội thương nhân liền trở nên vô cùng hỗn loạn.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Sau khi được dẫn tới một căn phòng khác, tôi liền đi vào bên trong và ngồi đợi.
+
+Trước khi thi, tôi có nên đọc qua sách giáo khoa và ôn tập lại một chút không?
+
+Một lát sau, người trông thi bước vào với đề thi cầm trên tay.
+
+Nhận được đề, tôi xem qua tất cả các câu hỏi.
+
+Phần đề thi liên quan tới toán học và những câu tính toán nhiều như tóc mọc trên đầu vậy, ngoài ra còn có những câu hỏi học thuộc liên quan tới hạng mục cấm kinh doanh và danh mục hệ thống giấy phép.
+
+Tuy nhiên, tỉ lệ các câu hỏi tính toán rõ ràng nhiều hơn hẳn, số lượng những câu hỏi ghi nhớ lại rất ít.
+
+Về các câu hỏi tính toán, chỉ cần có kiến thức ở trung học là làm được rồi.
+
+May mà lúc nãy tôi đã xem qua mấy câu hỏi ghi nhớ, chắc tôi sẽ qua được bài thi này dễ dàng thôi.
+
+Chưa hết một nửa thời gian làm bài, tôi đã nộp bài cho người trông thi.
+
+Để một học sinh cấp ba như tôi giải mấy câu hỏi này, quả thực dễ như bỡn.
+
+Vì thí sinh chỉ có một mình tôi nên hình như giám khảo định chấm bài ngay tại đây luôn.
+
+Hửm? Phản ứng của giám khảo thật kỳ lạ.
+
+Ông ấy vừa trợn to mắt nhìn bài thi của tôi vừa run rẩy.
+
+Sau khi im lặng một lát, ông ấy mới nặn ra được một câu:
+
+"Cậu đỗ rồi..."
+
+Biểu cảm trên khuôn mặt giám khảo vẫn cứng ngắc. Đoạn, ông ấy thấp giọng nói tiếp:
+
+"Tôi chưa từng thấy có người đạt được điểm tối đa... Đúng là kỳ tích."
+
+Giám khảo nói, trong trường hợp đạt điểm tối đa, tiền kí quỹ sẽ vẫn giữ nguyên, nhưng tôi có thể thoải mái chia thành từng phần nhỏ để trả dần. Tuy nhiên, vì đã định trả hết trong một lần nên điều này cũng chẳng ảnh hưởng gì đến tôi, nếu có thêm ưu đãi đặc biệt gì khác thì tốt quá.
+
+Tuy nhiên, đạt điểm tối đa với bài thi ở cấp độ này mà được gọi là kỳ tích, e rằng thế giới này không hề có thứ tương tự như "Trường học", thậm chí tôi còn nghi ngờ không có cả hệ thống giáo dục nữa.
+
+Trước mắt, giai đoạn thứ nhất đã xong.
+
+Tiếp theo, tôi sẽ hỏi xem có thể thực hiện bài thi cung cấp vật tư luôn không.
+
+"Vậy, xin hãy lấy một quả câu từ trong chiếc hộp này."
+
+Dứt lời, giám khảo đưa ra một chiếc hộp. Ở mặt trên của chiếc hộp có một cái lỗ vừa đủ cho một bàn tay luồn qua, không thể nhìn thấy rõ bên trong vì rất tối.
+
+Tôi đưa tay vào, chọn đại một quả cầu và rút tay ra.
+
+Giám khảo nhìn con số được ghi trên quả cầu mà tôi chọn, rồi đưa cho tôi một tờ ghi chú thay cho quả cầu.
+
+... Trước hết hãy xác nhận nội dung của nó đã. Để xem nào...
+
+"Ride Crystal, Maize Forma, Illumina Task, Howl Fang. Trong vòng ba ngày, hãy mang tới bốn loại nguyên liệu đã kể trên hoặc những vật phẩm có giá trị tương đương hay cao hơn. Việc giám định giá trị sẽ do giám khảo chuyên môn của Hội thực hiện."
+
+Đây là lần đầu tiên tôi nghe đến bốn loại nguyên liệu được ghi trên tờ giấy.
+
+Nhìn kỹ tờ ghi chú, giám khảo lên tiếng:
+
+"... Cậu không gặp may rồi. Nếu không quen biết những mạo hiểm giả trên cấp 50, cậu sẽ không thể kiếm được những nguyên liệu này đâu."
+
+Theo cách nói chuyện và biểu cảm của ông ấy, có vẻ tôi đã bốc phải một quả cầu siêu khó nhằn rồi. A, có khi nào cái này là "Rủi" không?
+
+Hình như yêu cầu đơn giản nhất là "một bình Potion (rỗng)".
+
+Ha ha ha, tôi vốn biết mình xui xẻo rồi mà!
+
+Vói một thương nhân tập sự bình thường, dù cố gắng đến mấy cũng khó mà thực hiện nổi yêu cầu này.
+
+Để hoàn thành, cần phải thuê mạo hiểm giả tự tin với năng lực của mình, mà như vậy thì sẽ tốn cả đống tiền.
+
+... Tuy nhiên, trên tờ giấy này có ghi "vật có giá trị tương đương hoặc cao hơn".
+
+Với điều kiện này, tôi có thể sử dụng nguyên liệu lấy từ ma vật nơi hoang dã. Đó là nơi các mạo hiểm giả phải đạt ít nhất là cấp 95 mới có thể đi vào.
+
+Tôi xin rút lại lời đã nói trước đó. Tôi rất may mắn!
+
+Tôi có thể thi đậu luôn trong ngày hôm nay rồi!
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+"Đến rồi~!"
+
+Tâm trạng vô cùng vui vẻ khiến tôi không kìm được mà nói tiếng Nhật.
+
+Đèn ở Hội thương nhân chưa tắt, vẫn còn có người trong đó.
+
+May quá!
+
+[Xin chào, tôi là Raidou.]
+
+"A? Cậu Raidou, không phải cậu vẫn đang làm bài thi cung cấp vật tư sao?"
+
+[Đúng vậy, tôi đã hoàn thành, xin hãy xác nhận!]
+
+"... HẢ?!"
+
+Đây là lần thứ hai trong ngày, tiếng la lớn của chị gái vang lên trong Hội.
+
+[Vì tôi đã mang tới những vật phẩm tương đương hoặc cao hơn bốn loại nguyên liệu cần cung cấp. Xin hãy xác nhận.]
+
+"V-vấng! Xin hãy đợi một chút! Giám khảo! Giám khảooo!"
+
+Sao khi tôi nói rằng mình đã mang vật phẩm của bài thi cung cấp nguyên liệu tới, chị gái liền xoay người, vội vàng đi gọi ông chú đang cầm một xấp giấy tờ trong phòng. Mặc dù đó là căn phòng "người không phận sự miễn vào", nhưng cánh cửa vẫn mở toang, có thể dễ dàng nhìn vào bên trong. Họ nghĩ rằng không còn ai tới nên mới bất cẩn như vậy sao?
+
+Ông chú đó chính là giám khảo của bài thi viết. Ký ức khi ông ấy cố nặn ra câu nói "Cậu đỗ rồi" vẫn còn in đậm trong đầu tôi.
+
+Có vẻ người giám định vật liệu cung cấp cũng là ông ấy.
+
+Ồ, hai người họ đang đi về phía tôi.
+
+Họ định xác nhận ngay ở quầy lễ tân à? Dù sao cũng thoải mái hơn cho tôi.
+
+"Cậu Raidou? Cậu vừa mới nhận đề bài chưa được bao lâu mà? Xin đừng làm hời hợt như..."
+
+[Xin ông hãy xác nhận những thứ này.]
+
+Nói xong, tôi mở túi ra. Bên trong là tám loại nguyên liệu. Tôi không rõ tiêu chuẩn giám định lắm nên đành mang theo số lượng gấp mấy lần. Mỗi thứ tôi tùy ý chọn lấy một ít, không biết kết quả sẽ thế nào đây?
+
+"Hmm? Hửm hửm hửm?!"
+
+[Thế nào? Tôi nghĩ rằng chúng tương đương với các nguyên liệu của đề bài.]
+
+"Cậu... kiếm được những thứ này từ đâu vậy?!"
+
+[Hôm qua, những mạo hiểm giả cùng tôi trở về từ nơi hoang dã đã tặng chúng cho tôi.]
+
+Ông chú lập tức chất vấn tôi.
+
+"Toàn bộ những thứ này ư?! Rốt cuộc bọn họ là ai?!"
+
+[Nhóm của một đạo tặc bóng tối tên Toa. Bọn họ nói đã bán hết phần nguyên liệu của bản thân... Ông có thể thử điều tra.]
+
+Ông chú nhìn sang chị gái.
+
+Cô ấy nhẹ nhàng lật xem một tập hồ sơ rất dày, và nhanh chóng tìm thấy mục cần tìm.
+
+"Quả đúng là vậy... vào sáng sớm nay, một lượng lớn nguyên liệu hiếm đã được mang tới sở giao dịch và nơi mua bán nguyên liệu. Cũng có một số ít được đưa tới cơ quan nghiên cứu và các cửa hàng thực hiện việc hợp thành và cường hóa trang bị."
+
+"Vậy ra đây là một phần của những nguyên liệu hiếm đó à!"
+
+Ông chú ôm đầu. Trông ông ấy có vẻ rất không cam lòng về việc tôi đã dễ dàng vượt qua bài thi này.
+
+[Đúng vậy.]
+
+"... Cậu nói cậu là Raidou đúng không?"
+
+[Đúng vậy.]
+
+"Chúc mừng, cậu đã vượt qua bài thi này."
+
+[Hoan hô, thật đáng mừng.]
+
+"... Sao tôi thấy cậu có vẻ không vui mừng lắm nhỉ.
+
+Cậu là người đâu tiên tham gia làm bài thi thương nhân và thi đậu trong cùng một ngày đấy... Đúng là..."
+
+Làm sao tôi có thể không vui sướng được. Chắc họ nghĩ vậy vì tôi chỉ viết chữ trên khung lời thoại mà không có biểu hiện gì.
+
+ [Cảm ơn rất nhiều.]
+
+"Trưa mai cậu sẽ được cấp thẻ Hội. Về chuyện thẻ Hội có những công dụng gì và các quy ước của nó, đến lúc đó chúng tôi sẽ nói cho cậu biết, ngày mai cậu đến được chứ?"
+
+[Không vấn đề.]
+
+"Được rồi. Vậy... nhờ cô làm thủ tục cho cậu ấy."
+
+Sau khi bàn giao công việc cho chị gái, ông chú thất thểu đi vào trong phòng như người mộng du.
+
+Chẳng lẽ tôi đã làm sai chuyện gì sao? Thôi kệ vậy.
+
+"Ngạc nhiên ghê! Hóa ra cậu vô cùng xuất sắc! Tôi không ngờ cậu lại dễ dàng vượt qua bài thi như thế."
+
+Ồ! Ánh mắt chị gái nhìn tôi đã thăng cấp!
+
+[Không, tôi chỉ nhờ vào vận may thôi. Bởi bài thi bao gồm những tri thức tôi đã biết và những vật phẩm mà tôi có.]
+
+"Hi hi, cậu khiêm tốn quá. Đây là mẫu đơn làm thủ tục. Cậu định làm thế nào với tiền kí quỹ và phí Hội trong năm đầu tiên?"
+
+Chắc ý của cô ấy là "Hiện tại cậu định trả bao nhiêu?".
+
+[Tôi sẽ trả hết toàn bộ số tiền ấy ngay bây giờ. Tiền kí quỹ là mười đồng vàng, phí Hội là một đồng vàng phải không?]
+
+Tôi xếp mười một đồng vàng lên trên quầy.
+
+"Toàn bộ luôn à... Hừm, tôi xác nhận đã nhận đủ. Cậu Raidou, thật ra cậu là thần thánh phương nào vậy?"
+
+Chị gái xem ra khá hiếu kỳ trước hành động nổi bật của tôi. Cuộc nói chuyện có vẻ sẽ rất dài đây.
+
+[Cô cứ nói 'thần thánh phương nào' chứ tôi đâu phải nhân vật đặc biệt hay kỳ lạ gì... ngoài việc giao tiếp bằng cách viết trên khung thoại và... cái này.]
+
+Tôi viết như vậy trong khung lời thoại rồi chỉ vào chiếc mặt nạ.
+
+"Cũng hiếm người đeo mặt nạ... Nếu không phiền, cậu có thể nói cho tôi biết lý do được không?"
+
+Chị ấy thế  hiện lòng hiếu kỳ quá rõ ràng rồi. Nhưng thật vui khi được một người đẹp quan tâm.
+
+[Đó là chuyện xảy ra lúc nhỏ nên tôi cũng không nhớ rõ lắm, có lẽ tôi đã bị trúng lời nguyền. Nhờ chiếc mặt nạ này mà lời nguyền có thể yếu đi, thế nên tôi không thể tháo nó ra được.]
+
+"L-lời nguyền ư?"
+
+[Đúng vậy, vì nó mà tôi không thể nói được ngôn ngữ chung, nên không còn cách nào khác, tôi đành giao tiếp bằng cách này. Sử dụng được ma pháp quả thực đã giúp tôi nhiều lắm.]
+
+"C-chuyện đó thật đáng tiếc. Chúc cậu sớm được tháo mặt nạ."
+
+Đúng như suy nghĩ trong đầu, khi tôi nói về lời nguyền, đối phương liền co rụt người lại. Chú bệnh là thứ vô cùng nguy hiểm, quả nhiên lời nguyền xa lạ rất đáng sợ.
+
+[Cảm ơn cô. Nhờ biết một vài loại ngôn ngữ khác ngoài ngôn ngữ chung mà tôi vẫn có thể giao tiếp được, tùy thuộc vào đối phương là ai.]
+
+Mặc dù không thể sử dụng ngôn ngữ chung vốn là ngôn ngữ của Nữ thần dành cho Loài người, nhưng tôi lại có thể hiểu rõ và nói được ngôn ngữ cổ đại dùng trong ma pháp, ngôn ngữ Tinh linh dùng cho khế ước triệu hồi, và cả ngôn ngữ do tộc Á nhân sáng tạo ra bắt nguồn từ tộc Elf và Người lùn.
+
+Bà Nữ thần chết tiệt kia, một ngày nào đó nhất định tôi sẽ cải tiến cái phương thức nực cười này cho bà ta thấy!
+
+"Ồ... A, sở hữu năng lực như vậy sẽ hỗ trợ cậu rất nhiều trong việc mua bán đấy. Cậu sẽ kiếm được những sản phẩm chưa phổ biến rộng rãi trong thị trường của Loài người."
+
+[Vâng, tôi cũng rất mong chờ việc buôn bán về sau của mình. Vậy, tôi điền thế này được rồi chứ?]
+
+Tôi đưa cho chị gái tờ đơn đã điền hết những hạng mục cần thiết.
+
+"Xem nào, ừm, ổn rồi đó. Cậu viết ngôn ngữ chung rất đẹp! À, còn có..."
+
+Vẫn còn có chuyện gì cần chú ý sao? Được một mỹ nhân như chị gái đây nuối tiếc níu giữ như vậy quả mực không còn gì hạnh phúc hơn, nhưng cũng đã đến lúc tôi nên trở về rồi.
+
+[Hôm nay đã trễ rồi, để ngày mai tôi sẽ ghé lại sau.]
+
+Cố tinh cắt ngang câu nói của chị ấy, sau đó tôi dứt khoát bước ra khỏi Hội thương nhân.
+
+... Tôi đã thi đậu bài thi của Hội trong một ngày. Hy vọng làm thương nhân có thể trở thành một phần giá trị của bản thân tôi.
+
+Ọc~, quả nhiên tôi đã đói bụng rồi.
+
+Tôi chợt nhớ hôm nay mình chưa được bữa ăn nào ra trò cả.
+
+Có lẽ tôi nên đi tìm quán ăn nào đó và dùng bữa tối thôi... Nhưng ăn một mình thì hơi cô quạnh, xung quanh đây cũng không có nơi nào vui vẻ giống như đang tổ chức tiệc cả.
+
+Tôi đứng lại suy nghĩ một lúc.
+
+... Được rồi! Gọi Tomoe và Mio tới đi!
+
+Dùng bữa tối trong khi lắng nghe báo cáo từ Á Không!
+
+Cảm giác cái bụng mình sẽ không chờ được đến khi hai người đó tới, nên tôi đi vào một quán ăn khá vắng khách dù hiện tại đang là giờ ăn tối, ngồi xuống một chỗ khuất và gọi một ly nước trái cây. Chỉ như vậy chắc cũng không ảnh hưởng gì đến bữa ăn.
+
+Một lát sau, nước trái cây tôi gọi đã được mang tới.
+
+Ồ, nó có màu vàng. Được làm từ trái cây thuộc họ cam quýt sao? Trông vẻ ngoài không tệ chút nào.
+
+Tôi uống thử một ngụm.
+
+... Không ngờ loại nước này có vị chuối. Hơn nữa còn vô cùng nhạt nhẽo. Phải thừa nhận rằng tôi không thích thứ sền sệt như nước ép chuối cho lắm. Ew.
+
+"Biết tin gì chưa? Khu rừng ngay gần nơi Tận cùng ấy."
+
+"Ừ, nghe nói có mấy người một đi không trở về. Còn có cả yêu cầu tìm kiếm được đăng lên nữa."
+
+"Không, sai rồi sai rồi. Chuyện sau đó cơ. Nhóm người đi tìm kiếm cũng chẳng một ai trở về. Hiện tại, hạng của yêu cầu đang không ngừng tăng lên đấy."
+
+Tôi dỏng tai nghe người ta đồn đại. Khu rừng lân cận à...? Đó chẳng phải hướng đi từ Ziege tới nơi Tận cùng sao? Tuy vậy, khi đến đây chúng tôi cũng không đi qua chỗ đó.
+
+Nghe có vẻ nguy hiểm. Liên tục có người mất tích ở ngay khu vực gần thị trấn.
+
+... Để đi tới nơi Tận cùng cần phải trên hạng C, hiện tại tôi mới chỉ ở hạng D. Nếu hạng của ủy thác được nâng cao, chuyện đó chẳng can hệ gì tới tôi. Để đạt được cả hai điều kiện là cấp độ và hạng, đối với những mạo hiểm giả xem chừng không dễ dàng gì. Chính vì nguyên nhân đó mới xuất hiện những kẻ ngu ngốc xâm nhập trái phép.
+
+Tạm thời chưa bàn đến hạng, những kẻ bất chấp cấp độ chưa đủ mà vẫn cố lẻn vào vùng hoang dã chỉ vì tưởng rằng ngon ăn kia, chắc hẳn đầu bị rớt mất não rồi nên mới hiểu sai ý nghĩa của từ "mạo hiểm giả". Chúng chỉ đơn thuần là những kẻ vô cùng ngu ngốc không nhận thức rõ được giá trị của sinh mệnh.
+
+Hệ thống hạng và cấp độ tồn tại chính là nhằm giúp các mạo hiểm giả tự cân nhắc để không uổng phí tính mạng vô ích.
+
+Không, đó mới là ý nghĩa của một mạo hiểm giả chân chính.
+
+Theo lời đồn tôi vừa nghe được, nguyên nhân ủy thác ấy được bàn tán nhiều như vậy là vì một biến cố nào đó mà nhóm người đi tới nơi hoang dã chính quy không thể đối phó được đã xảy ra. Vậy nên họ mới khuyến cáo những người chưa từng đi tới hoang dã nhất định không được bén mảng tới gần. Còn mấy kẻ xâm nhập trái phép thì ai thèm quan tâm chứ.
+
+Có lẽ đã có một con ma vật mạnh mẽ xuất hiện và chiếm giữ cả khu rừng.
+
+Quả thực, ở khu vực phụ cận Tuyệt Dã có rất nhiều ma vật tỏa ra khí tức vô cùng mạnh mẽ. Cho đến giờ, trong suốt hành trình của mình, tôi chẳng hề có bất cứ cuộc chạm trán nào, cô đơn đạt max luôn, nếu gặp được vài con ma vật thì tôi đã mừng biết bao. Tính cả những con không dám tới gần do có Mio ở bên cạnh, tôi sẽ rất vui vẻ như được đi sở thú vậy. Tuy nhiên, nếu những con ma vật cấp độ đó thường xuyên xuất hiện quanh khu vực này, dù đạt cấp độ cỡ nhóm Toa đi chăng nữa, các mạo hiểm giả sẽ lâm vào những trận khổ chiến, thậm chí còn có khả năng bị tiêu diệt. Chúng là sự tồn tại vượt quá năng lực của những mạo hiểm giả tạm trú ở Ziege. Số người chết sẽ tiếp tục tăng lên.
+
+Sau một lúc im lặng, người đàn ông mở miệng nói:
+
+"Thật là đáng sợ... Phải rồi, về chuyện cậu từng nói trước đây ấy, tôi nghe nói có người vừa mới hoàn thành đấy."
+
+"Ồ, là chuyện đó à. Mặc dù Lime yêu cầu chúng ta gây cản trở việc cung cấp hàng hóa, nhưng tỉ lệ gặp phải cũng khá thấp, tôi nghĩ dù có cố gắng đến đâu thì cũng chẳng thể nào hoàn thành yêu cầu đó được, nên không để ý đến nữa. Lần này lại là lừa đảo sao?"
+
+"Không phải đâu, hiện giờ đám người đó như đang đắm mình trong lễ hội ấy. Cả Hội cũng ra tay nên lâu lắm rồi Lime mới căng thẳng như vậy."
+
+"Đồ ngốc. Bọn họ chỉ làm ra vẻ thế thôi. Ngay cả Lime cũng rất khó kiếm được những thứ như vậy còn gì? Dù sao, mấy kẻ đó muốn phá hỏng việc của chúng ta bằng con đường thương mại, thì họ nên hiểu rõ sẽ phải trải qua chuyện như vậy đi."
+
+"Đúng đấy. Do có rất nhiều yêu cầu linh tinh mà ngay cả người mới cũng làm được, nên đám đàn em của chúng ta cũng được dạy dỗ luôn, những tên kia còn chẳng hiểu được những điều đó nữa. Lime tức giận cũng là điều dễ hiểu."
+
+"Tuy thật đáng tiếc vì vài năm thanh xuân của một cô gái trẻ đã bị cướp đi, nhưng cũng đâu ảnh hưởng đến tính mạng, cô ấy chỉ đơn thuần là ngủ say mà thôi. Mấy tên đó cứ làm quá."
+
+"Không sai. Khi con gái hắn tình lại, có lẽ chúng ta cũng nên chúc mừng. Làm một bữa tiệc nhậu đi."
+
+"Cậu chỉ lấy cớ để uống rượu thôi chứ gì..."
+
+"Vậy đêm nay đi đâu đó đi. Cổ họng tôi sắp cháy khô rồi đây này."
+
+"Được đấy, ngày hôm nay..."
+
+Lime.
+
+Lime chính là tên của mạo hiểm giả có hạng cao nhất tại Ziege.
+
+Theo những gì tôi nghe trộm được từ cuộc nói chuyện, dường như đã xảy ra tranh chấp ở đâu đó.
+
+Rồi mạo hiểm giả như thế nào đó, cướp mất thời gian gì đó, rồi tỉnh lại sao đó.
+
+Nhưng có lẽ chuyện này chẳng liên quan gì đến tôi.
+
+Lime Latte.
+
+Một tổ hợp tên nghe không được hay ho lắm, nhưng dựa vào cuộc nói chuyện ban nãy, xem ra đó là một nhân vật rất được người khác tín nhiệm.
+
+Hắn đem lại ấn tượng tốt đẹp với cương vị là một người có thứ hạng cao thường che chở cho người khác, hoặc giống như một vị đại ca thân thiết.
+
+... Kế tiếp, tôi nên làm gì đây nhỉ? vì thuộc chủ nghĩa không lãng phí thức ăn, nên không còn cách nào khác, tôi đành phải uống hết ly nước trái cây dở tệ này. Nhưng sau khi đã quen với vị này rồi, tôi lại thấy nó ngon bất ngờ.
+
+Về vấn đề chú bệnh của gia đình ông Rembrandt, hiện tại tôi cũng chẳng làm gì được. Kẻ hạ chú đã chết, tuy muốn tìm kiếm thủ phạm thực sự đã đưa ra yêu cầu và làm hắn hối hận vì đã sinh ra trên thế gian này, nhưng dù sử dụng mạng lưới tình báo của thưong hội cũng không thể nắm được cái đuôi của hắn. Tôi không quen thuộc với nơi này, cho dù có cheat thì cũng quá sức rồi. Nếu có thể bổ sung hay sửa đổi các Dũng sĩ, tôi hy vọng sẽ có sự kiện xảy ra, thế nhưng cuộc đời làm gì có chuyện tốt đẹp đến vậy. Dù sao, hiện tại thủ phạm vẫn đang theo dõi động tĩnh nhà Rembrandt, nếu biết được sự tồn tại của tôi, khả năng cao chúng sẽ gây vài chuyện phiền phức cho tôi, nhưng chỉ cần tôi duy trì cảnh giác chắc sẽ không có vấn đề gì nghiêm trọng.
+
+Trong trường hợp bị tấn công trực tiếp, tuy không phải Tomoe nhưng tôi vẫn là tướng quân vô song mà. He he he.
+
+Còn Tomoe... Nhắc mới nhớ, tôi cũng bận tâm tới tình hình của Á Không. Mặc dù mới chỉ rời đi vào lúc sáng sớm, nhưng tôi cảm thấy lo lắng không biết Mio - người mà tôi để lại, có mắc sai lầm gì không nữa.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Tôi đã quên mất rằng mình là chủ nhân của bọn họ. Tôi còn quên một chuyện nữa, chính là hiện giờ bụng tôi đang vô cùng trống rỗng.
+
+Tôi nghĩ mình sẽ gọi Tomoe và Mio tới rồi dùng bữa tối trước, sau đó nhân tiện lắng nghe báo cáo về tình hình của Á Không luôn.
+
+Đúng vậy, vì sao tôi lại phải hào hứng muốn nghe báo cáo của bọn họ chứ? Đáng lẽ bọn họ phải chủ động tới báo cáo cho tôi mới đúng!
+
+Được rồi, vậy hai người họ...
+
+Đúng lúc tôi đang nghĩ như vậy và định sử dụng Niệm Thoại...
+
+(Thiếu chủ! Thiếu chủ! Hiện tại cậu không sao chứ?!)
+
+Tôi nghe thấy âm thanh của con nhỏ troublemaker đã bặt vô âm tín dạo gần đây.
+
+Thời điểm trùng hợp như thế bỗng khiến tôi có cảm giác rằng có gì đó không ổn.
+
+(Rồi rồi, có chuyện gì sao?~)
+
+(Cái vẻ èo uột đó là sao vậy?!)
+
+(Không có gì, chỉ là bỗng nhiên được một người gần đây chẳng thèm liên lạc giờ lại sốt sắng hỏi thăm. Tôi đang rất bận đây, cô có việc gì thế?)
+
+Tôi ra sức nói móc cô ấy.
+
+Đúng thật là, đem công việc của mình đẩy cho Emma rồi mất tích, lại còn tỏ thái độ như vậy!
+
+(Ư, ưm. Về chuyện đó, tôi đang cố gắng đạt được thành quả tốt nhất để báo cáo cho cậu. Rất thuận lợi đấy! Vì thế tôi mới cần thời gian, thiếu chủ!)
+
+Tôi nghi ngờ điều đó đấy.
+
+Con rồng này là kiểu người có thể vì mua trò chơi mới ra mà không cần ăn cơm, hoàn toàn ưu tiên sở thích của bản thân trước, đối với lời nói của cô ấy, tôi chẳng có chút tin tưởng nào.
+
+Cô ấy hoàn toàn mặc kệ báo cáo đáng lẽ phải làm, rồi đột nhiên nói rằng "Tôi tìm thấy cơm rồi" (*lấp lánh*) với vẻ mặt nghiêm túc.
+
+(Vậy cô có chuyện gì gấp sao?)
+
+(A, hy vọng cậu có thể mau chóng tới Á Không. Mio gặp rắc rối rồi!)
+
+Mio?
+
+... Ngẫm lại, kể từ lúc rời đi vào buổi sáng tôi vẫn chưa liên lạc với Mio lần nào.
+
+Trước đây, trong những tình huống như vậy, cứ khoảng ba mươi phút Mio sẽ dùng Niệm Thoại để nói chuyện với tôi một lần.
+
+Ngày hôm nay tôi bận rộn quá nên chưa kiểm tra tình hình lần nào, đúng là không ổn lắm.
+
+Lẽ nào... ma lực tôi cho Mio đã cạn kiệt và cô ấy trở nên điên cuồng rồi?
+
+(Chẳng lẽ Mio đã biến trở lại thành nhện rồi à?)
+
+(Không chỉ là tình trạng đơn giản như vậy đâu! Nói chung thiếu chủ mau trở lại đi! Chỉ có cậu mới có thể giải quyết được thôi!)
+
+Tinh tình còn nghiêm trọng hơn thế nữa sao? A, thật là!
+
+Trả tiền nước xong, tôi vội vàng chạy vào một con hẻm sâu. Sau khi kiểm tra và chắc chắn xung quanh không có ai, tôi tạo ra một cánh cửa sương mù. Quả nhiên, Mio đang ở nơi chỉnh lý ký ức của tôi, hay còn gọi là kho dữ liệu.
+
+Tomoe đã tạo một căn phòng nằm ở bên dưới lòng đất của tòa kiến trúc để nhóm Emma đến xử lý công vụ.
+
+Sau khi ngôi nhà của tôi hoàn thành, mọi người sẽ di chuyển kho dữ liệu qua bên đó nên hiện tại chỉ dựng một căn phòng đơn sơ, nhưng trong mắt tôi, giờ nó đã là một thư viện vô cùng đồ sộ dưới lòng đất.
+
+Bởi vì tôi đã nhờ cô ấy chỉnh lý lại dữ liệu, nên chắc chắn cô ấy sẽ ở chỗ đó.
+
+Bước vào kho dữ liệu của Á Không, cảnh tượng đập vào mắt tôi chính là...
+
+"Tomoe! Tiếp tục, nhanh tiếp tục đi!"
+
+"Mio, hôm nay hãy dừng ở đây đi. Nhìn kìa, bên ngoài trời đã tối rồi. Chẳng phải thiếu chủ sắp trở về rồi sao?"
+
+"Vậy bao giờ ngài ấy về rồi ngừng!"
+
+"Hả, rốt cuộc cô nghĩ lão đã duy trì bao lâu rồi hả! Kết thúc rồi, kết thúc!"
+
+"... Ồ. Vậy sao? Nếu thế, tấm thủy tinh này có thể sẽ có rất nhiều vết xước đấy?"
+
+Rút ra một tấm kính trong suốt với kích cỡ khoảng một tờ giấy A4, Mio vừa nói như vậy vừa cầm nó trong tay.
+
+Aaa... Tomoe quằn quại kêu lên một tiếng khó hiểu.
+
+"Cô! Đó là Mito Koumon mà lão đã vất vả lắm mới CM Cut và loại bỏ tạp âm được đấy!"
+
+`CM Cut: Commercial Cut, nghĩa là cắt quảng cáo. Đây là một chức năng của một số bộ thu hình, có tác dụng loại bỏ quảng cáo trong các bộ phim truyền hình được phát trên tivi.`
+
+"Tôi muốn xem tiếp, tôi rất rất muốn được xem tiếp."
+
+"Aaaaaa! C-chờ đã, cô đừng có manh động! Nếu như cái đó bị làm sao, sau này lão sẽ không bao giờ giúp cô nữa đâu! Cô muốn vậy không hả?!"
+
+"Đừng mà! Nếu cô không giúp tôi nữa, tôi... tôi sẽ sốc đến mức ăn hết toàn bộ những thứ ở nơi đây cho xem!"
+
+"Cái, cái, cái, cái gììììì?!"
+
+Chuyện quái gì đang diễn ra vậy?
+
+Có vẻ Mio đang nài nỉ gì đó, còn Tomoe đang cố ngăn cô ấy lại?
+
+Hai người cãi cọ trong kho dữ liệu hệt như đám con nít vậy.
+
+Còn nữa, CM Cut và loại bỏ tạp âm là sao? Cô là nhà làm phim ở đâu ra thế?
+
+Ký ức của tôi rốt cuộc đã biến thành thứ gì rồi hả?
+
+Nói gì thì nói, chỉ một tấm kính như vậy mà có thể chứa được tất cả các tập phim Mito Koumon, dung lượng của nó thật khiến người hiện đại phải kinh ngạc.
+
 ![][IMG_0717.PNG]{:class="img-fluid"}
 
 [IMG_0717.PNG]: https://1.bp.blogspot.com/-GpAPvMxt7xM/YYSqJNrWt4I/AAAAAAAACdc/MCDu5o30xhcsCyKJM1fRvCxZWMmVyTYNgCLcBGAsYHQ/s16000/IMG_0717.PNG
 
+À ừm, ngoại trừ hai người này, không còn người khác sao?
+
+Sau khi nhìn xung quanh, tôi thấy các Arche đang đứng ở cách đó không xa.
+
+"Này, rốt cuộc chuyện này là sao?"
+
+Để nắm rõ sự tình, tôi hỏi bọn họ.
+
+"Thiếu chủ, chúng tôi... Sau khi gặp mặt thiếu chủ, chúng tôi vẫn tiến hành chỉnh lý và sắp xếp với ngài Mio ở đây."
+
+Ồ, câu từ vốn còn ngắc ngứ của họ đã trở nên lưu loát hơn rồi. Họ học nhanh thật, tôi có chút ngạc nhiên đấy.
+
+Tuy đã rất cố gắng nhưng tôi vẫn không làm được, thật là muốn hờn dỗi một trận.
+
+"Ừ, sau đó thì sao?"
+
+"Sau đó ngài Tomoe trở về và bắt đầu làm việc gì đó gọi là 'thưởng thức'."
+
+Thưởng thức, thưởng thức á?
+
+Này này, Tomoe, không phải công việc của cô đang chất cao như núi à?
+
+Làm ơn hãy xử sự cho đúng với vị trí của mình giùm tôi với!
+
+"Rồi ngài Mio cũng bước vào trong đó..."
+
+... Này, mấy người đồng lõa với nhau đấy à?!
+
+"Nhưng sau khi quở trách ngài Tomoe, ngài ấy đã lập tức trở lại làm việc."
+
+Ồ ồ, học sinh gương mẫu thật. Thế tình hình hiện giờ là sao vậy?
+
+"Ngài Mio đã tới chỉnh lý tư liệu ở bên kia."
+
+Tôi nhìn theo hướng Arche chỉ.
+
+A, nếu tôi nhớ không nhầm, ở đó là các ký ức và những đoạn hình ảnh không phải phim lịch sử.
+
+Tuy nhiên, cách giải thích của các Arche thật tốn thời gian, dù rằng tôi rất cảm kích khi bọn họ cố gắng hết sức để nói chuyện với tôi một cách lịch sự.
+
+Nhưng bao giờ mới nói tới trọng điểm đây?
+
+"Sau đó, các ngài ấy liền trở nên như vậy."
+
+Haaaaaả?!
+
+Lược bỏ hết toàn bộ quá trình quan trọng luôn à?!
+
+"Ngài Mio... cứ ở đó mãi. Ngài Tomoe cũng tới. Và hai người trở nên như vậy."
+
+... Tôi hoàn toàn chẳng hiểu gì.
+
+Cảm ơn các Arche xong, tôi bước lại gần hai tùy tùng "trung thực" vẫn đang tiếp tục khẩu chiến với nhau.
+
+Giờ chỉ có thể hỏi người trong cuộc thôi.
+
+"Tomoe, tôi đến rồi. Vậy, chuyện này là sao?"
+
+Giọng điệu của tôi khó chịu đến mức cả ngay bản thân tôi cũng phải ngạc nhiên, nhưng cũng chẳng còn cách nào khác.
+
+"Ồ! Thiếu chủ! May là cậu đã tới! Mau ngăn tên ngốc này lại!"
+
+"... Thiếu chủ. Chỉ có mỗi Tomoe là được thưởng thức thứ tốt như vậy, không phải ngài đã quá thiên vị cô ấy sao?!"
+
+"Cô đang nói gì vậy?! Đây là niềm vui chính đáng mà thiếu chủ đã cho phép lão!"
+
+Chỉ cho Tomoe? Cho phép?
+
+Này này, có lẽ nào là... cái đó?
+
+Giờ Mio cũng tiếp bước Tomoe, cũng bị ám ảnh bởi phim lịch sử luôn rồi sao? Chuyện này xem ra rất nghiêm trọng.
+
+A, có điều Mio đang dùng đoạn phim Mito Koumon để uy hiếp Tomoe, có thể chuyện không phải như tôi nghĩ.
+
+Hai người họ lại gây náo loạn lần nữa.
+
+Nói tóm lại...
+
+"BÌNH TĨNH ĐI!" Tôi gào lên.
+
+Hai cô gái trẻ vừa la hét vừa cãi vã ỏm tỏi như con nít vậy!
+
+Hơn nữa, vì sao người hòa giải luôn là tôi?
+
+Trong phút chốc, kho dữ liệu liền trở nên yên tĩnh.
+
+"E hèm, đã bình tĩnh chưa? vậy trước hết, Mio trả cái đó lại cho Tomoe đi."
+
+"... Vâng. Tôi xin lỗi."
+
+"Ừm, được rồi."
+
+Tomoe vui vẻ ôm Mito Koumon.
+
+"Vậy, Tomoe, cô hãy giải thích cho tôi nghe chuyện này là thế nào? Đặc biệt, tại sao tôi lại phải tới tận đây để hòa giải cho cuộc cãi vã của hai người?"
+
+"Ư... Chuyện đó... Lúc chiều tôi đến đây, bọn họ đã ở kho dữ liệu từ trước, vậy nên..."
+
+"Khoan đã, tôi đã giao rất nhiều công việc cho cô cơ mà, thay vì đi báo cáo tình hình cho tôi, cô đến đây làm gì? Chẳng phải cô nên tới chỗ của tôi trước sao?"
+
+Tôi cắt ngang lời biện minh của Tomoe.
+
+"À, ừm, có vài chuyện tôi muốn xác nhận..."
+
+"Thưởng thức phim lịch sử?"
+
+"Ầy! Không phải, ừm, là khí khái anh hùng..."
+
+Tomoe ấp úng.
+
+Thì ra cô muốn nghỉ xả hơi trước khi báo cáo nhỉ?
+
+Ôi! Tại sao xung quanh tôi chỉ toàn mấy người lạc quan thế không biết?!
+
+"Vậy tại sao cô lại cãi vã với Mio... Hửm, đây là cái gì?"
+
+Tôi bỗng chú ý tới một hình ảnh quen thuộc.
+
+Tuy nó chỉ được chiếu lại, nhưng cũng khiến tôi hoài niệm.
+
+"Thiếu chủ, xin hãy nghe tôi nói..."
+
+Giọng nói yếu ớt của Tomoe vang lên.
+
+"Tomoe? Khuôn mặt mệt mỏi đó của cô là sao vậy?"
+
+"Mio... Mio... dùng lão giống như đồ điện tử gia dụng!"
+
+Ôôô, Tomoe lăn ra đất khóc.
+
+Đồ điện tử gia dụng ư... Tomoe, cô định biến thành người hiện đại thật luôn đó hả?!
+
+Không, tạm thời hãy gác chuyện này sang một bên.
+
+Nhìn bộ dạng quá đỗi tiều tụy của Tomoe, xem ra cô ấy không nói dối.
+
+Ngược lại, Mio đang mỉm cười giả lả như một đứa trẻ cố gắng che giấu trò nghịch ngợm của mình.
+
+"Thiếu chủ, tôi nghe nói Tomoe đã được ngài cho phép thưởng thức phim lịch sử. Khi đến đây, Tomoe không chịu làm nhiệm vụ, từ đầu chí cuối chỉ vùi đầu vào việc biên tập những hình ảnh này."
+
+Cô ấy quay trở lại và không liên lạc với tôi là để có thể thỏa thích biên tập video tại đây à? Rốt cuộc cô đã cuồng đến mức độ nào vậy?!
+
+"Ừ, chuyện đó đúng là có vấn đề."
+
+"Tuy nhiên! Nếu được thưởng thức thứ hấp dẫn đến thế, cô ấy trở nên như vậy tôi cũng có thể hiểu được."
+
+Giọng điệu của Mio đầy mạnh mẽ. Tôi chợt có linh cảm xấu.
+
+"Thiếu chủ, tôi có một thỉnh cầu! Xin ngài hãy cho phép tôi cũng được thưởng thức."
+
+Không, chờ đã, chẳng phải cô đã xem rồi sao? Còn trước cả khi được tôi cho phép nữa.
+
+Hiểu rồi, tôi đã bị lừa rồi. Hóa ra đây là nguyên nhân cô ấy cò kè với Tomoe.
+
+Bị Tomoe - người đã nhận được sự cho phép xem phim lịch sử kích động, nên Mio cũng nghiện xem thứ gì đó trong tivi từ những ký ức hỗn tạp hằng ngày của tôi sao?!
+
+Mio à...
+
+Tôi đã nhờ cô ấy giúp đỡ công việc của nhóm Emma, hơn nữa, vì Mio hiểu được tiếng Nhật nên tôi chỉ cần cô ấy chỉnh lý vài giấy tờ và đơn thỉnh cầu là được. Rốt cuộc cô tới tận bên trong kho dữ liệu để làm gì vậy hả?
+
+Cho dù Mio không biết viết, nhưng nếu đã hiểu được lời tôi nói, tôi nghĩ rằng có thể sử dụng cô ấy một đúng đắn, vậy mà...
+
+Lại xảy ra chuyện quái quỷ gì thế này?
+
+"Phim lịch sử sao? Cái này không có vấn đề..."
+
+"Không phải! Tôi không có hứng thú với thứ đó!"
+
+"Này, Mio! Cô nói thứ đó là có ý gì! Cô không thấy thất lễ à! Đó chính là tinh túy của văn hóa Nhật Bản đấy!"
+
+Gì vậy? Hóa ra Mio ham mê thứ khác à? Lúc này tôi không nên để ý mấy câu nói đó của Tomoe.
+
+Hiện tại, những người được xem ký ức chưa qua chỉnh lý của tôi trong kho dữ liệu chỉ có các Arche và Mio, họ đã được sự cho phép của tôi để vào đây, sau này có thêm Tomoe nữa thôi. Còn nhóm Emma chỉ có thể xem tri thức đã được chỉnh lý trong từ điển bằng hình ảnh. Những thứ đó được đặt ngay lối vào nên họ cũng không cần thiết phải xin phép để vào tận bên trong. ’ Là thứ khác sao...?
+
+Tôi nhìn về phía hình ảnh ban nãy.
+
+Đây là... anime mà.
+
+... Này... Này này này này này này!
+
+Việc này... Cô... nghiêm túc đấy à?
+
+Tôi không kìm được ngửa người về phía sau.
+
+"Mio, cô thật sự muốn xem cái này sao?"
+
+Đây là series dài tập không thua kém gì Mito Koumon đâu.
+
+"Vâng. Tôi muốn được phép thưởng thức những thứ như thế."
+
+Khuôn mặt tràn đầy nhiệt huyết! Nhưng sao tôi lại biết nguyên cả series phim này vậy? Tôi nhớ mình đâu có ký ức này, cũng không sở hữu DVD của nó mà nhỉ?
+
+A, phải rồi, là tên đó. Vào mùa hè năm ngoái, đứa bạn tư sản trong câu lạc bộ bắn cung của tôi liên tục bắt ép tôi phải xem nó, cảm giác chẳng khác nào bị giam lỏng tra khảo! Tôi đã phải chạy bền trong một căn phòng AV có máy điều hòa!
+
+`Phòng AV (Audio visual Room): Căn phòng kín có chứa đầy đủ những thiết bị phát hình ảnh và âm thanh. Có thể coi đó là một loại rạp chiếu phim trong nhà.`
+
+Ôi, toàn là ký ức đáng ghét đến mức vừa nghĩ tới là đã chẳng muốn nhớ lại.
+
+"Tôi hiểu rồi. Tomoe, hãy cho Mio xem đi. Tôi đã mệt lắm rồi."
+
+"Th-thiếu chủ?! Vậy cũng được sao? Thế thì thời gian của tôi sẽ ít đi mất...!"
+
+"Vô cùng cảm ơn ngài, thiếu chủ!!"
+
+"Ồ... Tuy nhiên, đó chỉ là tác phẩm hư cấu, được con người sáng tạo ra. Cô nhớ phải phân biệt với hiện thực đấy. Còn Tomoe, báo cáo đi."
+
+Ngoài báo cáo ra, tôi vẫn có rất nhiều chuyện cần nói với cô ấy nữa.
+
+Kể từ hôm nay, tôi đã trở thành thương nhân rồi mà. Đương nhiên hai tùy tùng này cũng sẽ trở thành nhân viên của tôi.
+
+Tuy nhiên, một người thì bị ảnh hưởng bởi phim lịch sử, chẳng biết là sơn tặc hay samurai nữa, và người còn lại ham mê một thứ xa rời thường thức của thế giới này.
+
+Tương lai phía trước thật gian truân.
+
+Ở một căn phòng khác, sau khi nghe báo cáo từ Tomoe và thuyết giáo cô ấy một trận vì đã đột nhiên biến mất, cả thể chất lẫn tinh thần của tôi đều mệt mỏi đến cùng cực.
+
+Sẽ rất phiền toái nếu người khác không thấy tôi ở quán trọ, vì vậy tôi vẫn phải lết tấm thân mệt mỏi rời khỏi Á Không và quay trở lại căn phòng đã thuê.
+
+"Mệt quá đi mất."
+
+Mở toang cánh cửa sổ trong phòng, tôi phóng tầm mắt nhìn ra bên ngoài rồi lẩm bẩm.
+
+Lúc này, đêm đã về khuya.
+
+Không có quá nhiều kẻ uống rượu và náo động màn đêm tại Ziege chào đón sự tình lặng nhanh đến không ngờ.
+
+Mặc dù vậy, vẫn có những nơi hoạt động về đêm ở những khu ăn chơi náo nhiệt sầm uất của thị trấn.
+
+Chiếc ghế tôi đang ngồi là kiểu ghế đu đưa giống như chiếc nôi, có cảm giác thoải mái vô cùng. Tôi rất thích, nó chính là cách chữa trị tốt nhất cho trái tim mệt mỏi của tôi.
+
+Hôm nay, tôi đã phải chạy đi chạy lại quá nhiều.
+
+Quả thực đã lâu lắm rồi tôi mới cảm thấy rã rời đến vậy, cả về thể xác lẫn tinh thần.
+
+Trong phòng trọ có hai chiếc giường và một chiếc sô-pha lớn.
+
+Bình thường tôi cứ nghĩ rằng cái ghế đó dành cho các tùy tùng thay phiên sử dụng, nhưng hai cô gái này lại đang nằm ngáy khò khò trên hai chiếc giường.
+
+Trước đó họ còn nói:
+
+"Ngài chọn giường nào cũng được!!"
+
+"(Gật đầu gật đầu!!)"
+
+Như một trò đùa vậy...
+
+Không thể để chuyện này tiếp diễn nữa!
+
+Haa, hôm nay tôi đành ngủ trên ghế dài vậy. Ừ, chắc chắn phải vậy rồi. Thân là một nam học sinh cấp ba khỏe mạnh, nhưng tôi hoàn toàn chẳng có chút ham muốn nào đối với hai người kia. Có lẽ bởi vì tôi đã nhìn thấy nguyên hình của họ, hay do họ có quá nhiều vấn đề chăng?
+
+Nói thật, tôi thà nhìn ra ngoài cửa sổ và thức đến sáng còn tốt hơn. Vừa cảm nhận gió đêm nhẹ thổi vừa ngắm nhìn mặt trăng để trải qua đêm dài, tôi cảm thấy lòng mình thật bình yên. Tôi nhớ đến ngài Tsukuyomi.
+
+Tình cờ tôi còn nhó tới cả bà Nữ thần, để rồi cảm xúc lại tụt xuống bằng 0.
+
+Cái bà Nữ thần đó... Sao tôi có cảm giác như đang nói chuyện với ngài Tsukuyomi vậy, có thể bà ta cũng là một vị thần có liên quan tới mặt trăng? Tôi không hề muốn bà ta là vị thần cai quản mặt trăng đâu. Tôi thật lòng cầu nguyện đó không phải thứ gì nghiêm túc như Flag.
+
+Ngày mai, tôi sẽ ghé qua dinh thự Rembrandt.
+
+Tôi đã liên lạc với thanh niên giả kim thuật sư và hẹn gặp ở trước Hội mạo hiểm giả.
+
+"Xin hãy cho tôi tham gia vào việc tinh chế loại bí dược nổi tiếng Ambrosia!", anh ta đã rất cảm kích và vui vẻ nhận lời.
+
+Vì những thành viên khác muốn nghỉ ngơi, thu xếp ổn thỏa và dừng chân ở nơi này, nên họ đã nói rằng "Bọn tôi sẽ tìm kiếm một quán trọ tốt, giá rẻ và đầy đủ tiện nghi".
+
+Chúng tôi cũng đã tìm được một quán trọ có thể ở lại trong một thời gian dài.
+
+Nếu dự định buôn bán tại đây, tôi còn cần có một kho hàng để bảo quản hàng hóa. Ngoài ra cũng phải chuẩn bị rất nhiều thứ.
+
+Đã xác định rõ việc cần làm, tiếp theo tôi sẽ khảo sát tình hình thị trấn.
+
+Chắc phải mất một khoảng thời gian mới ổn định được mọi chuyện. Điều này cũng dễ hiểu.
+
+Cơn gió lành lạnh lướt qua ngấm vào thân thể, khiến trái tim tồi cảm thấy nhoi nhói. Gió thu à... Chẳng biết thế giới này có mùa thu không, tôi chỉ cảm giác vậy thôi.
+
+"Cứ tưởng mình có tinh thần rất vững vàng, vậy mà..." Tôi lẩm bẩm bằng giọng tự giễu. "Thật phiền phức khi hai tùy tùng đều có những sở thích kỳ quái. Đúng là chẳng thể yêu thương nổi."
+
+Khẽ run rẩy trước cái se lạnh khi đêm xuống, tôi vừa lẩm bẩm với tâm trạng cố trốn tránh hiện thực, vừa suy nghĩ về chuyện bản thân đã trở thành vật hy sinh cho sở thích đấu kiếm của cô tùy tùng màu xanh lam và sở thích 2D của cô tùy tùng màu đen.
+
+... Ngủ thôi, ngủ thôi nào.
+
+<br /><br /><br /><br /><br />
+# **Chapter 4**
+<br /><br /><br /><br /><br />
+
+Thương hội Rembrandt còn lớn hơn nhiều so với hình dung của tôi.
+
+Nơi tôi được dẫn tới ngày hôm qua đơn thuần chỉ là phòng tiếp khách của cửa hàng.
+
+Do quá đồ sộ nên tôi đã tưởng rằng nơi đó là một cửa hàng kiếm nơi ở.
+
+Lúc tôi dẫn theo giả kim thuật sư trẻ tuổi tới cửa hàng vào thời điểm đã hẹn trước, quản gia đã đứng đợi sẵn ở đó, rồi chúng tôi di chuyển bằng một chiếc xe ngựa lộng lẫy mà tôi nghĩ là vật sở hữu của thương hội.
+
+Nơi chúng tôi tới là một tòa dinh thự nguy nga nằm ở vùng ngoại ô Ziege.
+
+Tòa dinh thự ấy khiến tôi muốn thốt lên rằng trông nó như thuộc về một hoàng tộc hay quý tộc ở đâu đó vậy, bên trong là một khu vườn rộng lớn đến mức khó mà gặp được ở Nhật Bản.
+
+Quả nhiên, cả tôi và thanh niên giả kim đều ngỡ ngàng.
+
+Thật may khi một thường dân như tôi vẫn không thấy quá khủng khiếp hay căng thẳng đến mức cảm thấy phi hiện thực.
+
+Nhưng bối rối là điều không thể tránh khỏi.
+
+Hôm nay chúng tôi sẽ tiến hành điều chế bí dược, tuy nhiên, trước tiên cần phải đi theo giả kim thuật sư trẻ tuổi và học tập về (thứ mang tên) giả kim thuật nào.
+
+Mặc dù tôi định đi tới dinh thự Rembrandt với tâm trạng thật thảnh thơi, thế nhưng...
+
+Bọn họ triêh khai kế hoạch nhanh chóng ngoài sức tưởng tượng của tôi.
+
+Sau khi điều chế bí dược xong trong ngày hôm nay, họ sẽ cho người bệnh dùng thuốc luôn.
+
+Đột nhiên nhận được thông báo bất ngờ như vậy, chúng tôi liền lo lắng đến sốt vó.
+
+Vốn tưởng điều chế loại bí dược này sẽ rất tốn thời gian, biết vậy tôi đã hỏi kỷ ông Rembrandt từ trước.
+
+Tôi nghĩ giả kim thuật chính là dùng nồi hoặc bình lớn để đun nhiều thứ trong khoảng thời gian dài, có lẽ phải mất cả ngày hôm nay mới hoàn thành.
+
+Tuy nhiên, ông ấy có thể yên tâm giao vợ và hai cô con gái đang phải đấu tranh với bệnh tật suốt nhiều ngày trời cho những kẻ vừa mới gặp mặt như chúng tôi sao?
+
+Liệu có ổn không vậy...? Mà thôi, nếu ông Rembrandt đã nói OK thì chắc không có vấn đề gì.
+
+Thế mà ban đầu tôi còn tưởng sẽ khó khăn lắm chứ.
+
+Tuy không biết có ổn không khi dùng hai người quá đặc thù như Tomoe hoặc Mio làm ví dụ để tham khảo, nhưng đặt trong thế giới này, sự bất an của tôi đúng là lo bò trắng răng.
+
+Mặc dù đáng sợ, nhưng tôi có nên tin vào ông Rembrandt không?
+
+"Cậu Raidou, tôi nghĩ đây là lỗi của tôi vì đã đồng ý khi nghe tới chuyện bí dược mà không hỏi kỹ lưỡng. Nhưng nếu đối phương là thương hội Rembrandt, đáng lẽ cậu nên nói cho tôi biết trước chứ!"
+
+Giả kim thuật sư trẻ tuổi hoang mang nói với tôi trong phòng tiếp khách.
+
+Rõ ràng người vừa nghe thấy tên của loại bí dược ấy đã nói OK ngay chính là cậu ta. Lỗi đâu phải do tôi.
+
+Nếu hỏi nguyên nhân, thì đó là vì tôi không ngờ được rằng thương hội Rembrandt là một đại hào phú nổi tiếng đến như vậy.
+
+Không chỉ là một cửa hàng lâu đời, Rembrandt còn là một thương hội lớn. Nếu nhìn thấy dinh thự này từ trước, tôi cũng sẽ ít nhiều cân nhắc tới trang phục của mình hơn.
+
+Chọn vài sản phẩm mẫu của tộc Người lùn để khoác lên người cũng là ý kiến không tồi. Tôi nhớ họ có rất nhiều quần áo phù hợp với những dịp được mời tới dinh thự như thế này. Ăn mặc như lúc đi du hành rõ ràng là không phù hợp.
+
+Hiện giờ, chúng tôi đang chờ đợi trong căn phòng tiếp khách rộng lớn hơn cả đại sảnh của quán trọ, ngồi trên chiếc sô-pha êm đến mức muốn chìm cả người vào trong ghế.
+
+Trước mắt tôi là rất nhiều loại đồ uống được đặt trên bàn trà, quả là kiểu cách của tầng lớp thượng lưu.
+
+Trong hành trình đi tới Ziege, tôi thường mở rộng Giới tìm kiếm ra xung quanh mà chẳng thèm kiêng nể gì, nhung khi đã vào thị trấn, đặc biệt là ở nơi như thế này, hầu như tôi không sử dụng Giới.
+
+Nếu ở bên ngoài tôi cũng sẽ dùng tới, nhưng tôi luôn tự kiềm chế bản thân không dò xét tình hình khi vào phòng.
+
+Tôi cũng nghĩ mình phải đề cao cảnh giác hơn. Tuy nhiên, có lẽ vì được nuôi dạy trong một thế giới rất nghiêm ngặt về thông tin cá nhân và tính riêng tư, nên mặc dù tôi có thể tìm hiểu, nhưng không có nghĩa là tôi nên làm điều đó.
+
+Hơn nữa, trong dinh thự này có một người vợ đang vật lộn với bệnh tật, chưa kể còn hai cô gái đang trong độ tuổi cập kê.
+
+Quả thực hành động nghe trộm và nhìn lén chẳng hay ho chút nào.
+
+[Đây là lần đầu tiên tôi đến Ziege, vậy nên tôi không biết tới danh tiếng của thương hội Rembrandt.]
+
+Tôi nói với thanh niên giả kim thuật sư đang vô cùng khẩn trương.
+
+"... Haizz, đúng là vậy. Không, xin lỗi cậu. Rembrandt là một cái tên tương đối lớn ở Ziege. Nếu như bị ông ấy nhắm tới, sẽ rất khó sống ở nơi này."
+
+[Thì ra là vậy. Vậy nên anh mới căng thẳng nhỉ?]
+
+"Đúng thế đấy! Hơn nữa, đây còn là yêu cầu tinh chế bí dược Ambrosia! Ngay cả phương pháp luyện chế cũng được chuẩn bị sẵn, từ nãy tôi đã hồi hộp lắm rồi..."
+
+Nếu thất bại, không biết chúng tôi có bị trả thù không nhỉ? Không, bình thường hẳn là không đâu.
+
+... Tuy tôi muốn nghĩ rằng bọn họ là thương nhân chứ không phải Mafia, nhưng dù sao việc này cũng liên quan tới tính mạng thân nhân nhà họ.
+
+[Chắc không sao đâu. Với cấp độ 80 thì việc tinh chế rất dễ dàng.]
+
+"Bí dược Ambrosia... Tôi nghe nói đó là loại thuốc giải độc vạn năng, dùng mật của hoa Ambrosia làm nguyên liệu chính, nhưng tương truyền loại hoa đó đã bị tuyệt chủng, vậy rốt cuộc chúng ta phải làm thế nào để tinh chế được nó đây..."
+
+Chìm vào thế giới của chính mình, giả kim thuật sư trẻ tuổi lẩm bẩm: "Không phải như vậy, cũng không phải như thế..."
+
+Ông Rembrandt và quản gia vẫn chưa tới.
+
+Họ định để chúng tôi đợi đến bao giờ đây? Không phải tôi đang tức giận, chỉ là tôi không muốn ở trong một căn phòng xa hoa như thế này!
+
+Khi tôi đã uống hết một nửa đồ uống (có lẽ là một loại hồng trà), người hầu gái lập tức đi tới và nhanh nhẹn thay cho tôi một ly mới.
+
+Tôi nghĩ sẽ không có vấn đề gì về mặt tư cách trong trường hợp họ đã nắm được nghề nghiệp và cấp độ của chàng trai đi cùng tôi.
+
+Có điều, nếu biết trước sẽ có tình huống như vậy, lẽ ra tôi nên cố gắng ghi nhớ tên của người thanh niên đang có sắc mặt không tốt này mới phải.
+
+*Cạch.*
+
+Nghe thấy tiếng mở cửa, chúng tôi liền hướng về nơi phát ra âm thanh.
+
+"Xin lỗi vì để hai người đợi lâu."
+
+Ông Rembrandt và quản gia bước vào phòng.
+
+... Cuối cùng họ cũng tới rồi.
+
+"Mọi thứ đã được chuẩn bị xong xuôi, tôi tới đây để mời mọi người. Thiết bị ở dưới tầng hầm, tôi sẽ dẫn đường, xin hãy đi theo tôi."
+
+"Nếu tôi nhớ không nhầm, cậu Raidou cũng sẽ quan sát đúng không? vậy xin mời cậu đi cùng với cậu Hazar."
+
+!!! Ông Rembrandt, good job! Hóa ra tên của giả kim thuật sư trẻ tuổi kia là Hazar sao. Thảo nào tôi thấy cái tên ấy quen quen. Nếu để ai biết tôi thậm chí còn chẳng nhớ tên của người thanh niên đi cùng mình, uy tín của tôi sẽ bị ảnh hưởng mất. Ông ấy đã giúp tôi rồi.
+
+[Còn ông thì sao?]
+
+Tôi hỏi ông Rembrandt - đấng cứu thế của mình.
+
+"Tôi sẽ đi tới chỗ vợ và con gái tôi trước. Khi việc tình chế hoàn tất, chúng tôi sẽ dẫn cậu tới phòng của họ. Hẹn gặp lại sau."
+
+Có lẽ ông ấy cũng muốn mau chóng ở bên cạnh người thân cho đến khi họ được chữa khỏi. Nếu đã có quản gia đáng tin cậy ở đây, đương nhiên bản thân sẽ muốn ở bên cạnh vợ và con gái hơn là túc trực ở khu vực điều chế thuốc rồi.
+
+[Tôi hiểu rồi. Vậy gặp lại sau.]
+
+Sau khi cúi chào tôi và Hazar, ông Rembrandt rời khỏi căn phòng.
+
+Công xưởng dùng để tinh chế thuốc nằm ở dưới tầng hầm, sau khi được nghe giải thích sơ lược về con đường đi tới đó, chúng tôi cũng rời khỏi phòng tiếp khách.
+
+Theo chân quản gia, tôi đi song song với Hazar ở phía sau ông ấy. Liếc sang bên cạnh, sắc mặt Hazar trắng bệch, còn đôi mắt thì vô hồn. Trông anh ta cứ như đang sắp đi tới đài hành hình không bằng. Không sao chứ?
+
+Vừa nghĩ về mấy điều không được lịch sự lắm, tôi vừa đi về phía công xưởng theo sự dẫn đường của quản gia.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Mật hoa Ambrosia và rượu thuốc cốc-tai đóng băng.
+
+Phương pháp luyện chế bí dược Ambrosia nghe qua thì có vẻ rất đơn giản.
+
+Cho mật ong Ambrosia và nhiều loại rượu thuốc theo một công thức đã được định trước vào trong lọ. Sau đó, nhỏ một lượng nhất định hỗn hợp rượu thuốc và mật hoa đó vào loại nước đặc biệt đã được đóng băng (đông cứng vào khoảng âm 20 độ) và nghiền nhỏ như đá bào.
+
+Chỉ vậy thôi. Giả kim thuật sư chỉ cần điều chỉnh nhiệt độ, phân lượng, không khí bên ngoài và môi trường xung quanh. Ở thế giới này, ngoài tác dụng tạo ra và thúc đẩy phản ứng hóa học, ma pháp trong lĩnh vực giả kim thuật chủ yếu dùng để điều chỉnh điều kiện và nhiệt độ, tạo ra môi trường như trong phòng vô trùng hoặc phòng sạch.
+
+Đúng là một công đoạn đơn giản, tôi thầm nghĩ. Có lẽ Hazar cũng đang nghĩ "Chỉ đơn giản thế thôi sao?", nên suy đoán của tôi chắc không sai.
+
+Tuy nhiên, hiệu suất của lời niệm chú quá kém.
+
+Tôi chỉ muốn gào lên "Làm cái gì vậy hả?!". Lời niệm chú và cách tạo thuật thức cũng nửa vời. Nói một cách dễ hình dung, anh ta dốc toàn bộ ma lực chỉ để tạo ra một ma pháp.
+
+Mặc dù anh ta dùng nhiều ngôn từ cổ đại cấp thấp nhưng cái này thật kinh khủng. Tôi rất muốn hỏi, "Anh dùng ma pháp như thế á?". Ôi... Đây là tiêu chuẩn của ma pháp ở thế giới này đấy à? Kể cả trong cuộc hành trình nơi hoang dã, ma pháp tấn công và ma pháp hỗ trợ mà nhóm Toa dùng cũng khiến tôi có suy nghĩ giống như bây giờ, làm vậy chẳng phải rất lãng phí ma lực sao?
+
+Nếu lần theo những từ ngữ gần với bản chất của thuật và tái hiện nó, ngay cả khi dùng ngôn ngữ cổ đại cấp thấp cũng sẽ đem lại hiệu suất rất cao. Lẽ nào thứ Emma đã dạy tôi là kiểu ma pháp vô cùng quý giá và dễ sử dụng?
+
+Quan sát công đoạn chế tạo bí dược, tôi tin chắc hiện giờ là thời điểm quan trọng nhất.
+
+Làm thế nào người ta tìm thấy mật hoa Ambrosia vậy? Bởi ngoài nó ra, những nguyên liệu khác hoàn toàn không khó để thu thập.
+
+Theo như lời Hazar, thu thập một lượng tương đối mật hoa Ambrosia, loài hoa được cho rằng đã tuyệt chủng là việc khó khăn nhất, và thứ giải quyết được vấn đề đó chính là tròng mắt của Ruby Eye - một loại nguyên liệu hiếm. Thông qua công đoạn đặc biệt, có thể chiết xuất được thành phần giống hệt mật hoa Ambrosia từ tròng mắt. Có lẽ, đó chính là bí pháp quan trọng nhất.
+
+Đương nhiên tôi cũng đã nhìn thấy bí pháp đó, nhưng hoàn toàn không hiểu gì. Lát nữa tôi sẽ liên lạc với Tomoe và để mọi người trong Á Không xem ký ức của tôi, có lẽ bọn họ sẽ biết được điều gì đó. Tôi khá là kỳ vọng vào nhóm Arche.
+
+Không ngờ Ruby Eye không phải là chủng biến dị của Red Bee, mà là tên gọi chỉ những con Red Bee chuyên ăn mật hoa Ambrosia. Vậy ra mật hoa Ambrosia chính là thứ khiến mắt của Red Bee biến thành màu đỏ...
+
+Tóm lại, quanh thị trấn này tồn tại một vùng đất có rất nhiều hoa Ambrosia nở mà chẳng ai hay biết. Tuy chưa thể nói được điều gì vì không nắm rõ phạm vi hoạt động của Ruby Eye, nhưng có thể khẳng định hoa Ambrosia thực sự tồn tại.
+
+Loài hoa đó vẫn chưa bị tuyệt chủng. Tôi đã nắm được một tin tức tốt lành đây.
+
+Sau khi đổ toàn bộ dung dịch kia vào loại cốc-tai đóng băng, qua một thời gian, hỗn hợp đó đông kết thành tinh thể và có màu đỏ thẫm.
+
+Giả kim thuật sư đặt tinh thể đó lên trên dụng cụ rồi rạch một vết cắt lớn ở trên bề mặt của nó, thay vì có cùng màu với tinh thể như tôi đã nghĩ, một dòng chất lỏng trong suốt màu hồng nhạt chảy vào cái lọ đựng đã được đặt sẵn ở bên dưới.
+
+Ngược lại, sắc đỏ trên bề mặt tinh thể lại càng trở nên đậm hơn nữa, trông khá đẹp mắt.
+
+Hazar cẩn thận đóng nắp lọ lại. Chăm chú nhìn vào chiếc lọ, anh ta thở ra một hơi.
+
+Vậy có nghĩa là...
+
+"... Hoàn thành rồi. Bí dược Ambrosia."
+
+Ồ ồ, tiếng cảm thán vang lên xung quanh. Ngoài tôi, Hazar và quản gia ra, ở đây còn có vài trợ thủ của nhà Rembrandt.
+
+Tuy phưong pháp luyện chế hết sức đơn giản mà lại mang hiệu quả vô cùng cao, nhưng bí dược này cũng tốn rất nhiều tiền.
+
+Chủ yếu là do công đoạn thu thập nguyên liệu.
+
+Tuy nhiên, khi xem xét tới phí tổn, thành quả ít hơn nhiều so với tôi nghĩ. Chất lỏng chỉ chiếm khoảng hai phần ba chiếc lọ, còn không nhiều bằng một chai nước uống dinh dưỡng, trong khi số lượng nguyên liệu đã dùng không hề ít.
+
+Có lẽ yên tâm vì đã thoát khỏi áp lực, khuôn mặt Hazar toát lên vẻ mệt mỏi.
+
+... Còn phải điều chế thêm hai lần nữa đấy, anh ta vẫn ổn chứ?
+
+Trong trường hợp làm ba phần cùng một lúc, thất bại một cái liền xong đời. Vậy nên chúng tôi mới chia thành ba lần để làm.
+
+Vì săn được sáu con Ruby Eye, nên chúng tôi có gấp đôi số tròng mắt cần thiết, tuy nhiên tôi đã ém nhẹm chuyện đó đi. Tốt nhất là có thể hoàn thành mà không cần dùng đến chúng, vì tôi còn muốn tận dụng chúng cho việc khác.
+
+Quãng đường đi tới Ziege không hề ngắn, nhưng sự thật là chúng tôi chỉ gặp được Ruby Eye một lần duy nhất, chứng tỏ những chiếc tròng mắt này là vật rất có giá trị, điều này không thể phủ nhận được.
+
+Lát nữa tôi sẽ nhờ tộc Người thằn lằn đi tìm kiếm hoa Ambrosia ở noi hoang dã. Nếu có thể trồng được, chúng sẽ trở thành một món hàng lý tưởng đấy.
+
+Đúng rồi, tôi sẽ nhờ cả Mio luôn, cô ấy có vẻ hiểu rất rõ về thuốc.
+
+Muahahahah.
+
+"V-vậy, tôi sẽ lập tức đưa loại bí dược này cho chủ nhân! Ngài Hazar, xin nhờ ngài hãy tiếp tục!"
+
+Để lại một câu nói như vậy, quản gia cầm lọ thuốc bằng hai tay rồi nhanh chân rời khỏi phòng. Mặc dù nét mặt vẫn không thay đổi, nhưng dựa vào cách nói chuyện có thể thấy, ông ta đang rất vui mừng.
+
+Tuy đã xem qua một lần rồi và chắc hai lần sau cũng vẫn như vậy, nhưng... có lẽ tôi nên tiếp tục im lặng quan sát việc tinh chế thuốc.
+
+Ông Rembrandt và quản gia thể nào cũng rơi nước mắt thêm lần nữa. Đứng ở nơi có hai người đàn ông trưởng thành đang khóc lớn, nói thực lòng tôi cảm thấy vô cùng khó xử.
+
+Kể từ lúc tới nhà Rembrandt, Hazar đã rất mệt mỏi khi phải chịu áp lực liên tục. Xem ra tôi nên cho anh ta cơ hội để nói ra suy nghĩ của mình.
+
+"... Có vẻ đã thành công rồi nhỉ?"
+
+Tôi bắt chuyện với Hazar bằng ngôn ngữ cổ đại cấp thấp. Theo như lời niệm chú ban nãy, hẳn anh ta có thể hiểu được lời này.
+
+Xem ra những người trợ thủ không hiểu được lời nói của tôi, họ làm ra vẻ mặt như kiểu, "Cậu ta đang nói cái gì vậy?"
+
+"Cậu Raidou?! Cậu có thể dùng ngôn ngữ cổ đại để giao tiếp sao?!" Hazar ngạc nhiên.
+
+Ngôn ngữ cổ đại có thể dùng thay cho ám hiệu đơn giản, Tomoe đã nói với tôi như vậy, nên chắc hẳn việc tôi dùng nó không phải là điều gì quá khó tin... À thì, đây là lời tôi đã nghe từ Tomoe, nên có lẽ nó là thông tin từ xưa lắm rồi.
+
+"Ừ, ngoài ngôn ngữ chung, tôi cũng từng học vài loại ngôn ngữ khác. Nhưng tôi nghĩ mình sẽ không dùng được bất kỳ loại ngôn ngữ nào trong số chúng để giao tiếp."
+
+"A, đúng là cậu không dùng được ngôn ngữ chung nhỉ... Tôi còn tưởng là do sự quấy rầy ác ý nào đó chứ."
+
+Anh hoàn toàn đúng đấy!
+
+"Những người khác nghe không hiểu cũng tốt cho chúng ta. Anh hãy nhanh chóng làm nốt hai phần còn lại đi. Tôi muốn chữa trị cho họ nhanh nhất có thể."
+
+"... Ừ. Có vẻ cũng không còn nhiều thời gian như chúng ta nghĩ."
+
+"Tuy không biết nhiều về chú bệnh lắm, nhưng tôi thực sự cảm thấy tức giận với kẻ chủ mưu và kẻ đã gây nên chuyện này."
+
+"Cậu Raidou tốt bụng thật đấy. Vậy mà tôi đã có suy nghĩ vô tâm rằng, 'Có thể bán được một ân tình lớn rồi'."
+
+Hazar chết tiệt, anh cho rằng người khác không hiểu chúng ta nói gì nên liền ăn ngay nói thật luôn à? Đối với anh ta, chú bệnh là thứ vô cùng bình thường, có lẽ anh ta đã quen với việc điều chế thuốc chữa trị căn bệnh này rồi.
+
+Hay là do công việc mạo hiểm giả và cuộc sống lang thang đã tôi luyện tinh thần của anh ta trở nên mạnh mẽ như vậy?
+
+Thật kỳ lạ khi tôi lại đồng cảm với người khác, không, đó không phải là bản tính của tôi.
+
+"... Anh sẽ được nhận rất nhiều thù lao đấy. Nào, nhanh tay lên."
+
+Nghe lời thúc giục ngắn gọn của tôi, Hazar vội vàng quay trở lại với công việc chế thuốc.
+
+Nhờ sử dụng ngôn ngữ cổ đại, tôi mới có thể nói chuyện riêng với Hazar, nhưng nghĩ lại, lỡ như có một người nào đó trong số các trợ thủ hiểu được ngôn ngữ cổ đại thì sao, dường như tôi đã làm một chuyện nguy hiểm rồi.
+
+Quan sát một lúc, lọ thuốc thứ hai cũng đã hoàn thành một cách thuận lợi.
+
+Trái với quá trình tìm kiếm nguyên liệu làm ra nó, việc chế thuốc lại đơn giản hơn nhiều. Chuyện này chắc hẳn là điều may mắn với ông Rembrandt. Nếu xác suất thành công trong giai đoạn chế thuốc quá thấp, vậy thì hy vọng của ông ấy sẽ lại càng mong manh.
+
+Có điều, phương pháp luyện chế tuy dễ dàng, nhưng tiêu hao quá nhiều nguyên liệu, như thể ta có được một con cá ngừ, nhưng chỉ lấy phần thịt bụng, những thứ còn lại vứt hết. Tôi cảm thấy điều này đã làm tăng giá trị của bí dược hơn mức cần thiết.
+
+Nói cách khác, nếu có thể cải tiến và sản xuất với hiệu suất cao, có lẽ tôi sẽ tạo ra được sản phẩm với giá cả hợp lý hơn. Có thể nó sẽ trở thành món hàng thu hút nhiều sự chú ý của thương hội Kuzunoha.
+
+Ý tưởng hàng hóa này quả là một thu hoạch không ngờ. Loại bí dược hiếm có này xem ra cũng có sức ảnh hưởng lớn.
+
+Nỗi phiền não do Mio gây ra hôm qua đã nguôi ngoai được phần nào.
+
+"... Phuuuuù. Cuối cùng cũng đã điều chế thuốc xong."
+
+Cầm hai lọ thuốc bằng một tay, Hazar vừa lau mồ hôi bằng tay còn lại vừa đi về phía tôi.
+
+Hời hợt quá đấy. Xin anh hãy học quản gia cầm bằng hai tay đi!
+
+Sầm!
+
+"Ngài Raidou! Ngài Hazar!"
+
+Gì vậyyyyyy?!
+
+Người vừa đột ngột xông vào rất đúng thời điểm là quản gia!
+
+"Ô! A?!"
+
+Tôi nhìn về nơi phát ra âm thanh. Giật mình vì có người xông vào, Hazar ném bay hai chiếc lọ.
+
+Hazar, lát nữa nhất định tôi sẽ xử anh!
+
+... Nhìn hai chiếc lọ đang nhảy múa trên không trung, dù vẫn còn bàng hoàng, nhưng cơ thể tôi vẫn có thể cử động. Tôi phải cảm ơn cơ thể siêu nhân này rồi.
+
+Bằng hành động có thể được miêu tả là nhún người nhảy và bay lên, tôi lao tới chiếc lọ đang rơi ở phía bên phải. Duỗi tay phải ra, tôi bắt trúng mục tiêu một cách chính xác. Tất nhiên, phải thật nhẹ nhàng để chiếc lọ không bị bóp nát!
+
+Tuy nhiên, mục tiêu còn lại đang rơi ở hướng ngược lại, tôi không thể với tay tới từ vị trí này.
+
+Chết tiệt!
+
+Tôi đập bàn tay trái xuống sàn nhà và dùng một lượng ma lực vô cùng nhỏ.
+
+Nhờ chấn động do ma lực bùng nổ, cơ thể tôi bị thổi bay về phía chiếc lọ còn lại, có điều tay tôi vẫn chưa với tới.
+
+Làm ơn, hãy rơi xuống đâu đó trên lưng tôi đi!
+
+Có lẽ thần linh đã nghe thấy lời cầu nguyện trong lòng tôi.
+
+Tôi cảm thấy một vật nhẹ rớt trên lưng. Ngay sau đó, đầu tôi bị đụng mạnh.
+
+Khốn kiếp! Đụng trúng bàn rồi, nhưng nếu hai lọ thuốc đuợc an toàn thì all right.
+
+"Q-quả không hổ là... c-cậu Raidou!"
+
+Tên chết tiệt Hazar! Tôi tuyệt đối phải đấm anh hai cái!
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Quản gia đưa chúng tôi đến căn phòng ông Rembrandt đang đợi.
+
+Điểm đến của chúng tôi chính là căn phòng tiếp khách lúc đầu. Trên đuờng tới đây, có một mùi rất ngọt xộc vào mũi tôi. Hương thơm giống với mùi của đồ mỹ phẩm và nước hoa tỏa ra từ căn phòng nằm ở phía bên kia của hành lang.
+
+Sau khi buớc vào phòng tiếp khách, chúng tôi liền thấy ông Rembrandt với tình trạng hết sức bất thường.
+
+Ông ấy ngồi trên chiếc ghế sô-pha, cánh tay trái dính đầy máu tươi đang được chữa trị.
+
+Nhìn cảnh tượng đó, thanh niên giả kim thuật sư hít sâu một hơi.
+
+Ông ấy đã bị ma vật tấn công à? Nhìn qua, tôi nghĩ có vẻ đó là vết thương do răng và móng vuốt. Căn cứ vào độ lớn của vết thương, hình thể của đối phương tương đối nhỏ.
+
+Nhận ra chúng tôi bước vào, ông Rembrandt ngẩng đầu lên.
+
+"Ồ, cậu Raidou. Và cả cậu Hazar nữa."
+
+Giọng nói rất yếu ót. Trong khoảng thời gian chúng tôi không ở đây, ông ấy đã bị tấn công thật sao?
+
+[Thuốc ở đây. Ông không cần lo lắng.]
+
+Không dám để cho Hazar cầm một lần nữa, nên người cầm hai lọ thuốc là tôi.
+
+"Việc này... Rốt cuộc có chuyện gì đã xảy ra vậy?"
+
+Hazar lo lắng hỏi ông Rembrandt.
+
+Nhưng ông Rembrandt chỉ vô lực lắc đầu. Nhìn dáng vẻ của ông ấy, có lẽ không phải không nói được, mà ông ấy đang phiền não không biết nên nói như thế nào.
+
+Tôi ngăn Hazar đang gặng hỏi ông Rembrandt, yên lặng đợi ông ấy bình tĩnh lại.
+
+Trong căn phòng rộng lớn, chỉ còn âm thanh chữa trị cho cánh tay của ông ấy.
+
+... Và rồi, cả âm thanh đó cũng ngừng lại.
+
+"... Thật xin lỗi. Nhờ cậu kiên nhẫn chờ đợi, tôi đã bình tâm hơn một chút rồi."
+
+[Ông có thể nói cho chúng tôi biết đã có chuyện gì xảy ra không?]
+
+Tôi hỏi. Trước khi đến dị giới, nếu có người bị thương xuất hiện trước mặt, tôi nghĩ nhất định mình sẽ vô cùng hoảng hốt. Có được sự điềm tĩnh như hiện tại chắc hẳn là vì tôi đã quen với thế giới này.
+
+Tôi chỉ nghĩ đến một khả năng, khi ba người bệnh bị ai đó bắt đi, ông Rembrandt đã đứng ra bảo vệ bọn họ, đại loại vậy.
+
+"Đó là khi... quản gia mang bí dược tới."
+
+Ông Rembrandt bắt đầu bình tĩnh kể lại.
+
+"Có âm thanh phát ra từ phòng ngủ của vợ tôi."
+
+Chính là bên trong căn phòng tỏa ra hương thơm ngọt ngào ở hành lang ban nãy. Hóa ra đó là căn phòng của người vợ.
+
+[Âm thanh ư?]
+
+"Ừ, tôi cứ nghĩ do căn bệnh phát tác như mọi khi, nhưng..."
+
+Phát tác? Đây là lần đầu tiên tôi nghe thấy chuyện này. Cắt ngang cuộc đối thoại, tôi hỏi ông Rembrandt.
+
+[Phát tác sao...?]
+
+"Phải, tôi vẫn chưa nói với các cậu về bệnh trạng của họ nhỉ. Ban đầu, cả ba người chỉ liên tục phát sốt thôi, nhưng..."
+
+Từ bệnh trạng giống như cảm cúm, dần dần tình trạng của họ trở nên kỳ lạ. Sợ nước và ánh sáng, đôi lúc điên cuồng mất hết lý trí, họ phá hủy tường và các vật dụng trong phòng. Nghe có vẻ giống trường hợp mắc phải bệnh dại ở loài chó, thế nhưng...
+
+Sau đó, chú bệnh ăn mòn cả diện mạo của bọn họ.
+
+Mái tóc đẹp rơi rụng hết, gò má hốc hác, đồng tử phát ra ánh sáng đỏ...
+
+Vẻ ngoài của họ đã thay đổi đến mức không còn nhận ra được nữa.
+
+Sau khi lấy lại được ý thức, nhận ra thảm trạng của bản thân, họ liền trở nên tuyệt vọng, khóc lóc trong đau khổ, họ không ngừng nói xin lỗi với chồng, với cha mình.
+
+... Tôi không thốt nổi nên lời. Tôi còn không thể nhìn thẳng vào khuôn mặt của ông Rembrandt khi ông ấy kể lại bệnh trạng của người thân.
+
+"... Sau đó, thi thoảng bọn họ hành động vô cùng hung bạo với sức mạnh rất kinh khủng. Tuy nhiên, gần đây họ đã yếu đi trông thấy, không còn như trước nữa... Chỉ cất tiếng rên rỉ thôi cũng đã phải dùng hết sức lực rồi."
+
+Nếu là tôi, bình tĩnh kể ra câu chuyện như thế là điều không thể. Tôi sẽ chỉ một lòng muốn tìm thấy kẻ chủ mưu, kẻ thực hiện và cả gia đình của chúng, rồi giết sạch hết.
+
+"Địa... địa ngục đó đáng lẽ sẽ kết thúc ngay ngày hôm nay!! Vậy mà, vậy mà.." Ông Rembrandt gần như hét lên. "Sau khi nhận được thuốc Morris đưa tới, tôi lập tức đi tới chỗ vợ tôi. Cứ nghĩ rằng sẽ cứu được người vợ đau khổ của mình, nước mắt tôi ngừng chảy. Nhưng khi tôi vừa đi tới trước phòng ngủ thì..."
+
+Lúc đó...
+
+Trong khoảnh khắc, âm thanh náo loạn vang dội khắp dinh thự. Một cánh tay yếu ớt không còn sức sống đâm xuyên qua cánh cửa gỗ.
+
+"Sự việc xảy ra trong chớp mắt. Vợ tôi... đã nhắm vào cánh tay của tôi và tấn công."
+
+Ông ấy đã liều mạng cố gắng bảo vệ niềm hy vọng cuối cùng.
+
+"... Vợ tôi, đã cướp mất lọ thuốc... đáng lẽ dùng để cứu cô ấy từ tôi, và... và đập vỡ nó."
+
+... Tôi không biết phải nói gì. Ông ấy thở ra một hơi dài rồi nói tiếp:
+
+"Một mùi hương quá mức ngọt ngào không ngừng tỏa ra, vợ tôi lại tấn công tôi trong tình trạng còn chưa tỉnh táo. Nhờ có Morris và những hộ vệ tôi thuê để đề phòng, tôi mới giữ được tính mạng... Tiếp đó, vợ tôi gào thét và nhe răng, nhưng một lúc sau thì ngã vật xuống rồi ngủ thiếp đi."
+
+Sau đó, chính là tình trạng hiện giờ.
+
+Tuy nhiên, phát tác đúng vào thời điểm mấu chốt ấy, thực sự chỉ là ngẫu nhiên thôi sao?
+
+"... Đó không phải là do phát tác."
+
+Hazar - người nãy giờ vẫn yên lặng lắng nghe, bỗng lên tiếng. Giọng điệu của anh ta cũng vô cùng nặng nề.
+
+"E rằng, chỉ khi ở gần bí dược họ mới trở nên như vậy, kẻ thi chú không muốn để bệnh nhân uống được thuốc. Bản thân người trúng chú bệnh có lẽ đã trở thành chướng ngại giải chú cuối cùng."
+
+"Tôi cũng chưa từng thấy trường họp này có tiền lệ, nhưng nếu là chú bệnh cấp 8 thì có khả năng sẽ như vậy", Hazar bổ sung thêm.
+
+"Theo lời các hộ vệ đã bị thương, chỉ những người chuyên chiến đấu cận chiến với cấp độ khá cao mới chế ngự được cô ấy."
+
+Một người suy nhược đến mức không thể cử động nổi, vậy mà phải cần tới mấy hộ vệ vạm vỡ mới miên cưỡng kiềm chế được hành động. Tôi có thể hiểu được tại sao lại cần tới người có nhiều kinh nghiệm cận chiến.
+
+... Tôi có biết vài chiến binh cận chiến có cấp độ khá cao.
+
+Thực ra, tôi định liên lạc với nhóm Toa, nói cho họ biết chuyện ở đây và nhờ họ tới hỗ trợ. Có lẽ tôi cũng nên gọi Tomoe và Mio tới cho chắc ăn.
+
+Tuy nhiên, tôi đã quyết định sẽ tự mình đối phó.
+
+Mọi người sẽ phản ứng như thế nào trước quyết định này của một kẻ cấp 1, tôi có thể tưởng tượng ra được.
+
+Nhìn ông Rembrandt cùng những hộ vệ đang bị thương, tôi chỉ cảm thấy việc này chính là trách nhiệm của tôi.
+
+Hiện giờ, nếu lại có biến cố xảy ra, quả thực người có thể xử lý chỉ có mình tôi.
+
+Nhìn quản gia Morris và ông Rembrandt đang cúi đầu, tôi nói:
+
+[Tôi sẽ đảm nhận việc đó. Nào, đi thôi.]
+
+Ông Rembrandt ngạc nhiên kêu lên.
+
+"Cậu Raidou! việc đó là quá sức với cậu! Bởi vì cậu là..."
+
+Đưa tay ngăn ông Rembrandt đang cố đứng dậy, tôi dùng ánh mắt tràn đầy giận dữ nhìn chằm chằm vào ông ấy.
+
+Dường như bị áp đảo bởi ánh mắt của tôi, ông Rembrandt ngồi xuống.
+
+Sau khi đã làm ông ấy bình tĩnh, tôi kéo vạt áo của Hazar, nói với anh rằng hãy cố gắng tìm cách tạo ra một phần bí dược nữa từ số bã thuốc còn lại.
+
+Nghe xong, Hazar lập tức chạy vội về phía công xưởng ở dưới tầng hầm. Dù anh ta có làm được hay không, tôi vẫn đưa hết tròng mắt mà mình có ra, như vậy vấn đề cũng được giải quyết một phần. Các nguyên liệu khác tôi nhớ vẫn còn thừa nhiều. Tôi có thể quay trở lại Á Không và mang tròng mắt bổ sung tới, nhưng sẽ khá tốn thời gian. Nếu Hazar có khả năng điều chế thêm thuốc, tôi muốn cứu gia đình của ông Rembrandt càng sớm càng tốt.
+
+Tôi đưa cho ông Rembrandt một trong hai lọ thuốc đang cầm trên tay.
+
+Trong phòng chế thuốc dưới tầng hầm, mùi hương đã bị kìm nén nên tôi không ngửi thấy, hóa ra bí dược có mùi như vậy sao?
+
+Biểu tượng của nỗi tuyệt vọng lại mang thứ mùi ngọt ngào như vậy. Chẳng biết đây là một trò đùa hay sự mỉa mai nữa.
+
+Được rồi, hãy đi kết thúc lời nguyền ngu ngốc này thôi.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+[Nào, mau mang thuốc tới đây.]
+
+Không một động tác dư thừa, tôi cố định vợ của ông Rembrandt - người đã không còn dáng vẻ của một con người bằng cách giữ chặt hai cánh tay và cơ thể từ đằng sau. Khi thuốc được đưa tới gần, cử động của bà ấy dường như còn trở nên mãnh liệt hơn.
+
+Tóc đã rụng hết, gò má hốc hác, đôi mắt đỏ ngầu, nước bọt chảy ra từ khóe miệng, dáng vẻ của bà ấy đã khiến tôi có một quyết tâm bất chấp tất cả.
+
+Đây là gì vậy? Tôi có cảm giác giống như câu chuyện kể về nhân vật chính sống cùng với chú chó cưng trong một thành phố bị diệt vong do một loại virus biến dị. Bà ấy trông như thể bệnh nhân bị nhiễm phải thứ virus ấy giai đoạn cuối vậy.
+
+Hay là, giống như Ghoul? Không ai có thể tin được rằng đây vốn là một phu nhân xinh đẹp (mặc dù tôi chưa gặp bà ấy bao giờ).
+
+`Ghoul: Ngạ quỷ chuyên ăn thịt người.`
+
+Đôi chân của người vợ vẫn còn đang vùng vẫy điên cuồng, nhưng chắc chúng tôi vẫn có thể đổ thuốc vào miệng bà ấy.
+
+"C-cậu... thật sự là cấp 1 sao?"
+
+Ông Rembrandt kinh ngạc há hốc miệng. Chuyện này là đương nhiên. Cấp 1 tương đương một đứa trẻ, tức là nếu dựa trên chỉ số, không nghi ngờ gì tôi còn kém xa ông Rembrandt.
+
+[Lúc này chuyện đó không quan trọng, mau cho bà ấy uống thuốc đi.]
+
+"À, được!"
+
+Mặc dù vẫn còn đang bàng hoàng trước sự thật chỉ mình tôi đã có thể giữ chặt được bà ấy, nhưng ông Rembrandt đã xốc lại tinh thần bởi một câu nói của tôi. Trên thực tế, cấu tạo cơ thể của Loài người không có nhiều khác biệt so với con người. Vậy nên, nếu kỹ thuật bắt giữ áp dụng được với con người, đương nhiên cũng có hiệu quả với Loài người. Dùng cụm từ "kỹ thuật bắt giữ" có hơi cường điệu thái quá, nhưng đó là phương pháp kiềm chế hành động của đối phương mà chị gái học nhu đạo dã dạy cho tôi. Trước đây tôi chưa thể làm được, có điều với sức mạnh của cơ thế hiện tại, việc này hoàn toàn nằm trong khả năng. 
+
+Năng lực thể chất của tôi nằm ngoài chuẩn mực thông thường. Mặc dù đối phương sở hữu sức mạnh vượt qua giới hạn của cơ thể, nhưng bà ấy vốn chỉ là một người phụ nữ bình thường, nên không thành vấn đề.
+
+Tuy nhiên, cơ hàm của con người lại khỏe hơn những gì tôi nghĩ nhiều.
+
+Khi vượt khỏi giới hạn, hiện giờ lực cắn của bà ấy lại càng lớn hơn nữa. Xét trên góc nhìn của những người bình thường không phải mạo hiểm giả, đối phương thật sự rất kinh khủng.
+
+Tuy bị vợ mình cắn nhưng ông Rembrandt cũng không hề nao núng, lập tức đổ thuốc vào miệng bà ấy. Từ khuôn mặt của ông ấy, tôi cảm nhận được lòng quyết tâm cho dù bị cắn nát ngón tay cũng không né tránh.
+
+Người vợ bắt đầu run rẩy, cả người bà ấy cứ run lên từng cơn, màu đỏ tươi điên cuồng trong đôi mắt bà ấy cũng dần dần rút đi.
+
+Không lâu sau, toàn thân người vợ thoát lực, tiếng hít thở đều đều vang lên.
+
+"Ôi... Risa, như vậy... như vậy, anh lại có thể cùng cười, cùng nói chuyện với em rồi..."
+
+Tuyến lệ của ông Rembrandt được thả lỏng. Đương nhiên, tôi không có ý định bắt bẻ gì trong tình huống cảm động này. Ông Rembrandt đã bật khóc như một đứa trẻ, hoàn toàn mặc kệ ánh mắt của những người xung quanh.
+
+Quản gia Morris tuy không thể hiện cảm xúc gì, nhưng cũng lấy khăn tay lau nước mắt.
+
+Cảm thấy hiện giờ là thời điểm thích hợp, tôi nói với ông Rembrandt:
+
+[Tiếp theo, chúng ta hãy chữa trị cho một trong hai vị tiểu thư đi. Tôi nghĩ nên ưu tiên cho người có bệnh tình xấu hơn.]
+
+Bệnh nhân sẽ trở nên điên cuồng trước thuốc giải, nếu tôi không chế ngự, sẽ không thể cho người đó uống thuốc. Trước tình hình đó, chúng tôi không cách nào đồng thời cứu được cả hai, vì vậy cần phải lựa chọn ai là người uống thuốc trước.
+
+Lọ thuốc còn lại đang được Hazar cố gắng hết sức điều chế, lúc này buộc phải đưa ra lựa chọn.
+
+Vẫn đang ôm người vợ khóc lớn, ông Rembrandt hướng về phía tôi nói:
+
+"... Đ-đúng vậy. Hai đứa con gái của tôi vẫn chưa được chữa trị... Bệnh trạng của đứa út tệ hơn, vì vậy xin hãy cứu nó trước."
+
+Lau khóe mắt, ông Rembrandt hơi điều chỉnh tư thế và đáp lại tôi, nhưng do khóc quá nhiều nên khuôn mặt ông ấy đỏ bừng. Còn nữa, ông Rembrandt, xin hãy xì mũi đi.
+
+[Hiểu rồi.]
+
+Tôi được bọn họ dẫn tới căn phòng của cô con gái thứ hai. Chúng tôi đi dọc hành lang, ông Morris đi trước, tôi và ông Rembrandt theo sau.
+
+Căn phòng đó cách khá xa phòng của người vợ. Nếu phòng của hai cô con gái nằm ngay cạnh, có lẽ ông Rembrandt đã bị ba người tấn công cùng lúc và phải bỏ mạng rồi.
+
+"Con bé ở trong căn phòng này."
+
+Đứng trên hành lang, ông Rembrandt chỉ vào cánh cửa.
+
+[Tôi hiểu rồi. Tiên thủ tất thắng. Xin hãy đưa chìa khóa cho tôi.]
+
+"S-sẽ không có việc gì chứ?"
+
+Mặc dù đã thấy tình hình lúc trước, nhưng ông Rembrandt vẫn không yên tâm hỏi tôi.
+
+[Đừng lo. Sau khi khống chế được tiểu thư, tôi sẽ dùng ma pháp ánh sáng để thông báo cho mọi người biết. Tuy nhiên...]
+
+Tôi cố tỉnh dừng lời để tạo ra bầu không khí nghiêm trọng.
+
+Ực, hai người nuốt nước bọt.
+
+[Nếu như... tôi lỡ chạm phải ngực hay mông của tiểu thư, xin phụ thân đừng nổi giận nha.]
+
+"?!" x2
+
+Nhìn bộ dạng ngỡ ngàng của hai người, tôi vây vẫy tay với họ rồi mở cửa phòng.
+
+Dù sao căng thẳng quá cũng không tốt. Hy vọng trò đùa này sẽ giúp họ thả lỏng được đôi chút.
+
+Cốc cốc.
+
+Sau khi gõ cửa xong, tôi thận trọng mở cửa.
+
+Hửm, cô ấy không nằm trên chiếc giường ở góc phải phía trong căn phòng.
+
+Từ phía cánh cửa, tôi di chuyển một chút tới giữa phòng liền dừng lại.
+
+Bên trong căn phòng tối rất yên tĩnh.
+
+Tôi tìm kiếm xung quanh.
+
+... Thấy rồi.
+
+Ở nơi nằm trong điểm mù của tôi, cô gái bám lên trần nhà phía bên tay trái và đang nhìn chằm chằm vào lưng tôi. Cô ấy là khỉ hay Người Nhện vậy?
+
+Đột nhiên, cô ấy bổ nhào đến. Có lẽ mùi của bí dược đã bám trên người tôi. Nên gọi trường hợp này là may mắn trong bất hạnh nhỉ?
+
+Cô ấy đã coi tôi là một chướng ngại rồi.
+
+Tình trạng sức khỏe cô ấy có vẻ tốt hơn của phu nhân, nhưng cơ thể nhỏ bé nhanh nhẹn và sức lực đáng sợ của cô ấy còn nguy hiểm hơn cả trạng thái điên cuồng.
+
+Cô gái đạp tường bay đến, tôi xoay người tóm lấy cánh tay trái đang nhắm thẳng vào mình của cô.
+
+Cô ấy kêu lên một tiếng không rõ nghĩa, miệng há to ngắc ngứ, cánh tay phải vẫn cố vươn về phía tôi, tuy nhiên, trước khi cô đạt được ý đồ, tôi đã thuận thế xoay người và quăng cô ấy về phía trước.
+
+Để không đánh trúng đầu cô gái, tôi ném cô ấy lên giường, không biết có phải do bối rối vì bị ném xuống giường không, cô ấy khựng lại trong thoáng chốc, tôi liền ghìm chặt chân tay của cô ấy.
+
+Th-thành công rồi!
+
+Chị Yuki, cảm ơn chị nhiều.
+
+Trước đây tôi còn tưởng rằng đó là hành vi ngược đãi em trai, nhưng kỹ thuật này quả là rất hữu ích.
+
+Giữ nguyên tư thế đó, tôi dùng ma pháp ánh sáng để liên lạc với ông Rembrandt và quản gia Morris đang ở bên ngoài.
+
+Không hề che giấu tiếng bước chân, hai người lập tức tiến vào trong phòng.
+
+[Xin hãy mau chóng cho cô ấy uống thuốc.]
+
+Khi nhìn thấy thuốc giải, cô ấy càng giãy giụa mạnh hơn nữa, tôi phải dùng nhiều sức hơn ban nãy để giữ chặt cô ấy lại, rồi thúc giục ông Rembrandt mau chóng cho con gái ông ấy uống thuốc.
+
+Có lẽ cô gái này đang trong độ tuổi cập kê, quả thực tôi không hề muốn phải đánh cô ấy bất tỉnh chút nào. Tôi nghĩ lần này mình đã làm rất tốt.
+
+Sau khi được uống thuốc, cô ấy lập tức chìm vào giấc ngủ say, hệt như trạng thái của mẹ mình. Tôi thả lỏng tay rồi để cô ấy nằm ngủ trên giường.
+
+Sau đó, các cô hầu gái tiến vào phòng, bắt đầu chăm sóc, lau chùi cơ thể và mặc đồ mới cho tiểu thư, đồng thời cũng dọn dẹp cả căn phòng.
+
+Thì ra là vậy, tôi đã không để ý tới chuyện này. Đây là sự chu đáo của quản gia hay của ông Rembrandt vậy?
+
+Đúng lúc này, tiếng bước chân thô bạo không hề kiêng nể ai vang lên trong không gian.
+
+"Haa haa! Cậu Raidou, tôi đã làm được rồi đây. Thành phần là bản thân bí dược, do Hazar này... A?!"
+
+Anh bị đần à?! Sao anh lại có thể té ngã được lần nữa vậy hả?!
+
+Khoảng cách quá xa, lần này tôi không thể hỗ trợ kịp rồi!
+
+Thế nhưng...
+
+Ông Morris đã bảo vệ được lọ thuốc khỏi sai phạm to lớn của Hazar bằng động tác vô cùng nhẹ nhàng.
+
+Vị quản gia này...,Tôi muốn đưa ông ấy tới Á Không và trở thành người một nhà với tôi quá đi. Tôi thật sự rất muốn đề nghị ông ấy trở thành phụ tá của mình!
+
+Còn Hazar, anh ta sẽ phải trả tiền cho bữa ăn tối nay. Bất kể có ngon hay không, tôi nhất định sẽ gọi những món đắt nhất! Đương nhiên là sau khi đấm anh ta mấy cái!
+
+"Tôi rất biết ơn vì kỳ tích của ngày hôm nay. Vô cùng cảm ơn ngài... Nữ thần."
+
+... Ai cũng được, nhưng đừng có cảm ơn cái bà Nữ thần ấy. Điều đó khiến tôi không thoải mái chút nào.
+
+Tôi thầm phủ nhận lời cầu nguyện của ông Rembrandt trong lòng.
+
+Người cuối cùng chính là cô con gái lớn, mặc dù nhanh nhẹn và có sức lực mạnh hơn em gái, nhưng tôi vẫn có thể nhanh chóng khống chế cô ấy.
+
+Tuy tôi có chút lo lắng không biết loại thuốc được tạo ra từ những nguyên liệu còn lại liệu có đủ hiệu quả không, nhưng vì Hazar cam đoan rằng đã cẩn thận đối chiếu thành phần, nên tôi đành chọn cách tin tưởng anh ta vậy.
+
+Cô gái ít nhiều vẫn còn lại một chút lý trí, đôi mắt nhuốm màu đỏ tươi liên tục chớp chớp như đang cố chống lại sự xâm chiếm của cơn điên cuồng. Đôi lúc, ánh mắt cô ấy trở nên tỉnh táo. Vẻ mặt đau đớn khi vừa kêu tôi "Chạy đi" vừa không kiềm chế được bản thân nhào tới tấn công tôi của cô ấy khiến trái tim tôi trĩu nặng.
+
+Phải nếm trải sự đau khổ như vậy trong tình trạng vẫn còn ý thức... Tuy tôi biết rõ cô ấy không hiểu được, nhưng tôi vẫn dịu giọng nói bằng tiếng Nhật rằng, "Không sao, tôi đến để giúp cô, xin hãy cố chịu đựng một chút nữa thôi", và dốc sức ngăn cản hành động của cô ấy.
+
 ![][IMG_0739.PNG]{:class="img-fluid"}
 
 [IMG_0739.PNG]: https://1.bp.blogspot.com/-tsv4M9oSjvI/YYSqJQQDrXI/AAAAAAAACdg/Wor5Zhq_rpQXNPThLdw21mITAcJSDcWmACLcBGAsYHQ/s16000/IMG_0739.PNG
+
+Điều chỉnh xong cảm xúc bức bối của bản thân, tôi gọi ông Rembrandt và thúc giục ông ấy cho cô gái uống thuốc.
+
+Phùùù.
+
+Để cô gái ngủ trên giường, tôi thở ra một hơi dài.
+
+Bởi vì đã hoàn thành một công việc hệ trọng, ít nhất tôi cũng muốn để bản thân được thở phào một lần.
+
+"Nên nói thế nào đây... Tôi nghĩ quyết định trở thành thương nhân của cậu Raidou cứ như cậu hoàn toàn mặc kệ năng khiếu của bản thân ấy."
+
+Với giọng điệu như thể đã quên sạch những sai lầm liên tục của mình, Hazar phát ngôn một câu chẳng lịch sự chút nào.
+
+Cả ông Rembrandt và ông Morris cũng gật gù đồng tình với lời nói của anh ta nữa!
+
+"Kỹ thuật khống chế quá tuyệt vời, tôi nghĩ chuyện cậu chỉ đạt cấp 1 chắc chắn có nhầm lẫn ở đâu đó."
+
+Cũng không đến mức được gọi là kỹ thuật đâu, Ông Rembrandt.
+
+"Rõ ràng cậu thích hợp làm mạo hiểm giả hơn."
+
+Ông quản gia à, làm ơn đừng khuyên nhủ tôi với vẻ mặt nghiêm túc như thế.
+
+Tôi đã quyết chí trở thành thương nhân để có một cuộc sống mới rồi. Đã là tiền bối đồng đạo, làm ơn đừng nói như vậy chứ!
+
+[Tôi chỉ được rèn luyện nhờ các tùy tùng của mình mà thôi.]
+
+"Có những người đó đồng hành thì cậu mạnh đến thế này là chuyện đương nhiên nhỉ. Bởi vì..."
+
+... Này, Hazar, anh vấn chưa thỏa mãn với những sai lầm liên tục trong hôm nay à?
+
+Chẳng lẽ cần phải dùng ngôn ngữ cơ thể để cho anh ta biết cái gì gọi là "lựa lời mà nói" sao?
+
+"... Cả hai tùy tùng đều đã vượt qua cấp 1000."
+
+Chết tiệt!
+
+Cái tên Hachibei lơ đễnh này, anh vừa làm gì thế hả?
+
+`Hachibei: Tên một nhân vật trong bộ phim lịch sử Mito Koumon của Nhật Bản.`
+
+Liếc nhìn hai người đang cứng đờ vì câu nói vừa rồi của anh ta, tôi ngửa mặt lên trời và than thở. Làm ơn hãy phân biệt rõ chuyện nào nên nói chuyện nào không nên nói hộ tôi đi...
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Nhờ câu buột miệng của Hazar, tôi bị ông Rembrandt truy hỏi cặn kẽ, nhưng tôi đều dùng khuôn mặt tươi cười để gạt đi mọi câu hỏi. Sau khi được thông báo rằng ông ấy sẽ đáp lễ lại vào ngày khác, tôi - Makoto, hay còn được biết đến với cái tên Raidou, rời khỏi tòa dinh thự.
+
+Ít nhất họ cũng mời chúng tôi dùng bữa tối, nhưng tôi đã lịch sự từ chối (bởi vì tôi còn muốn xử lý Hazar).
+
+Về cấp độ của Tomoe và Mio, tôi đặc biệt yêu cầu ông ấy đừng tiết lộ ra ngoài.
+
+Với lời đề nghị của ân nhân đã cứu mạng gia đình mình, ông Rembrandt và ông Morris chắc hẳn sẽ giữ kín thông tin về cấp độ các tùy tùng của tôi. Nhưng dù sao chuyện này kiểu gì cũng sẽ lan rộng, nên tôi cũng chẳng hy vọng nhiều.
+
+Trời vẫn còn sớm, tôi với Hazar tạm thời tách ra.
+
+Sau đó, tôi khẩn trương gọi hai người Tomoe và Mio tới để đăng ký ở Hội mạo hiểm giả. Nếu những người như ông Rembrandt đã biết, có lẽ tôi cũng không cần phải che giấu nữa.
+
+Tuy nhiên...
+
+"Chết đi."
+
+Trước cả khi câu nói đó vang lên, một ma pháp trận xuất hiện dưới chân tôi. Hơn nữa, nó chỉ nằm dưới chân tôi và Tomoe. Vì sao riêng Mio không bị nhắm vào?
+
+Nói gì thì nói, tôi hoàn toàn không muốn bị một thứ không rõ ràng nuốt trọn.
+
+Bởi vậy, khoảnh khắc ma pháp trận xuất hiện, tôi lập tức nhảy ra khỏi nó. May là nó cũng không có chức năng đuổi theo.
+
+Tuy nhiên, vì sao... Tomoe vẫn ung dung đứng yên trên ma pháp trận?
+
+Tôi không cảm nhận được lời niệm chú dùng để khởi động ma pháp trận, xem ra tôi vẫn chưa biết về thuật thức này. Nếu đó là kỹ thuật ẩn đi lời niệm chú, tôi rất muốn học đấy.
+
+Chủ nhân của giọng nói kia là một người đàn ông đứng cách đây không xa. Theo mệnh lệnh của gã, một kẻ khoác trên người chiếc áo choàng màu xám đang đứng ở trong khu rừng cách chúng tôi khá xa dùng tay thực hiện một động tác phức tạp gì đó. Hắn dùng thủ thuật thay cho lời niệm chú sao? Người đàn ông cao gầy vừa cất tiếng ban nãy có vẻ là kẻ cầm đầu. Tôi cũng cảm nhận được có khá nhiều kẻ đang cố ẩn giấu hơi thở của mình xung quanh đây.
+
+Theo dự đoán của tôi, gã mặc áo choàng vừa phát động cuộc tấn công. Từ ma pháp trận (vốn ở) dưới chân tôi và Tomoe, một cột lửa bùng lên nóng bỏng đến mức đứng ở phía xa tôi vẫn có thể cảm nhận được.
+
+Đúng như câu nói "Chết đi" kia, chỉ cần nhìn qua cũng biết đó là đòn tấn công với ý định muốn tiêu diệt chúng tôi, hai cột lửa sinh ra từ ma pháp trận đang cháy hừng hực ngay trước mắt.
+
+Một ngọn lửa bốc lên khá cao đang thiêu đốt cơ thể Tomoe, thế nhưng...
+
+"Hừm."
+
+Khoảnh khắc cô ấy phất ngang bàn tay trái về phía trước, ngọn lửa đang bao vây Tomoe bị đánh tan trong nháy mắt. Ồ, vậy ra cô ấy đang kiểm tra uy lực của nó sao? Đúng là một cô gái hiếu chiến.
+
+"Cô nghiêm túc tránh đòn không được sao... Đúng thật là."
+
+"Không không, chúng ta phải nắm rõ năng lực của thích khách chứ. Lão vừa được gọi tới liền xảy ra chuyện này, vui thật đấy. Quả không hổ là thiếu chủ, như thể ngài đã đáp ứng yêu cầu của lão vậy."
+
+Bọn chúng tập kích chúng ta đâu phải vì cô chứ!
+
+Mặc dù tình huống hiện giờ quả thực rõ là rập khuôn.
+
+Số người tập kích là... một, hai, ba, bốn... này này, con đường từ trung tâm thị trấn tới dinh thự Rembrandt khá vắng vẻ mà, con số này không phải là quá nhiều sao?
+
+Số người mà tôi có thể xác nhận bằng mắt là hai. Một kẻ là người đàn ông cao gầy đứng cách chỗ chúng tôi không xa vừa mới hét câu nói đầy nguy hiểm "Chết đi". Tên còn lại là kẻ mặc áo choàng đang quan sát chúng tôi từ chỗ trống bên khu rừng phía sau.
+
+Tuy nhiên, dựa trên kết quả từ việc mở rộng Giới để xác nhận, có rất nhiều kẻ khác đang che giấu hơi thở. Tổng cộng khoảng hai mươi người.
+
+Hmm, tranh chấp với ông Rembrandt sao? Hay bọn chúng ôm hận với riêng cá nhân tôi?
+
+Xét tới thời gian và địa điểm, xem ra đúng là có liên quan tới ông Rembrandt rồi.
+
+Nếu thật sự liên quan tới ông Rembrandt, nhất định tôi sẽ đập cho chúng một trận tơi bời. Cho dù không phải kẻ đứng sau giật dây, những tên này cũng phải trả giá vì hành động xấu xa của mình.
+
+Gã đàn ông cao gầy đang bước lại gần có vẻ là kẻ đầu sỏ, nhìn lướt qua, hắn gợi lên cho tôi một ấn tượng khá lạnh lùng. Khả năng cao đây là một tên lưu manh bình thường ở thế giới này.
+
+"Tránh được ư? Hơn nữa còn không bị thương... Chậc, ngoài kẻ mang y phục màu đen kia, không ngờ còn có một người mạnh mẽ như vậy."
+
+Chúng biết được thực lực của Mio ư? Có lẽ bọn chúng đã chứng kiến sự vô song của Mio trên quãng đường chúng tôi tới Ziege.
+
+"Này, cô gái màu đen ở đằng kia, thật xin lỗi, nhưng cô có thể yên lặng đứng ngoài được chứ? Bởi vì tôi đã có ước định sẽ không ra tay với cô."
+
+Gã nói tiếp. Theo cách nói chuyện, không hề thấy gã có vẻ gì là lo lắng hay bối rối. Chắc hẳn gã chưa bao giờ trực tiếp nhìn thấy Mio chiến đấu, mà chỉ nắm được thông tin qua các lời đồn.
+
+Để đối phương không phát hiện, tôi sử dụng Niệm Thoại đưa ra chỉ thị cho Mio đồng ý lời đề nghị đó. Ở bên cạnh tôi còn có Tomoe, hơn nữa đó là yêu cầu từ tôi, nên Mio liền ngoan ngoãn làm theo không do dự.
+
+"... Miễn phí à?"
+
+"Tôi có nói vậy đâu. Mười dồng vàng thế nào?"
+
+"Được thôi, lần này tôi sẽ coi như không thấy gì."
+
+"Mio, cô!"
+
+Tomoe tức giận và cố tóm lấy Mio. Đương nhiên đây chỉ là diễn kịch thôi, bởi rõ ràng từ nãy cô ấy đã vui vẻ lắm mà.
+
+Hất nhẹ tay Tomoe ra, Mio giữ một khoảng cách với chúng tôi và thể hiện thái độ của bên thứ ba.
+
+"Cảm ơn. Cô muốn nhận tiền ngay bây giờ không?"
+
+"Lát nữa cũng được. Quan trọng hơn, ngươi hãy cố gắng đừng để bị hạ gục đấy."
+
+"Không tệ đâu. Cô gái này có tính cách tốt đấy. Còn các người, xin lỗi nhé, đời là vậy đấy."
+
+Gã đàn ông mỉm cười rồi quay sang nhìn hai chúng tôi. Với bộ dạng ung dung đó, dường như hắn có cấp độ khá cao.
+
+Tuy nhiên, trong mắt tôi, hắn chỉ là một tên vô cùng tầm thường. Nếu thực sự là kẻ mạnh, khi nhìn thấy Tomoe và Mio, chắc chắn hắn phải cảm nhận được gì đó. Xem ra hắn không có dã tính và trực giác để cảm nhận sức mạnh của người khác.
+
+"..."
+
+"Với mấy kẻ như các người, một mình lão là đủ rồi!"
+
+Tomoe tuyên bố đầy hăng hái trong khi tôi vẫn duy trì sự im lặng, không nói một lời nào.
+
+Có tín hiệu gì sao? Liên tục xuất hiện thêm nhiều kẻ khác. Ở phía xa còn có một đám người đang trong tư thế sẵn sàng làm gì đó. Ma thuật sư hay cung thủ chăng? Tôi đang rất mong chờ cuộc chiến đấy.
+
+"Nếu không dính líu tới kẻ như Rembrandt, các ngươi đã không phải chết rồi! Tấn công!"
+
+... Được rồi, tôi quyết định sẽ đập chúng một trận tơi bời.
+
+Xét về tổng thể, chúng tôi có vẻ giống như bị quây đánh hội đồng vậy. Tuy nhiên, dù nhìn thấy bọn chúng đang cầm trên tay những vũ khí nguy hiểm, tôi cũng chẳng hề sợ hãi. Chỉ cần tôi dốc sức phòng thủ bằng ma lực và Giới là có thể đảm bảo bản thân mình lông tóc vô thương, hơn nữa còn khiến kẻ địch gặp nguy hiểm.
+
+Tomoe vẫn chưa có động thái tấn công nào mà chỉ liên tục gạt và né các đòn công kích đánh tới.
+
+"Này, Tomoe, nhanh chóng làm việc đi chứ!"
+
+"Thiếu chủ, vẫn chưa có hiệu lệnh mà."
+
+Hử? Hiệu lệnh là cái quái gì vậy?
+
+Xem chừng nói ra miệng sẽ khiến sự hứng thú giảm đi, vì vậy Tomoe dùng Niệm Thoại để truyền đạt ý của cô ấy cho tôi, hơn nữa còn nói rất khẽ.
+
+Cô ấy nói rằng:
+
+(Nào, thiếu chủ, chính là lời mà trước khi trừng phạt phải nói ấy. Không có câu nói đó thì sao có thể khai chiến được. Lão đang vô cùng chờ mong đấy!)
+
+... Con rồng này đang nói cái gì vậy?
+
+Trước phát ngôn nực cười chẳng hề hợp với bầu không khí lúc này của cô ấy, tôi suýt nữa đã trúng phải đòn tấn công nguy hiểm của đối phương.
+
+Dù đang chạy trốn sao cho giống một kẻ nghiệp dư nhất có thể, nhưng khi đòn tấn công sắp ập đến, tôi vẫn bất ngờ né được theo bản năng.
+
+Cứ duy trì tình trạng này thì không ổn, tôi phải quyết tâm làm vậy thật sao?
+
+"To-Tomoe... "
+
+"Vânggg!"
+
+"... Hãy... ban cho bọn chứng sự trừng phạt..."
+
+"VÂNGGG!!"
+
+Tinh thân hăng hái của tôi đang không ngừng tụt dốc. Xấu hổ quá đi mất! không ngờ lại có ngày tôi có thể nói "Hãy ban cho bọn chúng sự trừng phạt!" (*lấp lánh*).
+
+"Hyaaaa!"
+
+Cùng với lời đáp lại đầy hăng hái, Tomoe tung cú đấm ngược vào mặt gã đạo tặc đang đâm con dao găm tới, đánh bay đối phương một cách vui vẻ. Xem ra cô ấy đã kiềm chế sức mạnh rất tốt.
+
+Nếu dùng hết sức, đầu của gã đó chắc đã nổ tung rồi. Tomoe, làm tốt lắm!
+
+Đấm, đá, rồi ném liên tục không ngừng nghỉ...
+
+Tomoe lần lượt nghênh tiếp đám người đang kéo tới.
+
+Ối chà, cô đừng có hành động theo cảm tính chứ.
+
+Đúng với cái tên Kaku tự xung, cô ấy thật sự chiến đấu bằng tay không.
+
+`Kaku: Nhân vật trong phim lịch sử Mito Koumon.`
+
+A, quả nhiên tôi cũng phải làm gì đó thôi.
+
+... Cách tôi khoảng vài mét, có một cô gái cầm kiếm đang nhìn chằm chằm vào tôi.
+
+Tới rồi!
+
+Khoảnh khắc suy nghĩ ấy lướt qua tâm trí tôi, cô gái đó đã lao tới. Đó quả là một thanh kiếm kỳ lạ.
+
+Mặc dù phần mũi kiếm có hai lưỡi để dễ dàng tấn công về phía trước, nhưng phần thân kiếm còn lại chỉ là lưõi đơn.
+
+Vì thế giới này chủ yếu sử dụng kiếm phương Tây, hầu hết là kiếm hai lưỡi, nên những loại kiếm một lưỡi không tuân theo quy tắc như vậy đúng là hiếm thấy.
+
+Nó gần giống Phong Lưỡng Nhẫn Tạo chăng? Thanh kiếm này na ná Katana, cũng có thể tấn công bằng sống kiếm. Nó được đặt làm riêng sao? Đây là loại kiếm rất hiếm thấy ở thế giới này.
+
+`Phong Lưỡng Nhẫn Tạo: (Phong Lưỡng Nhẫn có nghĩa là mũi kiếm hai lưỡi): Một phong cách rèn kiếm của Nhật Bản, phần mũi kiếm có hai lưỡi, phần còn lại chỉ có một lưỡi. Hình dáng của lưỡi kiếm phù hợp để đâm hơn là để chém.`
+
+Cô gái này có làn da nâu khỏe mạnh, cơ bắp cánh tay cuồn cuộn, cơ bụng sáu múi. Hình thể hoàn toàn phô diễn vẻ đẹp cơ bắp của cô ta có lẽ phù hợp với đại kiếm hoặc rìu hơn.
+
+Khi tôi định né tránh chiêu thức tấn công của đối phương rồi bổ một đòn vào gáy cô ta, một bóng người bỗng chen ngang giữa chúng tôi...
+
+Này này Tomoe, cô lại muốn làm gì nữa thế?
+
+Không, ánh mắt của cô nàng đang dán chặt vào vũ khí của cô gái kia. Thời điểm Tomoe can thiệp, cô ấy chỉ nhìn chằm chằm vào thanh kiếm ấy!
+
+Cô ấy có hứng thú với vũ khí đó ư? Hay Tomoe cũng có thuộc tính Benkei, thích thu thập vũ khí? Tuy có phong cách tương tự, nhưng nó có phải Kogarasumaru đâu?
+
+`Benkei: Tăng binh phục vụ dưới trướng Minamoto no Yoshitsune, có sở thích thu thập vũ khí và sở hữu bảy vũ khí nổi tiếng.`
+
+`Kogarasumaru: Ngự kiếm của Thiên hoàng, bảo vật được thừa kế qua nhiều thế hệ Nhà Taira. Thanh kiếm thẳng, mũi kiếm hai lưỡi, nó là thanh kiếm mở đầu của phong cách rèn kiếm Phong Lưỡng Nhẫn Tạo.`
+
+Có điều, nếu cô ấy muốn bảo vệ chủ nhân thì cũng tốt thôi. Tôi có thể tập trung tránh đòn.
+
+Chắc hẳn vì sợ bắn trúng đồng đội, nhóm tấn công tầm xa cũng không dám mạnh mẽ công kích. Còn nhóm tấn công cận chiến cũng sợ đánh trúng những người ở gần tôi và Tomoe nên mỗi lượt chỉ tối đa hai người tấn công.
+
+Đối thủ cũng chỉ có hai người mà bọn chúng còn bị kiềm chế ngược lại, mấy kẻ này có trình độ kém thật...
+
+Trong số đám người này, tôi nghĩ cô gái vừa tấn công tôi có thực lực khá cao. Bởi cô ta đã chọn thời cơ rất tốt để ra tay.
+
+Do đã quá quen chiến đấu với nhiều đối thủ trong cuộc huân luyện với tộc Người thằn lằn nên kỹ năng chiến đấu với đám đông của tôi và Tomoe (chắc hẳn) khá tốt. Chẳng hạn như, liên tục xoay vòng, đẩy kẻ địch xếp thành một đường thẳng để giảm nguy cơ cung tên và ma thuật nhắm vào mình.
+
+Tôi cứ nghĩ Tomoe sẽ chạm kiếm với cô ấy, nhưng...
+
+"Bộ trang phục đó là thế nào vậy..."
+
+Một nhát kiếm vung lên và nhắm thẳng vào Tomoe.
+
+Nhưng Tomoe đã canh đúng thời điểm và đánh trả bằng một cú đá xoay trúng thái dương của đối thủ. Tuy là đồ nam, nhưng sao cô ấy có thể đá như thế khi đang mặc Kimono chứ!
+
+"Ư!"
+
+Mỹ nhân khỏe mạnh với cơ bắp săn chắc vừa cười phá lên vừa lao tới Tomoe, nhưng ngay sau đó đôi đồng tử màu đen mờ dần, rồi cô ta cứ thế ngã quỵ trên mặt đất. Một cú clean hit vào đầu. Phản ứng như thế là điều tất nhiên.
+
+"Cuối cùng cũng tìm được thanh kiếm có thể tận dụng sống kiếm để tấn công rồi!"
+
+Hóa ra đó mới là mục tiêu của cô ư?! Cho dù chẳng thật lòng quan tâm, nhưng cô không thể nói được một câu "Thiếu chủ, cậu không sao chứ" à?!
+
+*Keng!*
+
+Cô ấy đổi sang cầm kiếm bằng sống kiếm.
+
+*Xoẹt!*
+
+*Bốp!*
+
+*Choangggg.*
+
+Nghe chẳng giống âm thanh của Katana chút nào.
+
+"Agya!!"
+
+"Aaaa!"
+
+"Hự!!"
+
+Đến tên cuối cùng, tôi nhận ra Tomoe không hề đùa giỡn.
+
+Bả vai lõm xuống. Có lẽ xương đã vỡ rồi. Vai của con người đáng lẽ không dễ vỡ như thế mới phải.
+
+Chẳng một kẻ nào chống lại được kiếm thuật của Tomoe.
+
+Con rồng này, cô ấy dùng kiếm thành thạo như thế từ khi nào vậy?... Rõ ràng tôi đã giao cho cô ấy rất nhiều công việc, vậy mà cô ấy vẫn có nhiều thời gian rảnh để luyện kiếm quá nhỉ.
+
+"Gya!"
+
+"Au!"
+
+"Ha! Hự!"
+
+Ừ, vẫn là người cuối cùng có cảm giác đúng nhất.
+
+Trong rừng liên tục vang lên những tiếng rên rỉ.
+
+Trong khoảng thời gian luyện tập đánh bằng sống kiếm, Tomoe nhặt vũ khí của những đối thủ đã bị cô ấy hạ gục rồi ném vào kẻ địch đang ẩn nấp ở trong rừng, có vẻ đó là bằng chứng cô ấy đã đánh bại bọn chúng.
+
+"C-các người..."
+
+Cuối cùng, trên khuôn mặt gã đàn ông cao gầy đã lộ vẻ lo lắng.
+
+Chỉ còn lại thủ lĩnh là gã và một tên thuật sĩ, chẳng biết từ lúc nào chúng đã tụ họp lại với nhau, đứng cách chúng tôi một khoảng không xa.
+
+"Sao vậy? Đã kết thúc rồi à?"
+
+Tomoe buồn chán nói.
+
+"..."
+
+Cả hai người đều trầm mặc. Phải chứng kiến chuyện như vậy, phản ứng đó cũng là đương nhiên.
+
+A, nhắc mới nhớ, tôi vẫn chưa nói một lời nào.
+
+Bởi vì tôi là thiếu niên khoa xã hội chứ đâu phải là thiếu nữ khoa xã hội, nên lắm miệng ở trong lòng là được rồi. Ừ, im lặng là vàng.
+
+"Này, cô kia, chẳng phải cô đã về phe bọn tôi sao?! Tôi yêu cầu sự hỗ trợ của cô!"
+
+Gã thủ lĩnh mở miệng xin Mio giúp đỡ. Ha, thật chẳng ngầu chút nào!
+
+"Không muốn."
+
+Trước thái độ lạnh lùng của Mio, gã đàn ông lại càng sốt ruột hơn nữa.
+
+"Chẳng phải cô muốn tiền sao?!"
+
+"Lấy khi ngươi vẫn còn sống hay lấy lúc ngươi đã chết rồi chẳng phải đều giống nhau hay sao?"
+
+"... Ngươi có biết mình đang nói chuyện với ai không?! Ta chính là mạo hiểm giả số 1 của Ziege, cấp B độ 201 hạng S! Ngài Lime Latte!"
+
+Lime và Latte... Đúng như tôi nghĩ, cái tên này chẳng hợp chút nào.
+
+Caffe Latte hay là Lime Soda nghe còn hay hơn.
+
+Tuy nhiên, số 1 của Ziege sao?
+
+Mặc dù tôi đã nghe báo cáo của Tomoe và Mio khi còn ở Tuyệt Dã, nhưng những mạo hiểm giả số 1 của Hội toàn là mấy kẻ xấu xa ngu ngốc à?
+
+Gã thuật sĩ đang lẩm bẩm gì đó. Hắn đang nói gì vậy?
+
+"C-cầu xin thần mã tám chân tượng trưng cho cấp bậc, xin hãy đưa ta tới nơi từng tồn tại dấu vết..."
+
+Ồ, niệm chú bằng ngôn ngữ chung? Làm vậy cũng được sao? Tên này định chạy trốn à?
+
+"Ngươi! Ngươi định bỏ ta mà chạy à?!"
+
+"Thiếu chủ, có vẻ đó là thuật thức dịch chuyển đấy."
+
+"Rõ rồi."
+
+A, đây là lần đầu tiên mình nói chuyện.
+
+Tôi lao về phía kẻ đang không ngừng niệm chú.
+
+"Xin lỗi nhé!"
+
+"... Hả? A, đau quá, aaaa?!"
+
+Kiềm chế vừa đủ sức mạnh, tôi túm lấy đầu của gã thuật sĩ và đập mạnh xuống mặt đất.
+
+"One Punch!"
+
+Xin để tôi giải thích! One Punch là...
+
+Mặc dù vô cùng đau, nhưng đó là một tất sát kỹ không gây thương vong, được truyền vào lòng bàn tay với một lực ở mức độ gần sát với vết thương trí mạng.
+
+Kỹ thuật này đồng thời sử dụng cả khả năng điểu khiển ma lực khá đặc biệt và thể thuật. Vốn dĩ đó là đòn tấn công đầy từ ái được tạo ra từ sự quan tâm của Makoto đến những cư dân trong buổi huấn luyện ở Á Không.
+
+Mặc dù nó không phải kỹ năng chỉ giới hạn ở nắm đấm, nhưng đòn tấn công được dùng lúc mở đầu cuộc chiến là nắm đấm, dựa trên cách những Orc Cao Nguyên bị trúng đòn đều xoay tròn, ai nhìn cũng nghĩ rằng họ đã chết rồi, vậy nên nắm đấm chỉ để lại duy nhất một mảnh tính mạng chất chứa nỗi kinh hoàng và oán niệm của những chiến sĩ tình nguyện tham gia vào cuộc huấn luyện, nói tóm lại, nó đã được đặt tên là "One Punch". Kể từ đó, tất cả các đòn tấn công làm đối thủ mất sức chiến đấu trong tức thì của Makoto đều được gọi là One Punch (hiện tại thông tin chỉ có thể tiết lộ tới đây).
+
+... Hình như vừa có một lời giải thích kỳ lạ nào đó xuất hiện trong đầu tôi.
+
+Tên thuật sĩ bị đánh bay, mặt hắn ma sát với nền đất, thậm chí còn khiến khói bốc lên, sau đó hắn cũng nằm bất động.
+
+"Thiếu chủ, thật tuyệt vời!"
+
+
 
 ![][IMG_0755.PNG]{:class="img-fluid"}
 
