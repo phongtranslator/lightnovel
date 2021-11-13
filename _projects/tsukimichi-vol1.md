@@ -489,7 +489,7 @@ Mặt đất.
 
 Đúng như tôi nghĩ, vô vọng rồi!
 
-Cha, mẹ, cảm ơn hai người đã sinh con ra ở thể giới kia.
+Cha, mẹ, cảm ơn hai người đã sinh con ra ở thế giới kia.
 
 Con thấy quả thực rất may mắn khi không phải sinh sống tại thế giới do bà Nữ thần đó cai quản. Còn bà Nữ thần kia, ban phước gì chứ, chẳng khác nào bị nguyền rủa cả.
 
@@ -2477,19 +2477,19 @@ Có lẽ tôi không đủ sức để ngăn cản cô ấy, một người đan
 
 Tôi sẽ làm gì, muốn làm gì ở thế giới này? Xem ra tôi cần phải nghiêm túc suy nghĩ những điều này.
 
-Tôi đang liên tục thử nghiệm sức mạnh tạo ra khu vực với việc lấy bản thân làm trung tâm để hướng về phía trước, tạm thời tôi gọi nó là "Giới".
+Tôi đang liên tục thử nghiệm sức mạnh tạo ra khu vực với việc lấy bản thân làm trung tâm để hướng về phía trước, tạm thời tôi gọi nó là "Sakai".
 
-Năng lực này không sử dụng ma lực. Có lẽ vì thế mà ngay cả Shin cũng không nhận ra được tôi đang triển khai Giới.
+Năng lực này không sử dụng ma lực. Có lẽ vì thế mà ngay cả Shin cũng không nhận ra được tôi đang triển khai Sakai.
 
 Đây đúng là một năng lực vô cùng áp đảo. Bởi vì nó là năng lực mà tôi đã nhận được từ một trong Tam Quý Tử, thế nên mức độ như vậy cũng là chuyện đương nhiên.
 
-Tiếp theo, phạm vi và hiệu quả của Giới có liên quan với nhau. Tôi đã gọi một vài Orc bị thương tới, phát động sức mạnh trong một phạm vi nhỏ, bao quanh hai người bọn họ và tăng thêm thuộc tính chữa trị, sau đó vết thương liền khỏi hẳn trong nháy mắt, hiệu quà thật ngoài sức tưởng tượng.
+Tiếp theo, phạm vi và hiệu quả của Sakai có liên quan với nhau. Tôi đã gọi một vài Orc bị thương tới, phát động sức mạnh trong một phạm vi nhỏ, bao quanh hai người bọn họ và tăng thêm thuộc tính chữa trị, sau đó vết thương liền khỏi hẳn trong nháy mắt, hiệu quà thật ngoài sức tưởng tượng.
 
 Lần này tôi chỉ giới hạn phạm vi xung quanh bản thân và tăng thêm thuộc tính cường hóa, như vậy tôi có thể chặt cây chỉ bằng một con dao ăn nhỏ. Cây đại thụ to đến mức cả hai cánh tay của tôi cũng ôm không xuể lại bị đốn ngã dễ dàng như cắt một miếng bơ vậy.
 
 Sau khi sử dụng đồng thời cả ma lực và cường hóa, tôi có thể dùng tay không ngăn lại nhát kiếm của một chiến binh Orc Cao Nguyên vạm vỡ. Là nhờ việc sử dụng ma lực và cường hóa thân thể tương thích tốt với tôi sao? Có thể nhanh chóng thích ứng với chúng thật tiện quá.
 
-Hiện tại chỉ có một loại đặc tính xuất hiện ở trong Giói đã được triển khai. Dùng cả ma thuật và Giới đế tiến hành cường hóa thân thể, đạt được hiệu quả tăng lên theo cấp số nhân là tốt nhất. Nếu ở nơi an toàn, sử dụng Giới vì mục đích tìm kiếm và nắm rõ tình hình xung quanh cũng là một cách hay. Cho dù tôi lựa chọn phương pháp nào thì nó cũng chính xác hơn nhiều so với việc lợi dụng để tấn công một cách vố lý. Hơn nữa, khi đã hiểu rõ ràng, đến lúc đó lại suy xét một lần nữa là được rồi. Thực ra tôi làm gì có quyển sách hướng dẫn nào đâu, dù có sốt ruột cũng chẳng còn cách nào khác.
+Hiện tại chỉ có một loại đặc tính xuất hiện ở trong Giói đã được triển khai. Dùng cả ma thuật và Sakai đế tiến hành cường hóa thân thể, đạt được hiệu quả tăng lên theo cấp số nhân là tốt nhất. Nếu ở nơi an toàn, sử dụng Sakai vì mục đích tìm kiếm và nắm rõ tình hình xung quanh cũng là một cách hay. Cho dù tôi lựa chọn phương pháp nào thì nó cũng chính xác hơn nhiều so với việc lợi dụng để tấn công một cách vố lý. Hơn nữa, khi đã hiểu rõ ràng, đến lúc đó lại suy xét một lần nữa là được rồi. Thực ra tôi làm gì có quyển sách hướng dẫn nào đâu, dù có sốt ruột cũng chẳng còn cách nào khác.
 
 Nhân tiện nói luôn, tôi đã có vũ khí rồi.
 
@@ -2775,7 +2775,7 @@ Vừa né đòn tấn công của con nhện, tôi vừa phân tích hình thứ
 
 Đúng như tôi dự đoán!
 
-Tôi dùng kiêm đâm vào móng vuốt, sải bước dài hơn về phía trước hòng nhắm vào chân nó từ đằng sau. Sau đó tôi dùng Giới để cường hóa trong phạm vi cho một mình tôi, ngoài ra còn sử dụng cả cường hóa cơ thể nhờ ma lực nội tại.
+Tôi dùng kiêm đâm vào móng vuốt, sải bước dài hơn về phía trước hòng nhắm vào chân nó từ đằng sau. Sau đó tôi dùng Sakai để cường hóa trong phạm vi cho một mình tôi, ngoài ra còn sử dụng cả cường hóa cơ thể nhờ ma lực nội tại.
 
 Được rồi, cả hai đều thành công!
 
@@ -2815,7 +2815,7 @@ Cú nhảy đột ngột và năng lực hồi phục của nó khiến tôi vô
 
 "Cái này thì thế nào!!"
 
-Tôi né tránh hết toàn bộ đòn tấn công của nó và tung ra một đòn đánh trả. Nhờ có hai loại năng lực cường hóa cơ thể và cường hóa Giới mà hành động của tôi có thể theo kịp suy nghĩ. Cơ thể hành động đồng thời với ý nghĩ!
+Tôi né tránh hết toàn bộ đòn tấn công của nó và tung ra một đòn đánh trả. Nhờ có hai loại năng lực cường hóa cơ thể và cường hóa Sakai mà hành động của tôi có thể theo kịp suy nghĩ. Cơ thể hành động đồng thời với ý nghĩ!
 
 Bốn cái chân bị tôi cắt nát thành nghìn mảnh, hóa thành bụi đen và tan đi mất.
 
@@ -2943,9 +2943,9 @@ Chớp lấy thời cơ, những cái chân khác của nó đâm vào phần b�
 
 "Hự..."
 
-Trước khi bị đâm trúng, tôi đã tạo ra một Giới nhỏ ở giữa bụng.
+Trước khi bị đâm trúng, tôi đã tạo ra một Sakai nhỏ ở giữa bụng.
 
-Mỏng vuốt sắc bén của con nhện đánh trúng vào Giới. Trong nháy mắt, tôi cảm thấy đau đớn. Giới đã bị phá vỡ. Cơ thể tôi chưa bị đâm xuyên, nhưng móng vuốt quả thực đã nhắm trúng mục tiêu. Con nhện đẩy mạnh thêm nữa, móng vuốt đâm vào sâu hơn. Hai chân tôi mất đi sức lực, bụng tôi bị móng vuốt của nó cắm ngập sâu vào khiến cả người đập mạnh vào cái cây ở phía sau lưng. Tư thế này thật giống như bị đóng đinh trên cây thập tự giá.
+Mỏng vuốt sắc bén của con nhện đánh trúng vào Sakai. Trong nháy mắt, tôi cảm thấy đau đớn. Sakai đã bị phá vỡ. Cơ thể tôi chưa bị đâm xuyên, nhưng móng vuốt quả thực đã nhắm trúng mục tiêu. Con nhện đẩy mạnh thêm nữa, móng vuốt đâm vào sâu hơn. Hai chân tôi mất đi sức lực, bụng tôi bị móng vuốt của nó cắm ngập sâu vào khiến cả người đập mạnh vào cái cây ở phía sau lưng. Tư thế này thật giống như bị đóng đinh trên cây thập tự giá.
 
 "Ha ha!!"
 
@@ -3275,7 +3275,7 @@ Tôi cũng nghe nói thời gian trong Asora trùng khớp với thời gian c�
 
 "Shin đang đợi ở bên ngoài."
 
-Tôi thử tìm kiếm xung quanh bằng Giới.
+Tôi thử tìm kiếm xung quanh bằng Sakai.
 
 Ban nãy không có, nhưng chẳng biết từ lúc nào, Shin đã đứng ở gần cửa lều.
 
@@ -4265,7 +4265,7 @@ Thế nhưng, hành động đó lại bị bọn họ coi là có ý định t�
 
 Cung tên và ma pháp phóng ra đồng loạt.
 
-Ngoài triển khai Giới bảo vệ xung quanh mình ra, tôi còn mở rộng nó thêm một chút. Cung tên và ma pháp với đủ loại màu sắc khác nhau, toàn bộ đều bị Giới đánh văng ra.
+Ngoài triển khai Sakai bảo vệ xung quanh mình ra, tôi còn mở rộng nó thêm một chút. Cung tên và ma pháp với đủ loại màu sắc khác nhau, toàn bộ đều bị Sakai đánh văng ra.
 
 Nhìn thấy cảnh đó, những người cầm kiếm và thương đang lao tới liền dừng lại.
 
@@ -5473,7 +5473,7 @@ Tôi dùng mắt ra hiệu cho Tomọe.
 
 Mio đã trở về rồi sao?
 
-Tôi mở rộng Giới Tìm Kiếm quét xung quanh. Có sáu người đang bao vây quán trọ. Động tác cơ thể có vẻ linh hoạt, không hề giống dân nghiệp dư.
+Tôi mở rộng Sakai Tìm Kiếm quét xung quanh. Có sáu người đang bao vây quán trọ. Động tác cơ thể có vẻ linh hoạt, không hề giống dân nghiệp dư.
 
 ... Không thể nào, cô ấy thật sự mang cả những kẻ bám đuôi về kìa.
 
@@ -6643,7 +6643,7 @@ Rinon không ở đây. Cô bé chỉ bỏ lại một câu "Em trở về nhà 
 
 Tuy nhiên, đó là lời nói dối. Chị cô bé không có ở nhà, chẳng có lý do nào để cô bé quay trở về nhà một mình cả.
 
-Trong lúc ngả lưng nằm xuống, tôi vừa dùng Giới để lần theo hướng đi của cô bé. Không thấy dấu hiệu của ma lực, cũng không có chuyện bị nhận ra khí tức.
+Trong lúc ngả lưng nằm xuống, tôi vừa dùng Sakai để lần theo hướng đi của cô bé. Không thấy dấu hiệu của ma lực, cũng không có chuyện bị nhận ra khí tức.
 
 Hiện tại Rinon đang gặp ai đó ở cách nhà trọ vài chục mét. Từ khoảng cách này, tuy không thể nhìn thấy được tận mắt nhưng khi tập trung ý thức, tôi vẫn có thể biết được toàn bộ nội dung của cuộc nói chuyện. Còn về vẻ mặt và cử chỉ, tôi có thể nhìn thấy khi nhìn từ trên cao xuống.
 
@@ -6751,7 +6751,7 @@ Nợ sao? Chắc hẳn ban đầu là một số tiền rất nhỏ.
 
 Thế nhưng...
 
-Tôi giải trừ Giới.
+Tôi giải trừ Sakai.
 
 Kết quả tôi đã biết. Bên cạnh đó, tôi không muốn nghe thấy câu nói ấy phát ra từ miệng của Rinon.
 

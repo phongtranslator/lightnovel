@@ -179,7 +179,7 @@ Sau khi thu thập được kha khá thông tin từ Hội thương nhân và r�
 
 Gặp lại nhau xong, tôi và hai thuộc hạ ăn bữa trưa gọn nhẹ rồi liên lạc với Toa. Cô ấy đang tích cực làm nhiệm vụ ở cứ điểm Tsige này. Có vẻ như Toa hiện tại không vướng bận chuyện gì, nên khi tôi bảo sẽ tới Hội mạo hiểm giả để báo cáo và nhận thù lao của nhiệm vụ đã hoàn thành, cô ấy liền nhanh chóng đáp lại với giọng tự tin: "Tôi cũng sẽ đến đó ngay!"
 
-Toa là mạo hiểm giả tôi gặp ở "Tuyệt Dã" - một căn cứ đã biến mất ở "Tận cùng của Thế giới". Chúng tôi đến Tsige này cùng hai chị em Toa và nhóm của cô. Em gái cô ấy tên là Rinon.
+Toa là mạo hiểm giả tôi gặp ở "Zetsuya" - một căn cứ đã biến mất ở "Tận cùng của Thế giới". Chúng tôi đến Tsige này cùng hai chị em Toa và nhóm của cô. Em gái cô ấy tên là Rinon.
 
 Lúc trước, sau khi cứu gia đình của Rembrandt - một thương nhân lớn ở Tsige thoát khỏi một loại bệnh đặc biệt được gọi là "Chú bệnh", đã có nhiều chuyện xảy đến và ngoài ra thì tôi cũng đã hạ gục tên mạo hiểm giả mạnh nhất ở thị trấn này.
 
@@ -211,7 +211,7 @@ Bấy giờ, trong Hội không có nhiều người, nhưng vài ngày nữa c�
 
 Tomoe yêu cầu giấy kiểm tra cấp 1600 khiến nhân viên chết lặng. Như tôi đoán, xung quanh xôn xao cả lên. Đây cũng là phản ứng hiển nhiên.
 
-Dạo trước, khi đo ở Hội mạo hiểm giả tại "Tuyệt Dã", cấp bậc của cô ấy là 1320. Đã lên tới cấp cao như vậy sẽ khó lòng thăng cấp nhanh chóng, nên chắc sẽ không thay đổi gì mấy.
+Dạo trước, khi đo ở Hội mạo hiểm giả tại "Zetsuya", cấp bậc của cô ấy là 1320. Đã lên tới cấp cao như vậy sẽ khó lòng thăng cấp nhanh chóng, nên chắc sẽ không thay đổi gì mấy.
 
 "Cô Tomoe, cấp... 1340."
 
@@ -467,7 +467,7 @@ Thôi vậy, có lẽ chúng tôi tự mình tìm hiểu và vẽ ra vẫn sẽ 
 
 "Thiếu chủ đúng là người lo xa. Lão hiểu rồi. Chúng ta sẽ hành động không để ai nắm đuôi."
 
-Tomoe đúng là một thuộc hạ đắc lực. Những người có thể nghe ra ý nghĩa tinh tế trong lời nói của tôi thật đáng trấn trọng. Tuy tôi không muốn cô ấy nghe một đằng lại hiểu sang một nẻo như những ngày còn ở "Tuyệt Dã" đâu.
+Tomoe đúng là một thuộc hạ đắc lực. Những người có thể nghe ra ý nghĩa tinh tế trong lời nói của tôi thật đáng trấn trọng. Tuy tôi không muốn cô ấy nghe một đằng lại hiểu sang một nẻo như những ngày còn ở "Zetsuya" đâu.
 
 "Nhờ cô đấy, giúp tôi những việc này nhé."
 
@@ -491,7 +491,7 @@ Tôi đến Hội thương nhân đăng kí cửa hàng bách hóa làm mô hìn
 
 Thật ra không nhất thiết phải là nhóm Toa.
 
-Tôi biết mình đang nuông chiều và nâng đỡ họ. Chúng tôi là những kẻ khiến "Tuyệt Dã" biến thành một khu đất trống hoác trước mắt cô ấy, nên dù sao cũng có chút cảm giác chột dạ. Rinon còn là con người đầu tiên có hảo cảm đối với tôi.
+Tôi biết mình đang nuông chiều và nâng đỡ họ. Chúng tôi là những kẻ khiến "Zetsuya" biến thành một khu đất trống hoác trước mắt cô ấy, nên dù sao cũng có chút cảm giác chột dạ. Rinon còn là con người đầu tiên có hảo cảm đối với tôi.
 
 Toa cũng chẳng khác biệt mấy so với nhóm người vì nợ nần mà phải xuống lòng đất đào vàng cả.
 
@@ -1345,7 +1345,7 @@ Tôi biết thế giới này chẳng bao giờ dễ dàng với tôi mà!
 
 Vâng, Misumi xin tường thuật hiện trường!
 
-Tôi lúc bấy giờ, vừa sử dụng Giới để chặn lại cung tên lẫn ma pháp bay tới phía này, vừa kẹp lấy Mio dưới tay để bảo vệ một tổ đội Loài người gồm ba kẻ chẳng biết từ đâu xông tới, rồi còn phải khuyên họ đình chiến!
+Tôi lúc bấy giờ, vừa sử dụng Sakai để chặn lại cung tên lẫn ma pháp bay tới phía này, vừa kẹp lấy Mio dưới tay để bảo vệ một tổ đội Loài người gồm ba kẻ chẳng biết từ đâu xông tới, rồi còn phải khuyên họ đình chiến!
 
 Vừa ôm Mio và chú ý mấy tên Loài người, tôi vừa bắt chuyện với nhóm người Yêu tinh tộc. Khi né tránh được đợt tấn công này thì chúng tôi lại nghênh đón tiếp một đợt tấn công khác.
 
@@ -1387,7 +1387,7 @@ Cái gì vậy?! "Túm lại" là sao chứ?! Đấy là ngôn ngữ hiện đ�
 
 Lưỡi gió và đạn băng không thể thấy được... Họ không hề do dự mà tấn công dồn dập về phía tôi bằng tổ hợp ma pháp có vẻ rất đáng gờm ấy!
 
-Tôi vừa dùng Giới để phòng ngự trước những đòn tấn công không có dấu hiệu sẽ kết thúc của hai Yêu tinh, vừa lớn tiếng kêu lên.
+Tôi vừa dùng Sakai để phòng ngự trước những đòn tấn công không có dấu hiệu sẽ kết thúc của hai Yêu tinh, vừa lớn tiếng kêu lên.
 
 "Hiểu nhầm cả rồi! Nghe này, tôi và người đi cùng không liên quan gì đến ba người phía sau hết. Trước tiên nghe chúng tôi nói chuyện đã! Này, dừng tấn công lại đi chứ!"
 
@@ -1395,7 +1395,7 @@ Cô nàng cầm cung gào lên đáp trả:
 
 "Từ nãy đến giờ chẳng phải ngươi vẫn bảo vệ ba người kia sao! Không phải bạn bè thì là gì! Lại còn dùng ma thuật không biết từ đâu tới nữa!"
 
-Không, đây không phải ma thuật mà là Giới... Nhưng tình huống này làm sao giải thích được chứ?!
+Không, đây không phải ma thuật mà là Sakai... Nhưng tình huống này làm sao giải thích được chứ?!
 
 "Hơn nữa, ta ngửi được mùi của hoa sen đỏ tỏa ra từ ngươi. _Túm_ lại ngươi chỉ có hai con đường 'dead or alive' thôi."
 
@@ -1427,7 +1427,7 @@ Biết trước như vậy tôi đã sớm cắt đuôi những kẻ đeo bám d
 
 Tôi để họ tự do vì nghĩ rằng cũng chẳng tổn hại gì, nhưng cuối cùng lại dẫn đến hậu quả thế này.
 
-Yêu tinh giữ khoảng cách với chúng tôi và bắn tỉa. Tôi vừa dùng Giới để phòng ngự, vừa dò xét tình trạng của đám Loài người.
+Yêu tinh giữ khoảng cách với chúng tôi và bắn tỉa. Tôi vừa dùng Sakai để phòng ngự, vừa dò xét tình trạng của đám Loài người.
 
 Hửm? Người rít lên hỏi tôi vậy bảo thạch thì sao, dường như tôi đã gặp ở đâu rồi. Hình như là chị gái làng chơi định phạm tội với tôi... Cô ta là mạo hiểm giả à?
 
@@ -1485,7 +1485,7 @@ Mio tiến vào tình trạng nguy hiểm đáng báo động. Tomoe à, nhanh l
 
 "Hừ, ta sẽ kết liễu đám Loài người ở đằng sau trước. Chết đi!"
 
-Yêu tinh, à không, Quỷ rừng cầm cung và bắn về phía này. Từ đầu đến giờ, cô hướng thẳng tên về phía tôi, nhưng tôi dùng Giới khiến tất cả đều rơi vào trạng thái dội ngược ra, không thể giữ vững đường bắn.
+Yêu tinh, à không, Quỷ rừng cầm cung và bắn về phía này. Từ đầu đến giờ, cô hướng thẳng tên về phía tôi, nhưng tôi dùng Sakai khiến tất cả đều rơi vào trạng thái dội ngược ra, không thể giữ vững đường bắn.
 
 Cô nàng xác định góc độ bắn, rồi tiếp tục bắn tên. Chúng bay vút qua tôi, hướng trực tiếp đến đám Loài người.
 
@@ -1639,7 +1639,7 @@ Tôi đã xác định được, làng của hai cô ấy không quá xa Tsige. 
 
 Vậy nhưng phía Tsige lại không có thông tin gì về chuyện này.
 
-Vì cảm thấy có chút kì lạ nên tôi đã dùng Giới để điều tra thử, và phát hiện nơi đây có tồn tại một lớp kết giới dù nó khá yếu.
+Vì cảm thấy có chút kì lạ nên tôi đã dùng Sakai để điều tra thử, và phát hiện nơi đây có tồn tại một lớp kết giới dù nó khá yếu.
 
 Xem ra công dụng của nó dùng để tàng hình.
 
@@ -1775,7 +1775,7 @@ Nghe đến cái tên Shin, phản ứng của các vị trưởng lão liền t
 
 Sau thoáng trầm lặng, một vị trưởng lão lên tiếng:
 
-"... Quả thật, nếu là ngài Shin, chẳng lạ gì nếu ngài ấy biết đến tên bọn tôi. Ở nơi hoang dã của 'Tận cùng thế giới' này, chúng tôi không dựa vào sự bảo hộ của Tinh linh, nhưng chịu ơn không ít từ ngài ấy. Nơi ở của ngài xa tít tắp phía Tây Nam, Loài người không thể đến được. Dù tính từ cứ điểm 'Tuyệt Dã' đi nữa, chắc chắn cũng cách khoảng một tuần trăng đi đường."
+"... Quả thật, nếu là ngài Shin, chẳng lạ gì nếu ngài ấy biết đến tên bọn tôi. Ở nơi hoang dã của 'Tận cùng thế giới' này, chúng tôi không dựa vào sự bảo hộ của Tinh linh, nhưng chịu ơn không ít từ ngài ấy. Nơi ở của ngài xa tít tắp phía Tây Nam, Loài người không thể đến được. Dù tính từ cứ điểm 'Zetsuya' đi nữa, chắc chắn cũng cách khoảng một tuần trăng đi đường."
 
 Tốt rồi. Xem ra họ không có ấn tượng xấu với cô ấy. Vậy nhưng... giải thích lí do gặp được Tomoe có vẻ phiền phức đây.
 
@@ -1797,7 +1797,7 @@ Tôi nghĩ một ngày không xa mình sẽ gặp được ai đó bản thân c
 
 "Vậy thì..."
 
-Tôi thuật lại việc gặp gỡ Orc, việc "Tuyệt Dã" - nơi phát sinh rất nhiều ma vật đã bị phá hủy, rồi tôi cũng tóm lược lại những điểm trọng yếu của mấy chuyện hỗn độn xoay quanh tôi và Shin nữa.
+Tôi thuật lại việc gặp gỡ Orc, việc "Zetsuya" - nơi phát sinh rất nhiều ma vật đã bị phá hủy, rồi tôi cũng tóm lược lại những điểm trọng yếu của mấy chuyện hỗn độn xoay quanh tôi và Shin nữa.
 
 Cứ đà này, chúng tôi buộc lòng phải trú lại nơi đây một đêm rồi.
 
@@ -1917,7 +1917,7 @@ Sẽ mơ hồ bị cuốn vào Thành phố Ảo mộng.
 
 Nền móng để thiếu chủ có thể buôn bán sản phẩm của Asora ở thương hội đang dần được thiết lập.
 
-Ngay sau khi bọn lão cùng thiếu chủ hỏi chuyện, căn cứ ở "Tuyệt Dã" đã bị phá hủy trong một sự cố bất ngờ.
+Ngay sau khi bọn lão cùng thiếu chủ hỏi chuyện, căn cứ ở "Zetsuya" đã bị phá hủy trong một sự cố bất ngờ.
 
 Hơn nữa, sau đó thiếu chủ lúc nào cũng cảnh giác cao độ, nghỉ ngơi cũng vội vàng qua loa, đi một mạch tới Tsige. Lão khi ấy đang tập trung hành hương tu luyện, nên chuyện này không tiến triển được.
 
@@ -2605,7 +2605,7 @@ Tomoe nói rằng, nếu đổ nước hay bỏ muối vào biển, sẽ chẳng
 
 Tuy tôi có lẽ cũng sở hữu sát chiêu có thể kết liễu hắn ta ngay lập tức, nhưng tiếc là tôi có điều muốn hỏi bộ xương này. Vì trông hắn có vẻ là một nhân vật có kiến thức chuyên môn về ma pháp sơ khai, vả lại không biết người phụ nữ mà hắn ta nhắc đến là như thế nào nữa.
 
-... Trên thực tế, nếu ngắt được nguồn ma lực luân chuyển bằng Giới - thứ cho phép phong ấn ma pháp, Lich có thể bị tôi "chiếu tướng" ngay lập tức. Tôi đã thử cách này trước kia, kết quả là Tomoe hay Mio đều không thể dùng ma pháp được nữa, ngay cả tôi cũng thế, vậy nên chắc chắn nó cũng có hiệu lực với hắn ta.
+... Trên thực tế, nếu ngắt được nguồn ma lực luân chuyển bằng Sakai - thứ cho phép phong ấn ma pháp, Lich có thể bị tôi "chiếu tướng" ngay lập tức. Tôi đã thử cách này trước kia, kết quả là Tomoe hay Mio đều không thể dùng ma pháp được nữa, ngay cả tôi cũng thế, vậy nên chắc chắn nó cũng có hiệu lực với hắn ta.
 
 Song, tôi có cảm giác nếu phong ấn ma lực của hắn, bộ xương này sẽ bị phá hủy ngay tức khắc. Vì hắn là Undead đang cử động nhờ ma lực đó. Quả thực, tôi có chút tránh né việc thử để xác nhận suy đoán này của mình.
 
@@ -3011,7 +3011,7 @@ Một lần cuối nữa thôi.
 
 Tôi nhìn từng cây, từng cây một, mà không biết vốn dĩ chúng là gì. Là Loài người, hay là Á nhân?
 
-Dù tôi dùng Giới đi nữa, họ cũng không thể trở lại hình dạng ban đầu. Một khi đã phát động thì đến tôi cũng không cách nào thoát được. Trong trái tim tôi khắc sâu một điều rằng, ở trên thế giới này có những sự việc giống như là đương nhiên vậy.
+Dù tôi dùng Sakai đi nữa, họ cũng không thể trở lại hình dạng ban đầu. Một khi đã phát động thì đến tôi cũng không cách nào thoát được. Trong trái tim tôi khắc sâu một điều rằng, ở trên thế giới này có những sự việc giống như là đương nhiên vậy.
 
 Vì phạm phải tội tương ứng, nên họ nhận hình phạt này. Bên cạnh việc dùng sức mạnh này để trừng phạt, cũng có khả năng thuật này sẽ được dùng khi chiến đấu.
 
@@ -3643,7 +3643,7 @@ Nếu nắm giữ chức vụ ngoại giao, vậy chắc chắn sẽ có rất n
 
 "Phải. Ta có thể tóm gọn câu trả lời như sau. Ả ta là tướng của Ma tộc. Thế lực kia đương nhiên là Quân đoàn của Ma vương."
 
-Ôi trời. Rõ ràng căn cứ chính của họ phải ở tận đại lục phía Bắc, song Ma tộc đã vươn tay tới "Tận cùng của thế giới" rồi ư? Vậy thì chẳng phải gay go lắm sao?
+Ôi trời. Rõ ràng căn cứ chính của họ phải ở tận đại lục phía Bắc, song Ma tộc đã vươn tay tới "Tận cùng của Thế giới" rồi ư? Vậy thì chẳng phải gay go lắm sao?
 
 A, nhưng kẻ có mặt ở trước cổng điện thờ Shin cũng là Ma tộc nhỉ? Có khi nào kẻ đó không thuộc đám người hành hương tu luyện mà là người của Quân đoàn Ma vương chăng?
 
@@ -4035,19 +4035,19 @@ Tomoe và Mio đứng ngoài ma pháp trận dẫn dắt tình huống chẳng n
 
 "Thiếu chủ, cậu có thể làm yếu sức lực của chính mình đi không?"
 
-Hửm? Dùng Giới à?
+Hửm? Dùng Sakai à?
 
 Nó đi kèm với hiệu ứng giảm sức mạnh bản thân. Có lẽ được đấy.
 
-Thuộc tính mà không gian Giới ban cho sẽ tạo ảnh hưởng thích hợp lên tôi. Hơn nữa, Giới chỉ được khai triển khi lấy bản thân tôi làm tâm điểm. Tôi có thể khai triển nó thành hình cầu nếu tập trung ý thức, nhưng nếu không nghĩ gì cả, nó sẽ được khai triển theo hình mái vòm. Điểm khác biệt nằm ở một trăm tám mươi độ hay ba trăm sáu mươi độ. Khi tôi tập trung ý thức thu nhỏ nhất có thể, nó sẽ chỉ tụ lại ở cơ thể tôi.
+Thuộc tính mà không gian Sakai ban cho sẽ tạo ảnh hưởng thích hợp lên tôi. Hơn nữa, Sakai chỉ được khai triển khi lấy bản thân tôi làm tâm điểm. Tôi có thể khai triển nó thành hình cầu nếu tập trung ý thức, nhưng nếu không nghĩ gì cả, nó sẽ được khai triển theo hình mái vòm. Điểm khác biệt nằm ở một trăm tám mươi độ hay ba trăm sáu mươi độ. Khi tôi tập trung ý thức thu nhỏ nhất có thể, nó sẽ chỉ tụ lại ở cơ thể tôi.
 
 "Ừm, tôi nghĩ mình làm được. Trước giờ tôi chưa từng làm vì thấy nó vô nghĩa quá."
 
 "Nếu vậy, nhờ cậu cố gắng nhé. Lão sẽ lại chuẩn bị khế ước."
 
-Tôi khai triển Giới, tập trung ý thức giới hạn nó chỉ tụ lại ở phạm vi cơ thể mình, nhận lấy hiệu ứng làm giảm sức mạnh.
+Tôi khai triển Sakai, tập trung ý thức giới hạn nó chỉ tụ lại ở phạm vi cơ thể mình, nhận lấy hiệu ứng làm giảm sức mạnh.
 
-Sau khi xác nhận Giới đã được triển khai, Tomoe một lần nữa rót sức mạnh vào vòng tròn ma pháp với sự trợ giúp của Mio.
+Sau khi xác nhận Sakai đã được triển khai, Tomoe một lần nữa rót sức mạnh vào vòng tròn ma pháp với sự trợ giúp của Mio.
 
 Một cột ánh sáng được dựng lên ở giữa tôi và Lich, phát ra ánh sáng có màu. Màu sắc ấy dần nhuộm lên ánh sáng trắng mà vòng tròn tỏa ra. Là màu nâu. Tôi chưa từng thấy màu sắc này bao giờ. Cả Tomoe và Mio trước kia đều là màu đỏ. Màu đỏ là quan hệ chi phối. Theo lời Tomoe, đó là mức tối thiểu cần đạt. Vậy màu nâu nghĩa là vẫn chưa được?
 
@@ -4259,11 +4259,11 @@ Nói đến đó, Tomoe ngã sấp xuống. Máu trên trán cô vẫn chảy kh
 
 Chết tiệt, rốt cuộc là có chuyện gì vậy?!
 
-Tôi khai triển Giới tìm kiếm. Dù không bao quát toàn thành phố, nhưng tôi cố gắng để Giới lượn vòng quanh trong phạm vi rộng nhất có thể. Sau đó, tôi kinh ngạc.
+Tôi khai triển Sakai tìm kiếm. Dù không bao quát toàn thành phố, nhưng tôi cố gắng để Sakai lượn vòng quanh trong phạm vi rộng nhất có thể. Sau đó, tôi kinh ngạc.
 
 ... Có thứ gì đó giống với mùi ma lực của tôi đang bao trùm khắp cả khu vực, nhưng tôi không rõ chi tiết tình hình.
 
-Dừng việc tìm kiếm và cảm ứng ma lực lại, tôi chuyển sang triển khai Giới tìm kiếm vật lí, chỉ đơn thuần ước tính và nắm bắt địa hình cũng như vật thể sống.
+Dừng việc tìm kiếm và cảm ứng ma lực lại, tôi chuyển sang triển khai Sakai tìm kiếm vật lí, chỉ đơn thuần ước tính và nắm bắt địa hình cũng như vật thể sống.
 
 Tìm được... điểm dị thường rồi!
 
@@ -4353,7 +4353,7 @@ Ngoài ma lực của mình, tôi còn cảm ứng được thứ gì đó... S�
 
 Đây là thuật chữa trị của anh ta... Ánh sáng nhàn nhạt ấy bao lấy toàn thân những người bị thương. Anh sáng có màu vàng, vô cùng ấm áp.
 
-Tôi cũng mở Giới gia tăng thuộc tính chữa trị, bao lấy toàn bộ người bị thương trong tầm nhìn của mình.
+Tôi cũng mở Sakai gia tăng thuộc tính chữa trị, bao lấy toàn bộ người bị thương trong tầm nhìn của mình.
 
 Trước mắt, nếu chẳng một ai nói chuyện được sẽ không giải quyết được gì cả.
 
@@ -4405,7 +4405,7 @@ Cậu ta, Arche này vẫn còn cứu được ư?
 
 Việc tôi có thể giúp sức...
 
-Là Giới. Chính là Giới.
+Là Sakai. Chính là Sakai.
 
 Nhưng nó có đủ hiệu quả không?
 
@@ -4415,13 +4415,13 @@ Vì sao tôi hoàn toàn không - thể - dùng - được các thuật phục h
 
 Tôi nắm rõ cả thần chú lẫn kết cấu rồi, nhưng vì sao sức mạnh ấy lại không kích hoạt giúp tôi? Phong và hồi phục. Hiện giờ tôi không thể dùng được những thuộc tính tôi mong muốn nhất, thật quá vô lí.
 
-Chết tiệt! Nếu dùng chỉ mình Giới thì vẫn có tác dụng chứ?
+Chết tiệt! Nếu dùng chỉ mình Sakai thì vẫn có tác dụng chứ?
 
 Nhưng lúc này, dù đủ hay không tôi cũng phải làm thôi!
 
 Dồn hết sức vào việc trị liệu.
 
-Không chỉ có Giới của tôi, ánh sáng của Lich cũng ôm lấy cơ thể Arche. Màu của nó đậm hơn một tầng so với ánh sáng ban nãy anh ta tạo ra.
+Không chỉ có Sakai của tôi, ánh sáng của Lich cũng ôm lấy cơ thể Arche. Màu của nó đậm hơn một tầng so với ánh sáng ban nãy anh ta tạo ra.
 
 Tuy nhiên, Arche không có phản ứng gì cả.
 
@@ -4443,11 +4443,11 @@ Chữa trị à? Cách của tôi không phải là sử dụng ma pháp. Lich n
 
 Kết hợp?
 
-Phải rồi. Giới. Cường hóa và chữa trị, cường hóa và tìm kiếm. Hiện giờ, tôi có thể trao cho Giới hai thuộc tính.
+Phải rồi. Sakai. Cường hóa và chữa trị, cường hóa và tìm kiếm. Hiện giờ, tôi có thể trao cho Sakai hai thuộc tính.
 
 ... Cũng đáng để thử đấy chứ.
 
-Tôi tập trung điều khiển Giới bao quanh Arche và chính mình.
+Tôi tập trung điều khiển Sakai bao quanh Arche và chính mình.
 
 Làm ơn, hãy thành công đi...!
 
@@ -4485,7 +4485,7 @@ Khoảnh khắc ấy, tôi thở phào, toàn thân như bị rút hết sức l
 
 Tốt quá. Thật sự may quá.
 
-Tôi kiểm tra xung quanh lần nữa. Ma lực của tôi vẫn đang tồn đọng ở nơi đây, cản trở việc thu thập thông tin cần thiết để đánh giá tình huống này. Tuy nhiên, khi không dùng Giới mà quan sát bằng mắt mình, tôi biết thảm họa này đang dần được kiểm soát. Tôi có thể thấy nhiều người đã có thể đứng dậy, và nghe được giọng ai đó đang kiểm tra người khác có ổn không.
+Tôi kiểm tra xung quanh lần nữa. Ma lực của tôi vẫn đang tồn đọng ở nơi đây, cản trở việc thu thập thông tin cần thiết để đánh giá tình huống này. Tuy nhiên, khi không dùng Sakai mà quan sát bằng mắt mình, tôi biết thảm họa này đang dần được kiểm soát. Tôi có thể thấy nhiều người đã có thể đứng dậy, và nghe được giọng ai đó đang kiểm tra người khác có ổn không.
 
 Bây giờ, tôi chỉ cần hỏi các nhân chứng đã bình tĩnh về việc đã xảy ra là sẽ nắm được tình hình.
 
@@ -4509,7 +4509,7 @@ Trông nó như dây xích vậy...
 
 Là dây xích của nhẫn Draupnir sao?!
 
-Tôi nên mở rộng Giới tìm kiếm nhỉ? Nhưng ma lực của tôi sẽ cản trở...
+Tôi nên mở rộng Sakai tìm kiếm nhỉ? Nhưng ma lực của tôi sẽ cản trở...
 
 Gượm đã, tôi có nên thiết lập điều kiện bằng cách chồng nhiều lần tìm kiếm giống như lúc nãy trị liệu cho Arche không nhỉ?
 
@@ -4621,7 +4621,7 @@ Tôi toan tiến lại gần và chữa trị cho cô ta.
 
 Đã qua bao lâu rồi? Cơ thể tôi có cảm giác đã trôi qua một thời gian dài, nhưng thực tế có lẽ vẫn chưa qua lâu lắm. Vì cô ta vẫn chưa tỉnh dậy.
 
-Tuy nhiên, tôi đã không khai triển Giới ban cho khả năng chữa trị. Giờ đây, ý định đó của tôi đã biến mất hoàn toàn.
+Tuy nhiên, tôi đã không khai triển Sakai ban cho khả năng chữa trị. Giờ đây, ý định đó của tôi đã biến mất hoàn toàn.
 
 Tôi muốn tin không phải tất cả Loài người đều có tâm tư như cô ta. Vì những gì tôi nhìn thấy chỉ là kinh nghiệm và suy nghĩ cá nhân của riêng cô ta mà thôi.
 
@@ -4743,7 +4743,7 @@ Trong tình huống đối phương đang có lợi thế về vũ khí hơn, th
 
 Mũi kiếm của cô ta dao động nhẹ. Dường như mục tiêu là cổ họng của tôi. Định đâm à?
 
-Đòn công kích dốc hết sức của cô ta bị dội ngược ra trước mặt tôi với một âm thanh chói tai. Do tường chắn của Giới, âm thanh ấy hệt như tiếng kiếm va vào nhau. Toàn thân cô ta cũng dội ngược theo thanh kiếm, hai tay bật ra giơ lên cao.
+Đòn công kích dốc hết sức của cô ta bị dội ngược ra trước mặt tôi với một âm thanh chói tai. Do tường chắn của Sakai, âm thanh ấy hệt như tiếng kiếm va vào nhau. Toàn thân cô ta cũng dội ngược theo thanh kiếm, hai tay bật ra giơ lên cao.
 
 ... Chẳng hề do dự, tôi lấy đà thật sâu rồi chém cả hai tay đang cầm kiếm của cô ta bằng thanh kiếm ngắn trong tay mình.
 
@@ -5093,7 +5093,7 @@ Chẳng biết là do cô ấy tò mò, hay là do cô ấy đang có cảm xúc
 
 "Khi cố gắng tìm cách giải quyết tình hình, nếu một vị chủ nhân xây dựng được lòng tin vững chắc với tùy tùng, trong tâm trí vị chủ nhân ấy có thể nảy sinh tình huống bộc phát năng lực của tùy tùng nào thích hợp giải quyết vấn đề lúc đó. Sẽ có hai trường hợp: một là năng lực đó sẽ kích hoạt giữ nguyên khả năng, hai là nó sẽ được điều chỉnh sao cho thích hợp nhất với chủ nhân. Lần này, cậu có vẻ như thuộc trường hợp phía trước."
 
-Tomoe nói thêm rằng, nó sẽ không gây tổn thất gì cả. Trải nghiệm khi ấy đúng là khá đau đớn, nhưng cô ấy lại bảo không có tổn thất gì sao? Quả thật, tôi không cảm thấy ma lực của mình bị tiêu hao, giống như khi dùng Giới vậy. Nhưng sự thật là nó đã lấy ma lực của tôi làm trung gian kết nối. Về điểm này lại khác Giới à?
+Tomoe nói thêm rằng, nó sẽ không gây tổn thất gì cả. Trải nghiệm khi ấy đúng là khá đau đớn, nhưng cô ấy lại bảo không có tổn thất gì sao? Quả thật, tôi không cảm thấy ma lực của mình bị tiêu hao, giống như khi dùng Sakai vậy. Nhưng sự thật là nó đã lấy ma lực của tôi làm trung gian kết nối. Về điểm này lại khác Sakai à?
 
 "Bộc phát vì tin tưởng sao?"
 
@@ -5119,7 +5119,7 @@ Tomoe, dừng lại được không?
 
 "... Lần này chỉ vì ngài ngẫu nhiên muốn biết kí ức mà thôi! Nếu đổi lại là tôi, trong trường hợp ngài bị thương nặng đến nỗi nguy hiểm tới tính mạng, chắc chắn ngài cũng sẽ kích hoạt sức mạnh của tôi để chữa trị! Đấy là ngẫu nhiên, ăn may thôi!! Chẳng có gì đặc biệt hết!"
 
-Đừng tự nhiên khơi ra chuyện tôi sẽ bị thương nặng sắp chết chứ?! Tôi lại còn không thể dùng Giới chữa trị cho bản thân đâu đấy! Tôi chắc chắn sẽ chết với vết thương nặng như thế! A, nhưng nếu dùng được năng lực tái tạo của Mio sẽ không sao phải không? Vậy nhưng, nếu kích hoạt nó theo hướng tối ưu hóa để thích hợp với chủ nhân, có lẽ sẽ trở thành một dạng năng lực khác...
+Đừng tự nhiên khơi ra chuyện tôi sẽ bị thương nặng sắp chết chứ?! Tôi lại còn không thể dùng Sakai chữa trị cho bản thân đâu đấy! Tôi chắc chắn sẽ chết với vết thương nặng như thế! A, nhưng nếu dùng được năng lực tái tạo của Mio sẽ không sao phải không? Vậy nhưng, nếu kích hoạt nó theo hướng tối ưu hóa để thích hợp với chủ nhân, có lẽ sẽ trở thành một dạng năng lực khác...
 
 Đó là canh bạc tôi tuyệt đối không muốn đặt cược. Vì có thể để người khác hồi phục cho mình nên tôi quyết định sẽ chỉ bị thương khi ở cạnh người có thể dùng thuật hồi phục.
 
@@ -5159,7 +5159,7 @@ Cá nhân tôi lại cảm thấy Lich rất có tiềm năng phát triển tron
 
 Tóm lại, phải lo việc trước mắt cái đã.
 
-Tôi sử dụng Giới để tắt tiếng của hai cô gái ồn ào kia. Ừm, thật tiện lợi mà.
+Tôi sử dụng Sakai để tắt tiếng của hai cô gái ồn ào kia. Ừm, thật tiện lợi mà.
 
 "Cứ mặc kệ hai người ấy đi. Shiki, tôi đã quyết định những chuyện về sau rồi."
 
@@ -5269,7 +5269,7 @@ Khi đến chỗ của Rembrandt để chào tạm biệt, tấm bản đồ th�
 
 May mắn thay, dù Rembrandt đã tròn mắt kinh ngạc sau khi tôi thông báo lên đường, nhưng ông ấy vẫn ủng hộ tôi. Tuy rằng tôi đã chuẩn bị tinh thần nghe những lời can gián từ đại tiền bối trong giới kinh doanh rồi. Thực ra tôi vốn thấy nhẹ nhõm vì không bị mắng rằng đây tuyệt đối là chuyện không nên làm.
 
-Dù có cảm giác họ đang gài bẫy gì đó, song không ngờ tôi lại có thể nghe được nhiều thứ từ người đàn ông "cáo già" và quản gia của ông ấy. Tuy nhiên, tôi vẫn chưa thể dùng Giới để tìm kiếm hay điều tra nhằm nhìn thấu nội tâm con người, nên cũng vô dụng.
+Dù có cảm giác họ đang gài bẫy gì đó, song không ngờ tôi lại có thể nghe được nhiều thứ từ người đàn ông "cáo già" và quản gia của ông ấy. Tuy nhiên, tôi vẫn chưa thể dùng Sakai để tìm kiếm hay điều tra nhằm nhìn thấu nội tâm con người, nên cũng vô dụng.
 
 Vì họ còn chuẩn bị cả giấy tờ cần thiết ở Thành phố Học viện cho tôi, nên chắc chắn họ cũng có dụng ý của riêng mình. Tôi vẫn luôn tin tưởng gia đình Rembrandt ở một mức độ nào đó. Có lẽ là do tôi đã nhìn thấy cảm xúc của ông dành cho gia đình, khi họ vướng phải căn bệnh nguyền rủa. Chắc chắn bọn họ khác biệt với ả Loài người mà tôi đã giết.
 

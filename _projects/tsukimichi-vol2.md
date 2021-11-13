@@ -459,7 +459,7 @@ Hiện tại, nhóm chúng tôi gồm có tôi cùng năm người còn sống s
 # **Chapter 1**
 <br /><br /><br /><br /><br />
 
-"Cái gì?! 'Tuyệt Dã' đã bị phá hủy?!"
+"Cái gì?! 'Zetsuya' đã bị phá hủy?!"
 
 Một giọng nói lớn vang dội bên trong tòa nhà.
 
@@ -3074,7 +3074,7 @@ Hiện giờ, chúng tôi đang chờ đợi trong căn phòng tiếp khách r�
 
 Trước mắt tôi là rất nhiều loại đồ uống được đặt trên bàn trà, quả là kiểu cách của tầng lớp thượng lưu.
 
-Trong hành trình đi tới Tsige, tôi thường mở rộng Giới tìm kiếm ra xung quanh mà chẳng thèm kiêng nể gì, nhung khi đã vào thị trấn, đặc biệt là ở nơi như thế này, hầu như tôi không sử dụng Giới.
+Trong hành trình đi tới Tsige, tôi thường mở rộng Sakai tìm kiếm ra xung quanh mà chẳng thèm kiêng nể gì, nhung khi đã vào thị trấn, đặc biệt là ở nơi như thế này, hầu như tôi không sử dụng Sakai.
 
 Nếu ở bên ngoài tôi cũng sẽ dùng tới, nhưng tôi luôn tự kiềm chế bản thân không dò xét tình hình khi vào phòng.
 
@@ -3740,7 +3740,7 @@ Số người tập kích là... một, hai, ba, bốn... này này, con đườ
 
 Số người mà tôi có thể xác nhận bằng mắt là hai. Một kẻ là người đàn ông cao gầy đứng cách chỗ chúng tôi không xa vừa mới hét câu nói đầy nguy hiểm "Chết đi". Tên còn lại là kẻ mặc áo choàng đang quan sát chúng tôi từ chỗ trống bên khu rừng phía sau.
 
-Tuy nhiên, dựa trên kết quả từ việc mở rộng Giới để xác nhận, có rất nhiều kẻ khác đang che giấu hơi thở. Tổng cộng khoảng hai mươi người.
+Tuy nhiên, dựa trên kết quả từ việc mở rộng Sakai để xác nhận, có rất nhiều kẻ khác đang che giấu hơi thở. Tổng cộng khoảng hai mươi người.
 
 Hmm, tranh chấp với ông Rembrandt sao? Hay bọn chúng ôm hận với riêng cá nhân tôi?
 
@@ -3794,7 +3794,7 @@ Có tín hiệu gì sao? Liên tục xuất hiện thêm nhiều kẻ khác. Ở
 
 ... Được rồi, tôi quyết định sẽ đập chúng một trận tơi bời.
 
-Xét về tổng thể, chúng tôi có vẻ giống như bị quây đánh hội đồng vậy. Tuy nhiên, dù nhìn thấy bọn chúng đang cầm trên tay những vũ khí nguy hiểm, tôi cũng chẳng hề sợ hãi. Chỉ cần tôi dốc sức phòng thủ bằng ma lực và Giới là có thể đảm bảo bản thân mình lông tóc vô thương, hơn nữa còn khiến kẻ địch gặp nguy hiểm.
+Xét về tổng thể, chúng tôi có vẻ giống như bị quây đánh hội đồng vậy. Tuy nhiên, dù nhìn thấy bọn chúng đang cầm trên tay những vũ khí nguy hiểm, tôi cũng chẳng hề sợ hãi. Chỉ cần tôi dốc sức phòng thủ bằng ma lực và Sakai là có thể đảm bảo bản thân mình lông tóc vô thương, hơn nữa còn khiến kẻ địch gặp nguy hiểm.
 
 Tomoe vẫn chưa có động thái tấn công nào mà chỉ liên tục gạt và né các đòn công kích đánh tới.
 
@@ -6067,7 +6067,7 @@ Hình như bọn họ không nhận ra chúng tôi. Emma cũng đã xác nhận 
 
 Vậy thì chúng tôi có thể nghe trộm họ nói chuyện từ đây sao?
 
-Tôi lập tức mở rộng Giới, tập trung lắng nghe cuộc trò chuyện của bọn họ.
+Tôi lập tức mở rộng Sakai, tập trung lắng nghe cuộc trò chuyện của bọn họ.
 
 "Phù. Làm nông đúng là không tệ, có thể thấy rõ thành quả cho sự nỗ lực của bản thân."
 
