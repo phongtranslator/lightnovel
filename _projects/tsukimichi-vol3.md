@@ -19,7 +19,7 @@ category: Nguyệt đạo dị giới
 # **Mở đầu**
 <br /><br /><br /><br /><br />
 
-Nơi đây là Hội thương nhân tọa lạc ở Ziege, một thị trấn vùng ngoại ô.
+Nơi đây là Hội thương nhân tọa lạc ở Tsige, một thị trấn vùng ngoại ô.
 
 Sau khi kiểm tra và xác nhận lại giấy tờ mà tôi nộp lên, chị gái lễ tân bắt đầu giải thích:
 
@@ -31,13 +31,13 @@ Tôi ngắm nghía tấm thẻ thương hội mới tinh của mình. Nó là t�
 
 Tiếp theo, tôi mở cuốn sổ hướng dẫn đã nhận ra và đọc lướt qua. Tuy nó không dày lắm nhưng mỗi trang đều chi chít chữ. Tôi hiểu họ muốn diễn giải tất cả thông tin với lượng giấy ít nhất có thể vì giấy rất quý giá, nhưng ước gì họ trình bày dễ hiểu hơn.
 
-Để xem nào, thành lập được thương hội là một điều đáng mừng, nhưng vẫn còn nhiều điều phải suy tính lắm. Tôi đã quyết định mặt hàng chính sẽ là thuốc men hay các loại sản vật có trong Á Không như táo hay đào. Song, những chuyện khác thì vẫn còn mơ hồ lắm.
+Để xem nào, thành lập được thương hội là một điều đáng mừng, nhưng vẫn còn nhiều điều phải suy tính lắm. Tôi đã quyết định mặt hàng chính sẽ là thuốc men hay các loại sản vật có trong Asora như táo hay đào. Song, những chuyện khác thì vẫn còn mơ hồ lắm.
 
-Vậy nên khi chị gái lễ tân hỏi tôi đặc trưng và phương châm của thương hội là gì lúc đăng kí, tôi chỉ đáp qua loa rằng mình sẽ ghé lại chào hỏi lần nữa khi chúng tôi chính thức hoạt động. Vì tôi vẫn chưa quyết định được câu trả lời. Dù sao thì những thông tin đó sẽ giúp cho việc giới thiệu thương hội với những khách hàng thân thiết của Hội thương nhân diễn ra suôn sẻ hơn, nên họ muốn chúng tôi cung cấp chúng. Ừ thì tôi cũng hiểu được việc này. Có lẽ tôi sẽ thảo luận kỹ hơn về việc này với Rembrandt - một thương gia có tiếng ở Ziege.
+Vậy nên khi chị gái lễ tân hỏi tôi đặc trưng và phương châm của thương hội là gì lúc đăng kí, tôi chỉ đáp qua loa rằng mình sẽ ghé lại chào hỏi lần nữa khi chúng tôi chính thức hoạt động. Vì tôi vẫn chưa quyết định được câu trả lời. Dù sao thì những thông tin đó sẽ giúp cho việc giới thiệu thương hội với những khách hàng thân thiết của Hội thương nhân diễn ra suôn sẻ hơn, nên họ muốn chúng tôi cung cấp chúng. Ừ thì tôi cũng hiểu được việc này. Có lẽ tôi sẽ thảo luận kỹ hơn về việc này với Rembrandt - một thương gia có tiếng ở Tsige.
 
 Để bắt đầu buôn bán dưới danh nghĩa thương hội Kuzunoha, trước hết tôi cần phải nắm chắc cửa hàng cái đã.
 
-Sau đó phải mời chào ở Ziege để mọi người nhớ đến cửa hàng của mình nữa.
+Sau đó phải mời chào ở Tsige để mọi người nhớ đến cửa hàng của mình nữa.
 
 Phải đi khắp nơi chào hỏi giới thiệu là điều chắc chắn rồi... Có lẽ tôi cũng nên làm ít danh thiếp để phát lúc đó nhỉ? Tuy chưa từng thấy danh thiếp ở thế giới này, nhưng có nó sẽ tiện hơn nhiều.
 
@@ -47,7 +47,7 @@ Phải đi khắp nơi chào hỏi giới thiệu là điều chắc chắn rồ
 
 Tôi tạo khung lời thoại bằng ma thuật để hỏi. Đúng vậy, tôi buộc phải làm vậy vì không thể nói bằng ngôn ngữ chung của thế giới này.
 
-Tuy đã ghé qua Hội thương nhân ở Ziege nhiều lần, nhưng tôi chưa bao giờ thấy chị gái lễ tân quá ngạc nhiên với khung lời thoại của mình. Cô ấy luôn tận tình giải thích cho tôi với nụ cười niềm nở.
+Tuy đã ghé qua Hội thương nhân ở Tsige nhiều lần, nhưng tôi chưa bao giờ thấy chị gái lễ tân quá ngạc nhiên với khung lời thoại của mình. Cô ấy luôn tận tình giải thích cho tôi với nụ cười niềm nở.
 
 "Vâng, ở đây chúng tôi có thể giúp ngài giải đáp các vấn đề. Muốn mở cửa hàng thì cần phải có mặt bằng trước đã. Chúng tôi sẽ khảo sát địa điểm trước, sau đó dẫn ngài đến những nơi thích hợp vào ngày mai, ngài thấy thế nào?"
 
@@ -59,9 +59,9 @@ Sau khi xác nhận câu trả lời khẳng định trong khung lời thoại c
 
 "Đã rõ ạ. Ngài có yêu cầu cụ thể nào trong việc lựa chọn địa điểm không? Chúng tôi sẽ ghi nhận ngay bây giờ."
 
-[À không, tôi vừa từ Tận cùng của Thế giới đến Ziege này không lâu nên chẳng biết gì nhiều về thành phố... Trước mắt cô cứ giới thiệu cho tôi vài nơi thuận lợi để buôn bán là được rồi.]
+[À không, tôi vừa từ Tận cùng của Thế giới đến Tsige này không lâu nên chẳng biết gì nhiều về thành phố... Trước mắt cô cứ giới thiệu cho tôi vài nơi thuận lợi để buôn bán là được rồi.]
 
-Vì chưa dạo quanh Ziege nên thật sự tôi mù mờ chẳng biết nơi nào thích hợp cả. Những lúc như thế này tốt nhất vẫn nên để cho chuyên gia lo liệu.
+Vì chưa dạo quanh Tsige nên thật sự tôi mù mờ chẳng biết nơi nào thích hợp cả. Những lúc như thế này tốt nhất vẫn nên để cho chuyên gia lo liệu.
 
 "Vâng ạ. Do không có yêu cầu nào đặc biệt, có lẽ chúng tôi sẽ đưa ngài đến xem vài nơi ngay hôm nay."
 
@@ -71,13 +71,13 @@ Hừm, có lẽ việc tìm kiếm mặt bằng sẽ diễn ra suôn sẻ đây.
 
 [Cảm ơn, vậy thì tốt quá. Ngoài đất đai ra, có thể cho tôi biết những điều cần lưu ý khi mở cửa hàng không?]
 
-"Những điều căn bản đều được ghi trong cuốn hướng dẫn ban nãy, ngài có thể xem qua... À, vì ngài vừa rời khỏi 'Tận cùng của Thế giới' và đến Ziege không lâu, tôi nghĩ vẫn nên nói trước một chuyện."
+"Những điều căn bản đều được ghi trong cuốn hướng dẫn ban nãy, ngài có thể xem qua... À, vì ngài vừa rời khỏi 'Tận cùng của Thế giới' và đến Tsige không lâu, tôi nghĩ vẫn nên nói trước một chuyện."
 
 Hửm? Những lời này hẳn là có thâm ý gì đó. Cần phải lưu tâm rồi đây.
 
 [Cô có thể giải thích rõ hơn giúp tôi được không?]
 
-"Vâng. Ziege là thị trấn thuộc về Vương quốc Aion. Theo lẽ đó, Vương quốc Aion cũng sẽ sở hữu thương hội nào đặt cửa hàng đầu tiên của mình ở Ziege."
+"Vâng. Tsige là thị trấn thuộc về Vương quốc Aion. Theo lẽ đó, Vương quốc Aion cũng sẽ sở hữu thương hội nào đặt cửa hàng đầu tiên của mình ở Tsige."
 
 Vương quốc Aion sao? Lần đầu tiên tôi nghe đến cái tên này đấy. Đó là đất nước như thế nào vậy?
 
@@ -115,7 +115,7 @@ Cô ấy hạ giọng nhỏ hơn nữa khiến tôi vô thức rướn người 
 
 Ra là vậy... Xem ra Vương quốc Aion đang cố gắng cài gián điệp khắp muôn nơi.
 
-[Tôi hiểu rồi. Vì chuyện này, có vẻ Ziege không phải là nơi thích hợp để mở cửa hàng đầu tiên nhỉ?]
+[Tôi hiểu rồi. Vì chuyện này, có vẻ Tsige không phải là nơi thích hợp để mở cửa hàng đầu tiên nhỉ?]
 
 "Đúng vậy. Các thương hội mở cửa hàng đầu tiên ở đây thường dễ bị nhắm đến, vì khả năng những thương hội này là gián điệp của nước khác rất thấp. Nếu chưa có kinh nghiệm mở cửa hàng ở đâu cả nghĩa là xác suất có sự nhúng tay của quốc gia khác không cao. Dù ở đất nước nào đi nữa, thì việc thông tin chi tiết của những thương hội muốn mua đất để mở cửa hàng sẽ qua tay đất nước đó đã trở thành thông lệ."
 
@@ -175,13 +175,13 @@ Mặc dù chị gái lễ tân cũng nói thêm rằng thực tế không biết
 
 "Xin lỗi vì đã đến trễ, thiếu chủ."
 
-Sau khi thu thập được kha khá thông tin từ Hội thương nhân và rời khỏi đó với tâm trạng phấn khởi, tôi gặp lại Tomoe và Mio. Trước lúc tôi tiến vào Hội thương nhân, hai người đã thông báo rằng sẽ từ Á Không tới Ziege. Tuy họ xin lỗi vì đến trễ, nhưng thật ra ước lượng thời gian như vậy quá chuẩn xác rồi.
+Sau khi thu thập được kha khá thông tin từ Hội thương nhân và rời khỏi đó với tâm trạng phấn khởi, tôi gặp lại Tomoe và Mio. Trước lúc tôi tiến vào Hội thương nhân, hai người đã thông báo rằng sẽ từ Asora tới Tsige. Tuy họ xin lỗi vì đến trễ, nhưng thật ra ước lượng thời gian như vậy quá chuẩn xác rồi.
 
-Gặp lại nhau xong, tôi và hai thuộc hạ ăn bữa trưa gọn nhẹ rồi liên lạc với Toa. Cô ấy đang tích cực làm nhiệm vụ ở cứ điểm Ziege này. Có vẻ như Toa hiện tại không vướng bận chuyện gì, nên khi tôi bảo sẽ tới Hội mạo hiểm giả để báo cáo và nhận thù lao của nhiệm vụ đã hoàn thành, cô ấy liền nhanh chóng đáp lại với giọng tự tin: "Tôi cũng sẽ đến đó ngay!"
+Gặp lại nhau xong, tôi và hai thuộc hạ ăn bữa trưa gọn nhẹ rồi liên lạc với Toa. Cô ấy đang tích cực làm nhiệm vụ ở cứ điểm Tsige này. Có vẻ như Toa hiện tại không vướng bận chuyện gì, nên khi tôi bảo sẽ tới Hội mạo hiểm giả để báo cáo và nhận thù lao của nhiệm vụ đã hoàn thành, cô ấy liền nhanh chóng đáp lại với giọng tự tin: "Tôi cũng sẽ đến đó ngay!"
 
-Toa là mạo hiểm giả tôi gặp ở "Tuyệt Dã" - một căn cứ đã biến mất ở "Tận cùng của Thế giới". Chúng tôi đến Ziege này cùng hai chị em Toa và nhóm của cô. Em gái cô ấy tên là Rinon.
+Toa là mạo hiểm giả tôi gặp ở "Tuyệt Dã" - một căn cứ đã biến mất ở "Tận cùng của Thế giới". Chúng tôi đến Tsige này cùng hai chị em Toa và nhóm của cô. Em gái cô ấy tên là Rinon.
 
-Lúc trước, sau khi cứu gia đình của Rembrandt - một thương nhân lớn ở Ziege thoát khỏi một loại bệnh đặc biệt được gọi là "Chú bệnh", đã có nhiều chuyện xảy đến và ngoài ra thì tôi cũng đã hạ gục tên mạo hiểm giả mạnh nhất ở thị trấn này.
+Lúc trước, sau khi cứu gia đình của Rembrandt - một thương nhân lớn ở Tsige thoát khỏi một loại bệnh đặc biệt được gọi là "Chú bệnh", đã có nhiều chuyện xảy đến và ngoài ra thì tôi cũng đã hạ gục tên mạo hiểm giả mạnh nhất ở thị trấn này.
 
 Tôi đã lo lắng Hội mạo hiểm giả sẽ than phiền nếu chuyện lộ ra, nhưng xem ra chẳng có vấn đề gì cả.
 
@@ -285,7 +285,7 @@ Mio hỏi tôi. Tôi nghe nói các thành viên chính thức không nhất thi
 
 "A-anh Raidou, không lẽ anh đã vượt qua được bài kiểm tra 'đăng kí lại' rồi sao?" 
 
-À, phải rồi, trên đường đến Ziege chúng tôi có bàn về Hội thương nhân, khi ấy tôi nói rằng thẻ thương hội của mình đã bị mất. Không nhắc chắc tôi cũng quên. Nguy hiểm, đúng là nguy hiểm mà.
+À, phải rồi, trên đường đến Tsige chúng tôi có bàn về Hội thương nhân, khi ấy tôi nói rằng thẻ thương hội của mình đã bị mất. Không nhắc chắc tôi cũng quên. Nguy hiểm, đúng là nguy hiểm mà.
 
 Tuy tôi không trải qua bài kiểm tra lại, nhưng cứ chiều theo câu chuyện của cô ấy vậy.
 
@@ -303,7 +303,7 @@ Tôi đưa thẻ thương hội ra.
 
 "Anh sẽ bán bánh kẹo chứ~?" Rinon dù sao vẫn là trẻ con, cô bé đưa ra gợi ý rất dễ thương.
 
-Thật có lỗi với Rinon, nhưng tạm thời tôi không định bán các mặt hàng cần chế biến như bánh kẹo, cũng như mấy món nhu yếu phẩm hay đồ ăn vặt. Tôi muốn tập trung vào các loại thương phẩm như hoa quả bên trong Á Không hay dược phẩm hơn. Sẽ rất tuyệt nếu có thể mượn sức của các thợ rèn tộc Người lùn, nhưng thôi việc này để tương lai tính sau vậy. Họ là một tập thể lập dị thu mình ở một nơi hẻo lánh, nếu bắt họ sản xuất vũ khí cho mục đích thương mại một cách quá trớn có thể sẽ làm họ phản cảm mất. Vậy thì thật đáng sợ. Tôi chưa cần vũ khí tới mức đó.
+Thật có lỗi với Rinon, nhưng tạm thời tôi không định bán các mặt hàng cần chế biến như bánh kẹo, cũng như mấy món nhu yếu phẩm hay đồ ăn vặt. Tôi muốn tập trung vào các loại thương phẩm như hoa quả bên trong Asora hay dược phẩm hơn. Sẽ rất tuyệt nếu có thể mượn sức của các thợ rèn tộc Người lùn, nhưng thôi việc này để tương lai tính sau vậy. Họ là một tập thể lập dị thu mình ở một nơi hẻo lánh, nếu bắt họ sản xuất vũ khí cho mục đích thương mại một cách quá trớn có thể sẽ làm họ phản cảm mất. Vậy thì thật đáng sợ. Tôi chưa cần vũ khí tới mức đó.
 
 "À, cậu Raidou này, cô Mio và cô Tomoe sẽ lập tức tiến hành khâu chuấn bị để mở cửa tiệm sao?"
 
@@ -311,9 +311,9 @@ Toa hỏi tôi. Sao cô ấy lại đột nhiên hỏi chuyện này nhỉ?
 
 À ra vậy, có lẽ cô ấy muốn biết từ giờ đến khi thương hội của chúng tôi mở cửa hàng, hai người ấy có thể nhận nhiệm vụ hay lập tổ đội hoạt động như mạo hiểm giả không... Vì quả thật những việc phải làm trước khi mở cửa hàng nhiều không kể xiết. Tạm thời tôi muốn Tomoe và Mio tập trung thực hiện chúng hơn là thăng hạng mạo hiểm giả.
 
-[Đúng vậy. Họ sẽ giúp tìm kiếm địa điểm mở cửa hàng với tư cách thành viên của thương hội, hoặc là chào hỏi những đồng nghiệp trong Ziege này. Từ giờ cho đến khi mở tiệm còn nhiều thứ tôi cần họ giúp lắm.]
+[Đúng vậy. Họ sẽ giúp tìm kiếm địa điểm mở cửa hàng với tư cách thành viên của thương hội, hoặc là chào hỏi những đồng nghiệp trong Tsige này. Từ giờ cho đến khi mở tiệm còn nhiều thứ tôi cần họ giúp lắm.]
 
-Trước mắt, tôi sẽ để Tomoe và Mio xem qua những địa điểm thuận lợi mà Hội thương nhân tìm giúp. Càng nhiều người đi chào hỏi đồng thời thu thập thông tin tại Ziege, mọi việc sẽ càng tiến triển nhanh hơn. Tuy tôi vẫn sẽ đến nhờ Rembrandt cho thuê không gian buôn bán, nhưng dù sao thì có cửa hàng của riêng mình vẫn thích hơn. Hoặc sở hữu một mảnh đất thôi cũng được, nó sẽ có lợi về sau này.
+Trước mắt, tôi sẽ để Tomoe và Mio xem qua những địa điểm thuận lợi mà Hội thương nhân tìm giúp. Càng nhiều người đi chào hỏi đồng thời thu thập thông tin tại Tsige, mọi việc sẽ càng tiến triển nhanh hơn. Tuy tôi vẫn sẽ đến nhờ Rembrandt cho thuê không gian buôn bán, nhưng dù sao thì có cửa hàng của riêng mình vẫn thích hơn. Hoặc sở hữu một mảnh đất thôi cũng được, nó sẽ có lợi về sau này.
 
 "Hả??! Để, để hai người ấy đi tìm mặt bằng và chào hỏi thôi sao?!"
 
@@ -379,7 +379,7 @@ Tomoe à, cô nên phổ cập mấy thông tin địa lí này cho tôi sớm h
 
 "Cả cô cũng không biết à, xem ra thành phố này mới thành lập. Nghe bảo đây là thành phố trung lập không thuộc về bất kì quốc gia nào. Nếu chúng ta bắt đầu kinh doanh ở đây, có lẽ sẽ không bị vướng vào hoạt động tình báo và có thể buôn bán ở khắp các nước khác. Tôi nghe người ở Hội thương nhân nói lại nên chỉ biết bấy nhiêu thôi."
 
-Theo như thông tin của chị gái lễ tân Hội thương nhân thì hình như không chỉ riêng Vương quốc Aion mới cài gián điệp. Tuy nhiên, qua lời Tomoe, xem ra Vương quốc Aion này có thâm niên trong hoạt động tình báo. Đúng là cố chấp đến tuyệt vọng. Không biết có phải vì thành phố Ziege này nằm ở vùng biên giới không mà sao tôi chẳng cảm nhận được mấy.
+Theo như thông tin của chị gái lễ tân Hội thương nhân thì hình như không chỉ riêng Vương quốc Aion mới cài gián điệp. Tuy nhiên, qua lời Tomoe, xem ra Vương quốc Aion này có thâm niên trong hoạt động tình báo. Đúng là cố chấp đến tuyệt vọng. Không biết có phải vì thành phố Tsige này nằm ở vùng biên giới không mà sao tôi chẳng cảm nhận được mấy.
 
 "Trong lúc lão không để ý, thế giới đã thay đổi rất nhiều rồi. Dường như lãnh thổ của các quốc gia cũng đã có sự thay đổi rất lớn."
 
@@ -387,7 +387,7 @@ Thông tin mà Tomoe sở hữu đã có phần xưa cũ, nhưng theo như lời
 
 Bản đồ thế giới... Tại thế giới này, giấy rất quý giá nên bản đồ khá đắt đỏ, nhưng đúng là vẫn nên có nó chứ nhỉ. Dù sao tôi cũng muốn dạo qua những vùng đất xinh đẹp ở thế giới này. Tôi đã từng thấy qua núi trọc, nơi hoang dã, cả núi lửa gồ ghề nữa nhưng vẫn chưa thấy qua đại dương sâu thẳm, núi xanh sông biếc, cảnh sắc thiên nhiên tươi đẹp bao giờ.
 
-Nơi hoang dã thì chỉ có màu nâu đất, còn Á Không lại luôn khiến tôi nhớ về Trái Đất.
+Nơi hoang dã thì chỉ có màu nâu đất, còn Asora lại luôn khiến tôi nhớ về Trái Đất.
 
 Tôi chắc chắn phải trải nghiệm những điều tuyệt vời chỉ có ở thế giới giả tưởng thiên nhiên trù phú như thế này!
 
@@ -397,7 +397,7 @@ Tôi chắc chắn phải trải nghiệm những điều tuyệt vời chỉ c�
 
 "Đã rõ. Nhưng thật sự lão chỉ cần giao dịch đất đai thôi sao?"
 
-"Ừ, tạm thời là vậy. Ziege có tường thành bao bọc nên đất đai chỉ có hạn đúng không nào? Chẳng biết chúng còn trống đến bao giờ. Một ngày nào đó tôi cũng muốn mở cửa hàng ở Ziege, nên cứ chuẩn bị sẵn mặt bằng đã. Ngày mai tôi sẽ đến thương hội của Rembrandt để thảo luận. Có điều..."
+"Ừ, tạm thời là vậy. Tsige có tường thành bao bọc nên đất đai chỉ có hạn đúng không nào? Chẳng biết chúng còn trống đến bao giờ. Một ngày nào đó tôi cũng muốn mở cửa hàng ở Tsige, nên cứ chuẩn bị sẵn mặt bằng đã. Ngày mai tôi sẽ đến thương hội của Rembrandt để thảo luận. Có điều..."
 
 "Thiếu chủ có gì phiền não sao?"
 
@@ -423,9 +423,9 @@ Chị gái lễ tân cũng cảnh báo việc mở cửa hàng bách hóa không
 
 Tay mơ như tôi cũng có thể hiểu được với tình huống hiện giờ, mở cửa hàng bách hóa không có lợi.
 
-"Hàng hóa chúng ta bán toàn bộ đều là sản vật của Á Không, cũng chẳng ai phản đối được hình thức nhập kho đặc biệt của chúng ta cả. Thiếu chủ, suy nghĩ phức tạp quá không tốt đâu."
+"Hàng hóa chúng ta bán toàn bộ đều là sản vật của Asora, cũng chẳng ai phản đối được hình thức nhập kho đặc biệt của chúng ta cả. Thiếu chủ, suy nghĩ phức tạp quAsora tốt đâu."
 
-Đúng như Tomoe nói, hiện tại hàng hóa chủ lực của thương hội Kuzunoha là các sản vật từ Á Không. Nghĩa là luật nhập kho không thể áp dụng với chúng tôi. Tuy nhiên, cứ nghĩ đến những chuyện sẽ phát sinh lúc nhập nguyên liệu làm thuốc là tôi lại thấy sầu não không thôi.
+Đúng như Tomoe nói, hiện tại hàng hóa chủ lực của thương hội Kuzunoha là các sản vật từ Asora. Nghĩa là luật nhập kho không thể áp dụng với chúng tôi. Tuy nhiên, cứ nghĩ đến những chuyện sẽ phát sinh lúc nhập nguyên liệu làm thuốc là tôi lại thấy sầu não không thôi.
 
 Ngoài ra còn vấn đề người mới như tôi mở cửa hàng bách hóa có lẽ sẽ gây nổi bật và dễ thu hút sự chú ý đến xung quanh nữa, nhưng đành chịu thôi.
 
@@ -451,11 +451,11 @@ Tomoe làm vẻ mặt như muốn hỏi tôi vì sao. Mà cũng đúng thôi. Đ
 
 "Đương nhiên là được. Trau dồi tri thức luôn quan trọng mà. Tiền của chúng ta đa phần đều do cô giữ, cứ mua những thứ cần thiết nhé. Vì từ giờ tôi cần tìm hiểu đường đến Thành phố Học viện ra sao, hơn nữa cũng phải liên hệ nhờ thương hội Rembrandt giúp đỡ nên sẽ bận rộn đấy."
 
-"Vâng, lão hiểu rồi. Vậy lão sẽ báo cáo tình hình của mình tại Á Không được không?"
+"Vâng, lão hiểu rồi. Vậy lão sẽ báo cáo tình hình của mình tại Asora được không?"
 
-"Được. Phòng trọ cũng đã giăng kết giới không thể xâm nhập. Từ giờ tôi cũng sẽ nghỉ ngơi tại Á Không vào ban đêm. Ở đó tôi cảm thấy yên tâm hơn. Cô cứ báo cáo vào lúc đó là được. À, suýt nữa thì quên mất. Tôi muốn mua bản đồ thế giới, đắt mấy cũng không sao. Cô hãy mua nó cùng với bản đồ chi tiết của Vương quốc Aion nhé. Không đủ tiền hãy báo tôi."
+"Được. Phòng trọ cũng đã giăng kết giới không thể xâm nhập. Từ giờ tôi cũng sẽ nghỉ ngơi tại Asora vào ban đêm. Ở đó tôi cảm thấy yên tâm hơn. Cô cứ báo cáo vào lúc đó là được. À, suýt nữa thì quên mất. Tôi muốn mua bản đồ thế giới, đắt mấy cũng không sao. Cô hãy mua nó cùng với bản đồ chi tiết của Vương quốc Aion nhé. Không đủ tiền hãy báo tôi."
 
-Phòng trọ này chỉ thuê để tiện cho việc liên hệ Rembrandt và Toa mà thôi, không có nó ban đêm tôi ngủ ở Á Không cũng được.
+Phòng trọ này chỉ thuê để tiện cho việc liên hệ Rembrandt và Toa mà thôi, không có nó ban đêm tôi ngủ ở Asora cũng được.
 
 Khoan đã, mua bản đồ chi tiết có vẻ sẽ kéo theo rất nhiều nguy hiểm.
 
@@ -473,7 +473,7 @@ Tomoe đúng là một thuộc hạ đắc lực. Những người có thể ngh
 
 "Vâng, vậy tối mai lão sẽ báo cáo ở bên kia."
 
-Cô Orc Emma cũng muốn tôi ghé về hai lần sáng, chiều mỗi ngày. Cô cũng nói rằng mọi người sẽ rất vui nếu cứ bảy ngày tôi lại ở đó một ngày. Tuy không biết tình trạng như thế này đến bao giờ mới kết thúc, nhưng nếu có thể trải qua trọn vẹn một ngày ở Á Không, tôi sẽ tập luyện bắn cung trở lại. Dạo này ở Ziege suốt nên tôi chẳng thể tập được.
+Cô Orc Emma cũng muốn tôi ghé về hai lần sáng, chiều mỗi ngày. Cô cũng nói rằng mọi người sẽ rất vui nếu cứ bảy ngày tôi lại ở đó một ngày. Tuy không biết tình trạng như thế này đến bao giờ mới kết thúc, nhưng nếu có thể trải qua trọn vẹn một ngày ở Asora, tôi sẽ tập luyện bắn cung trở lại. Dạo này ở Tsige suốt nên tôi chẳng thể tập được.
 
 "Rồi, chúng ta đi ngủ thôi. Đây là đêm cuối ngủ ở căn phòng này. Ngủ ngon nhé~."
 
@@ -513,7 +513,7 @@ Việc cô ấy nghe theo Mio cũng như Tomoe và dùng kính ngữ với tôi 
 
 Điều đó khiến tôi muốn làm chỗ dựa cho cô ấy.
 
-Sau khi đến Ziege rồi ăn mừng, tôi đã quyết định phải giữ khoảng cách nhất định với Toa để tự kiềm chế tâm tình của mình. Bởi vì tôi che chở cho Toa vốn chỉ vì cô ấy giống người quen mà thôi. Cô ấy rõ ràng là người khác, không có lí do gì để tôi phải đối xử đặc biệt cả. Làm vậy không có lợi đối với cả hai bên.
+Sau khi đến Tsige rồi ăn mừng, tôi đã quyết định phải giữ khoảng cách nhất định với Toa để tự kiềm chế tâm tình của mình. Bởi vì tôi che chở cho Toa vốn chỉ vì cô ấy giống người quen mà thôi. Cô ấy rõ ràng là người khác, không có lí do gì để tôi phải đối xử đặc biệt cả. Làm vậy không có lợi đối với cả hai bên.
 
 Song, dẫu biết đây là người khác, dẫu hiểu rất rõ điều đó, tôi vẫn muốn chăm sóc cô ấy hết lòng... Ôi ôi...
 
@@ -527,7 +527,7 @@ Tôi đã nhờ Tomoe tìm mặt bằng thuận lợi cho thương hội Kuzunoh
 
 Theo lời cô nàng, sau khi cùng tổ đội của Toa làm nhiệm vụ, cô dành thời gian trống để đi xem qua các địa điểm được giới thiệu là thích hợp mở cửa tiệm. Nghe nói người kinh doanh bất động sản rất vui mừng khi Tomoe nói rằng mua đứt thay vì chỉ đi thuê mặt bằng.
 
-Trong lúc đó, tôi đến Á Không để cập nhật tình hình xây dựng thành phố, tình trạng sản vật, cũng như lựa chọn các loại sản phẩm thương hội sẽ đem đi bán. Tôi còn hẹn với thương hội Rembrandt ở Ziege để thảo luận xem có thể thuê cửa hàng không. Dù phải đàm phán rất nhiều lần về các vấn đề, ví dụ như người chịu trách nhiệm cửa hàng chính thức là ai, nhưng cuối cùng tôi cũng được quyền dùng không gian cửa hàng theo hình thức thuê mặt bằng. Thật ra cũng không hẳn là đàm phán bởi vì đôi bên không thẩm định nhau mà chỉ gặp mặt trò chuyện về phương hướng kinh doanh mặt bằng mà thôi. Vì tôi là ân nhân cứu gia đình Rembrandt nên việc thương lượng diễn ra vô cùng suôn sẻ.
+Trong lúc đó, tôi đến Asora để cập nhật tình hình xây dựng thành phố, tình trạng sản vật, cũng như lựa chọn các loại sản phẩm thương hội sẽ đem đi bán. Tôi còn hẹn với thương hội Rembrandt ở Tsige để thảo luận xem có thể thuê cửa hàng không. Dù phải đàm phán rất nhiều lần về các vấn đề, ví dụ như người chịu trách nhiệm cửa hàng chính thức là ai, nhưng cuối cùng tôi cũng được quyền dùng không gian cửa hàng theo hình thức thuê mặt bằng. Thật ra cũng không hẳn là đàm phán bởi vì đôi bên không thẩm định nhau mà chỉ gặp mặt trò chuyện về phương hướng kinh doanh mặt bằng mà thôi. Vì tôi là ân nhân cứu gia đình Rembrandt nên việc thương lượng diễn ra vô cùng suôn sẻ.
 
 Thời gian còn lại, tôi đi thu thập đủ loại thông tin về Thành phố Học viện.
 
@@ -535,7 +535,7 @@ Và rồi sáu ngày đã trôi qua.
 
 Chỉ có sáu ngày thôi, nhưng mỗi ngày đều quay cuồng đến chóng mặt. Mỗi ngày của chúng tôi trôi qua trong chớp mắt.
 
-Trong lúc tôi và Tomoe hoạt động ở Ziege, Mio báo cáo đã tìm thấy hoa Ambrosia ở nơi hoang dã và sẽ lập tức mang rễ của chúng về Á Không. Hoa Ambrosia có thể dùng làm nguyên liệu chế thuốc trị bách bệnh. Vì muốn kiểm tra hoa có sinh trưởng được ở Á Không hay không, nên sau khi quay trở về nơi đó, chúng tôi đã trồng chúng ở vài nơi có môi trường giống với nơi hoang dã nhất.
+Trong lúc tôi và Tomoe hoạt động ở Tsige, Mio báo cáo đã tìm thấy hoa Ambrosia ở nơi hoang dã và sẽ lập tức mang rễ của chúng về Asora. Hoa Ambrosia có thể dùng làm nguyên liệu chế thuốc trị bách bệnh. Vì muốn kiểm tra hoa có sinh trưởng được ở Asora hay không, nên sau khi quay trở về nơi đó, chúng tôi đã trồng chúng ở vài nơi có môi trường giống với nơi hoang dã nhất.
 
 Nơi trồng hoa Ambrosia gần với khu vực Arche cư ngụ, nên tôi giao nhiệm vụ trông coi chúng cho họ. Đám Arche có vẻ bề ngoài khá kì dị khi nửa thân trên là cơ thể người, nửa thân dưới là nhện, nhưng dường như họ lại chăm sóc thực vật rất giỏi, ừm, đúng là không nên phán xét ai qua vẻ ngoài cả. Khả năng lĩnh hội ngôn ngữ của họ cũng nhanh thần tốc. Nhanh đến mức bây giờ toàn tộc đã có thể giao tiếp một cách bình thường rồi.
 
@@ -543,7 +543,7 @@ Hiện tại tuy còn phải tập hợp nhân lực để cửa tiệm có th�
 
 Tomoe xem ra đã học được rất nhiều về ma thú, ma vật cũng như nhiều loại nguyên liệu khác. Cô ấy cũng xử lí vấn đề đất đai nhanh gọn, không có gì phải lo cả. Cuối cùng, sau khi đồng hành cùng Tomoe một thời gian, nhóm Toa đã thăng hạng, và cấp của họ cũng tăng lên đáng kể. Chỉ có sáu ngày thôi nhưng họ đã tiến bộ nhanh chóng không ngờ.
 
-Sau khi Mio và Arche trở về, buổi tối hôm nay cư dân của Á Không với người chủ trì là Emma đã mở một bữa tiệc để ăn mừng việc dạo này tôi ở lại Á Không thường xuyên hơn.
+Sau khi Mio và Arche trở về, buổi tối hôm nay cư dân của Asora với người chủ trì là Emma đã mở một bữa tiệc để ăn mừng việc dạo này tôi ở lại Asora thường xuyên hơn.
 
 Bọn họ đúng là tốt bụng thật. Tình cảm của tôi với họ còn sâu sắc hơn hẳn so với Loài người. Loài người chỉ toàn trai xinh gái đẹp, và điều đó khiến cho khuôn mặt của tôi rất dễ khiến người khác chú ý đến, không có mặt nạ tôi không thể tiến vào bất cứ đâu. Hơn nữa tôi luôn phải viết để giao tiếp với mọi người. Bởi vì nguyên nhân giọng nói của tôi luôn bị bóp méo thành tiếng kêu kì lạ, cho nên đến bây giờ tôi vẫn không thể nói được ngôn ngữ chung. Chính vì vậy, trong thâm tâm, tự tôi cũng có khúc mắc riêng, chẳng ôm tâm tư muốn thân cận với ai cả. Nhưng tôi quyết định quy hết tội lỗi cho bà Nữ thần kia.
 
@@ -561,21 +561,21 @@ Một Người lùn hỏi tôi với khuôn mặt đỏ bừng. Cả người ô
 
 Đầy kịch tính sao? Cũng đúng nhỉ.
 
-... Mà phải rồi. Những người này vẫn luôn ở mãi trong Á Không. Cũng khó trách họ cảm thấy ngột ngạt.
+... Mà phải rồi. Những người này vẫn luôn ở mãi trong Asora. Cũng khó trách họ cảm thấy ngột ngạt.
 
-Có lẽ tôi nên để họ ra khỏi Á Không, tự do qua lại Ziege hay nơi hoang dã sẽ tốt hơn.
+Có lẽ tôi nên để họ ra khỏi Asora, tự do qua lại Tsige hay nơi hoang dã sẽ tốt hơn.
 
 Tôi không có ý định nhốt họ, nhưng thỉnh thoảng có lẽ mọi người vẫn muốn được ra ngoài...
 
 "Sao vậy thiếu chủ? Đột nhiên cậu im lặng quá."
 
-"À, không có gì... Đúng là ở Á Không mọi người sẽ cảm thấy ngột ngạt nhỉ?"
+"À, không có gì... Đúng là ở Asora mọi người sẽ cảm thấy ngột ngạt nhỉ?"
 
 Nghe xong, Người lùn nhìn tôi với nét mặt vô cùng nghiêm túc. Ơ kìa? Phản ứng sao không giống tôi nghĩ thế?
 
 Tôi hốt hoảng nói tiếp:
 
-"À, ừm, tôi đã nói điều gì kì lạ lắm sao? Tôi nghĩ thỉnh thoảng mọi người cũng muốn rời khỏi Á Không để ra ngoài ấy mà."
+"À, ừm, tôi đã nói điều gì kì lạ lắm sao? Tôi nghĩ thỉnh thoảng mọi người cũng muốn rời khỏi Asora để ra ngoài ấy mà."
 
 Biểu cảm của Người lùn trở nên kì lạ trước lời nói của tôi, rồi ông đáp lời:
 
@@ -601,7 +601,7 @@ Người lùn cười rộ rồi nói tiếp:
 
 Nói đoạn, Người lùn cười phá lên. Nhưng trưởng lão, ông đừng cố sức như thế, phải ngủ đi chứ! Mà gọi cả tên chủng tộc Người lùn Elder ra thì dài quá nên Tomoe rút ngắn tên họ thành Eldwa, ổn không nhỉ? Phải nghe theo những điều quá đáng như vậy thật đáng thương mà.
 
-"... Cơ mà, đúng là đôi lúc tôi cũng muốn rời Á Không để đi ra bên ngoài. Tôi tò mò không biết bây giờ vũ khí thế giới ngoài kia sử dụng ra sao."
+"... Cơ mà, đúng là đôi lúc tôi cũng muốn rời Asora để đi ra bên ngoài. Tôi tò mò không biết bây giờ vũ khí thế giới ngoài kia sử dụng ra sao."
 
 "À, đây là tính hiếu kì về vũ khí của người thợ rèn nhỉ?"
 
@@ -609,13 +609,13 @@ Nói đoạn, Người lùn cười phá lên. Nhưng trưởng lão, ông đừ
 
 Người lùn nói thêm, họ sợ nếu đưa ra những món đồ hạ phẩm sẽ khiến thiếu chủ của mình gặp phải rắc rối.
 
-Cũng đúng nhỉ. Mặc dù tôi cần phải để mạo hiểm giả lạc vào đây và mang ra ngoài các sản vật, nhưng đồng thời cũng nên để cho một, hai người ở Á Không tìm hiểu nhiều hơn về thế giới bên ngoài.
+Cũng đúng nhỉ. Mặc dù tôi cần phải để mạo hiểm giả lạc vào đây và mang ra ngoài các sản vật, nhưng đồng thời cũng nên để cho một, hai người ở Asora tìm hiểu nhiều hơn về thế giới bên ngoài.
 
 Vậy nhưng không thể bất cẩn để Arche ra ngoài với hình dạng đó được. Phải để họ tập luyện biến đổi hình dạng con người hơn chút nữa. Mà, việc bọn họ lĩnh hội được thuật biến hóa thành người chỉ là vấn đề thời gian thôi.
 
-Tộc Người lùn thì không vấn đề gì, họ có thể ra ngoài ngay bây giờ. Ở Ziege cũng có mạo hiểm giả Người lùn, Eldwa bề ngoài cũng không khác gì Người lùn bình thường nhưng có đội thêm vương miện.
+Tộc Người lùn thì không vấn đề gì, họ có thể ra ngoài ngay bây giờ. Ở Tsige cũng có mạo hiểm giả Người lùn, Eldwa bề ngoài cũng không khác gì Người lùn bình thường nhưng có đội thêm vương miện.
 
-"Vậy thì, mọi người có muốn trông cửa hàng ở Ziege ít hôm không? Thương hội đã chính thức thành lập được vài ngày, nhưng trước tiên cần phải thuê cửa tiệm của một thương nhân lớn để kinh doanh đã."
+"Vậy thì, mọi người có muốn trông cửa hàng ở Tsige ít hôm không? Thương hội đã chính thức thành lập được vài ngày, nhưng trước tiên cần phải thuê cửa tiệm của một thương nhân lớn để kinh doanh đã."
 
 Tôi đã kiểm tra trong cuốn hướng dẫn nhận được lúc đăng kí ở Hội thương nhân rồi, những chủng tộc không phải Loài người vẫn được gia nhập vào thương hội. Thủ tục để trở thành thành viên chính thức không khác gì Loài người cả.
 
@@ -625,7 +625,7 @@ Tôi đã kiểm tra trong cuốn hướng dẫn nhận được lúc đăng kí
 
 "Chà! Chúng tôi làm nhiệm vụ cũng được sao?"
 
-"Nếu được, tôi mong các ông thực hiện chúng. Bản thân tôi cũng muốn biết ở Ziege yêu cầu vũ khí như thế nào. Thay vì đưa ra phương án về năng lực hay chất lượng, mọi người trực tiếp nghe yêu cầu từ người ủy thác sẽ tốt hơn."
+"Nếu được, tôi mong các ông thực hiện chúng. Bản thân tôi cũng muốn biết ở Tsige yêu cầu vũ khí như thế nào. Thay vì đưa ra phương án về năng lực hay chất lượng, mọi người trực tiếp nghe yêu cầu từ người ủy thác sẽ tốt hơn."
 
 "Thật mong chờ quá! Cảm giác giống như muốn mở cả gian hàng trong lễ hội Ennichi mà cô Tomoe đã kể."
 
@@ -657,7 +657,7 @@ Văn hóa mà giống nhau, giao tình giữa các bộ tộc cũng sẽ sâu đ
 
 ... Tuy nhiên, ở bên cạnh có toàn những người yêu thích lễ hội giúp cho nỗi lo lắng của tôi về sau cũng sẽ với đi nhiều. Chừng mực vẫn là nhất. Hãy chừng mực thôi.
 
-Tôi không muốn can thiệp quá nhiều vào những chuyện ở Á Không. Tôi đã nửa bị buộc phải đứng ở vị trí nhà vua rồi, nên về việc triển khai lần này xin hãy tha cho tôi đi. Nhưng mà tôi lại cảm giác được ở Emma toát ra một sự uy quyền. Ngược lại với tôi, cô ấy đóng vai trò nữ vương sẽ tốt hơn nhiều. Tôi cảm giác mình giống như là một người cho thuê đất đơn thuần mà thôi.
+Tôi không muốn can thiệp quá nhiều vào những chuyện ở Asora. Tôi đã nửa bị buộc phải đứng ở vị trí nhà vua rồi, nên về việc triển khai lần này xin hãy tha cho tôi đi. Nhưng mà tôi lại cảm giác được ở Emma toát ra một sự uy quyền. Ngược lại với tôi, cô ấy đóng vai trò nữ vương sẽ tốt hơn nhiều. Tôi cảm giác mình giống như là một người cho thuê đất đơn thuần mà thôi.
 
 Sau đó, bữa tiệc chỉ còn lại tàn cuộc. Phụ nữ và trẻ em của các chủng tộc lần lượt rời đi, chỉ còn những con sâu rượu ở lại.
 
@@ -717,7 +717,7 @@ Cũng không hề quá lời nếu nói rằng tôi đã cống hiến mấy ph�
 
 Chỉ là, cung thuật có sức hút lạ kì đối với tôi. Gia đình tôi cũng lo ngại về sự cuồng say này, nhưng khi bắn cung tôi không cảm thấy đau đớn gì cả.
 
-Lần đầu tiên bắn cung ở Á Không, tôi đã sử dụng hết sức lực của mình và quét bay đích ngắm, nhưng lần này tôi đã có thể giả định trước mọi thứ.
+Lần đầu tiên bắn cung ở Asora, tôi đã sử dụng hết sức lực của mình và quét bay đích ngắm, nhưng lần này tôi đã có thể giả định trước mọi thứ.
 
 Sau khi tập trung, điểm kết thúc hiện lên trong ý thức tôi. Hình ảnh mũi tên cắm trúng đích trong não được tôi hiện thực hóa không sai một li.
 
@@ -729,7 +729,7 @@ Chỉ là tôi tò mò vì sao mình vẫn chưa quá mệt. Nếu giống như 
 
 Những vì sao nhấp nháy, sáng rọi trên bầu trời đêm không gọn mây.
 
-Nếu có mây và sao, nghĩa là vũ trụ cũng tồn tại đúng không nhỉ? Thế nhưng Á Không chắc chắn chỉ là một không gian do năng lực của Tomoe tạo nên. Thật khó mà nghĩ đến việc cô đã ấy tạo ra một thứ vĩ mô như vũ trụ. Vậy vũ trụ phía bên kia bầu trời sao là vũ trụ của dị giới này, hay là...
+Nếu có mây và sao, nghĩa là vũ trụ cũng tồn tại đúng không nhỉ? Thế nhưng Asora chắc chắn chỉ là một không gian do năng lực của Tomoe tạo nên. Thật khó mà nghĩ đến việc cô đã ấy tạo ra một thứ vĩ mô như vũ trụ. Vậy vũ trụ phía bên kia bầu trời sao là vũ trụ của dị giới này, hay là...
 
 "Thiếu chủ."
 
@@ -859,7 +859,7 @@ Tôi á khẩu trước những thông tin không ngờ tới mà Tomoe vừa th
 
 "Gì vậy?"
 
-"Ban nãy Á Không đã mở rộng hơn rồi."
+"Ban nãy Asora đã mở rộng hơn rồi."
 
 "Hảaa?!"
 
@@ -873,7 +873,7 @@ Từ dáng vẻ của Tomoe, trông cô ấy không giống như đang đùa c�
 
 Tomoe tiếp tục.
 
-"Khoảnh khắc thiếu chủ phân tán ý thức rồi thu về, Á Không cũng theo đó được mở rộng lên rất nhiều. Lúc này đây, nó đã rộng hơn khoảng năm lần. Chuyện này dạo gần đây không diễn ra, nhưng nó lại xảy ra ngay sau khi cậu luyện tập."
+"Khoảnh khắc thiếu chủ phân tán ý thức rồi thu về, Asora cũng theo đó được mở rộng lên rất nhiều. Lúc này đây, nó đã rộng hơn khoảng năm lần. Chuyện này dạo gần đây không diễn ra, nhưng nó lại xảy ra ngay sau khi cậu luyện tập."
 
 "Lại xuất hiện sông hay núi gì đó à?!"
 
@@ -889,7 +889,7 @@ Tomoe tiếp tục.
 
 "Hả?"
 
-Còn có chuyện tệ hơn Á Không rộng ra à? Lượng ma lực?
+Còn có chuyện tệ hơn Asora rộng ra à? Lượng ma lực?
 
 "Vói lượng ma lực hiện nay của thiếu chủ, cậu có thể thành lập giao ước cả một núi tùy tùng, thậm chí còn ngang hàng với lão và Mio. Khi thành lập giao ước với lão, lượng ma lực cậu cần chỉ gần bằng phân nửa bây giờ thôi...
 
@@ -917,11 +917,11 @@ Tomoe nói thêm, trường hợp tệ nhất sẽ để Người lùn chế t�
 
 Chết đi rồi hồi sinh, lượng ma lực sẽ tăng gấp đôi à? Nghĩa là nếu lặp đi lặp lại, ma lực sẽ nhân lên, rồi nhân mãi, cứ thế không dừng sao? Chẳng tốt lành gì cả.
 
-"Cả Á Không này cũng..."
+"Cả Asora này cũng..."
 
 Lại gì nữa vậy?
 
-"Tình hình đã thay đổi. Dựa vào những giả định đáng tin này, kết hợp với thông tin lão thu thập được bấy lâu, có thể đưa ra kết luận như sau: Á Không đã khuếch trương sau khi chúng ta lập giao ước, từ nền tảng đó, có lẽ thiếu chủ đã vô thức sáng tạo ra thế giới mới giống với thế giới trước kia của mình..."
+"Tình hình đã thay đổi. Dựa vào những giả định đáng tin này, kết hợp với thông tin lão thu thập được bấy lâu, có thể đưa ra kết luận như sau: Asora đã khuếch trương sau khi chúng ta lập giao ước, từ nền tảng đó, có lẽ thiếu chủ đã vô thức sáng tạo ra thế giới mới giống với thế giới trước kia của mình..."
 
 "Sáng tạo, thế giới mới?!"
 
@@ -931,7 +931,7 @@ Lại gì nữa vậy?
 
 Tomoe ngẩng lên nhìn trời, rồi đáp lời:
 
-"Cũng đúng. Tuy nhiên những chòm sao lơ lửng trên bâu trời kia với lão rất xa lạ. Nếu đây là bầu trời đêm thiếu chủ biết, vậy mảnh đất này, cả Á Không này, có khả năng rất cao là do thiếu chủ sáng tạo nên. Có lẽ hình dạng của Á Không sẽ thay đổi tùy vào giao ước giữa cậu và thuộc hạ. Vì sau khi đấng sáng tạo thu được tùy tùng mới, quy luật của thế giới cũng được bổ sung."
+"Cũng đúng. Tuy nhiên những chòm sao lơ lửng trên bâu trời kia với lão rất xa lạ. Nếu đây là bầu trời đêm thiếu chủ biết, vậy mảnh đất này, cả Asora này, có khả năng rất cao là do thiếu chủ sáng tạo nên. Có lẽ hình dạng của Asora sẽ thay đổi tùy vào giao ước giữa cậu và thuộc hạ. Vì sau khi đấng sáng tạo thu được tùy tùng mới, quy luật của thế giới cũng được bổ sung."
 
 Bầu trời đêm...
 
@@ -973,7 +973,7 @@ Nhân tiện, tôi có nên trải qua cuộc sống học sinh luôn không nh�
 #### **◇◆ Tomoe ◇◆**
 <br /><br /><br /><br /><br />
 
-Sâu bên trong khu rừng bên rìa Á Không.
+Sâu bên trong khu rừng bên rìa Asora.
 
 Cảm ứng được khí tức của thiếu chủ sau khi cậu rời khỏi bữa tiệc, lão cùng Mio đã lập tức đến đó tìm, thế nhưng...
 
@@ -1005,7 +1005,7 @@ Và rồi thiếu chủ cầm cung đứng dậy.
 
 Một nghi thức kì diệu diễn ra trước mắt lão và Mio.
 
-Bình thường lão nhìn thiếu chủ không chán, nhưng lần này, giây phút này đây không chỉ có vậy. Vào đúng khoảnh khắc ý thức của cậu tan rã rồi quay trở về với chủ nhân, vấn đề Á Không khuếch trương mà lão vẫn đang điều tra đột nhiên xảy ra thêm một lần nữa. Tiếp đó, thiếu chủ mở mắt ra, đứng lên, giương cung, và bắn. Giây phút ấy mọi chuyện dần trùng khớp với nhau, ít nhất, lão chắc chắn đây chính là một trong những nguyên nhân trực tiếp khiến Á Không mở rộng.
+Bình thường lão nhìn thiếu chủ không chán, nhưng lần này, giây phút này đây không chỉ có vậy. Vào đúng khoảnh khắc ý thức của cậu tan rã rồi quay trở về với chủ nhân, vấn đề Asora khuếch trương mà lão vẫn đang điều tra đột nhiên xảy ra thêm một lần nữa. Tiếp đó, thiếu chủ mở mắt ra, đứng lên, giương cung, và bắn. Giây phút ấy mọi chuyện dần trùng khớp với nhau, ít nhất, lão chắc chắn đây chính là một trong những nguyên nhân trực tiếp khiến Asora mở rộng.
 
 Sự tồn tại của thiếu chủ trở nên rõ ràng khi cậu ấy đứng đó, mũi tên cậu bắn ra cắm phập vào đích ngắm ở xa. Chuỗi động tác ấy đẹp đến mức làm người khác mê đắm. Mũi tên bắn khỏi tay cậu, uyển chuyển lao đến đích và cuốn theo tầm mắt người nhìn.
 
@@ -1031,11 +1031,11 @@ Thiếu chủ đứng lên, bắn tên. Ý thức của cậu một lần nữa 
 
 Ma lực lại tiếp tục tăng lên.
 
-... Có thể nói thiếu chủ đã lặp đi lặp lại quá trình chết đi rồi hồi sinh trong một khoảng thời gian ngắn... Á Không cứ mở rộng ra sau mỗi lần mũi tên từ tay cậu phóng đi.
+... Có thể nói thiếu chủ đã lặp đi lặp lại quá trình chết đi rồi hồi sinh trong một khoảng thời gian ngắn... Asora cứ mở rộng ra sau mỗi lần mũi tên từ tay cậu phóng đi.
 
-Nghĩa là diện tích của Á Không sẽ thay đổi tùy vào giá trị cực đại của ma lực ở thiếu chủ à?
+Nghĩa là diện tích của Asora sẽ thay đổi tùy vào giá trị cực đại của ma lực ở thiếu chủ à?
 
-Vậy Á Không lão tạo nên và thế giới Á Không này là hai thứ khác nhau...? Lẽ nào, nhờ vào khế ước mà thiếu chủ đã vô thức kiến tạo nên thế giới này?! Quả thật, sau khi kết giao ước với thiếu chủ và đặt chân tới nơi này lần đầu tiên, lão đã nghi ngờ chẳng biết đây có phải không gian do mình tạo nên không... Xem ra cảm giác lúc ấy không sai chút nào.
+Vậy Asora lão tạo nên và thế giới Asora này là hai thứ khác nhau...? Lẽ nào, nhờ vào khế ước mà thiếu chủ đã vô thức kiến tạo nên thế giới này?! Quả thật, sau khi kết giao ước với thiếu chủ và đặt chân tới nơi này lần đầu tiên, lão đã nghi ngờ chẳng biết đây có phải không gian do mình tạo nên không... Xem ra cảm giác lúc ấy không sai chút nào.
 
 Tuy nhiên, sáng tạo ra thế giới là kĩ năng không ai có được.
 
@@ -1055,7 +1055,7 @@ Dù có đến từ thế giới nào đi nữa thì bản chất của thiếu 
 
 ... Khoan đã, nếu những gì lão suy luận về thế giới này là thật, nghĩa là lão đã giải quyết thêm một vấn đề mà thiếu chủ nhờ điều tra.
 
-Ừm, chính là việc khí hậu ở Á Không biến đổi không theo một quy tắc nào. Nếu điều lão đoán là đúng, thì có một cách để giải quyết chuyện này. Tính sau vậy.
+Ừm, chính là việc khí hậu ở Asora biến đổi không theo một quy tắc nào. Nếu điều lão đoán là đúng, thì có một cách để giải quyết chuyện này. Tính sau vậy.
 
 Thiếu chủ quả là vô cùng thú vị. Nếu cứ tiếp tục phát tán và thu lại ý thức như vậy, cậu có thể đạt tới ma lực của một đấng sáng tạo. Thật phi thường làm sao.
 
@@ -1075,13 +1075,13 @@ Theo lẽ thường, nếu thiếu chủ muốn giết, lão cũng sẽ trợ gi
 
 Lão nghĩ đến những từ cấm ấy, rồi bước về phía cậu để bắt chuyện. Cậu đang ngẩng đầu ngắm nhìn bầu trời và đắm chìm vào suy tưởng nào đó.
 
-Lão sẽ đảm đương tất cả, chức trách thư kí thương hội, người điều tra Á Không, cả cuốn từ điển tiện dụng của thế giới này. Biết sao được, nếu là vì vị thiếu chủ tuyệt vời, luôn khiến người ta bất ngờ và không lường được giới hạn này, lão sẽ không từ chối bất kì điều gì.
+Lão sẽ đảm đương tất cả, chức trách thư kí thương hội, người điều tra Asora, cả cuốn từ điển tiện dụng của thế giới này. Biết sao được, nếu là vì vị thiếu chủ tuyệt vời, luôn khiến người ta bất ngờ và không lường được giới hạn này, lão sẽ không từ chối bất kì điều gì.
 
 <br /><br /><br /><br /><br />
 #### **◇◆ Nữ mạo hiểm giả ◇◆**
 <br /><br /><br /><br /><br />
 
-Gần đây, việc kinh doanh ở Ziege rất tốt.
+Gần đây, việc kinh doanh ở Tsige rất tốt.
 
 Lí do vô cùng đơn giản.
 
@@ -1091,13 +1091,13 @@ Hình như nhóm cô ấy có ba mạo hiểm giả đăng kí, nhưng hoạt đ
 
 Cấp của cô ấy bỏ xa Sofia, người được mệnh danh là "Kẻ diệt rồng" mạnh vô song đương thời.
 
-Dù cấp của Tomoe hơn Sofia tận 400, nhưng do thứ hạng thấp nên chưa có tên trong danh sách. Vì vậy, trong Hội mạo hiểm giả coi trọng hạng hơn cấp này, chỉ có một bộ phận yêu cầu cô ấy thực hiện nhiệm vụ. Tuy vậy, nhưng cô ấy vẫn nổi danh ở Ziege.
+Dù cấp của Tomoe hơn Sofia tận 400, nhưng do thứ hạng thấp nên chưa có tên trong danh sách. Vì vậy, trong Hội mạo hiểm giả coi trọng hạng hơn cấp này, chỉ có một bộ phận yêu cầu cô ấy thực hiện nhiệm vụ. Tuy vậy, nhưng cô ấy vẫn nổi danh ở Tsige.
 
 ... Tomoe là một người vô cùng có thực lực, cô ấy dễ dàng giải quyết các nhiệm vụ liên quan tới nơi hoang dã từ trước tới nay vẫn bị bỏ qua không ai nhận.
 
 Vì cấp của Tomoe cao đến không tưởng, nên ban đầu có nhiều người nghi ngờ không biết cô đang có những hành động bất chính không, nhưng giờ đây chẳng còn ai hoài nghi như vậy nữa.
 
-Tất cả mạo hiểm giả đăng kí ở Ziege đều muốn làm thân với cô. Song, hầu như chưa một ai có thể tiếp cận được.
+Tất cả mạo hiểm giả đăng kí ở Tsige đều muốn làm thân với cô. Song, hầu như chưa một ai có thể tiếp cận được.
 
 Một lũ nửa vời không dám săn bắt trực diện. Nghe bảo có những kẻ âm thầm tìm hiểu xem Tomoe nhận nhiệm vụ nào, rồi bám theo cô để nhặt tìm nguyên liệu còn sót lại. Thật thảm hại.
 
@@ -1127,7 +1127,7 @@ Trên thực tế, người đứng đầu chắc chắn là Mio. Cấp độ l�
 
 Trực giác cho tôi biết như vậy. Tôi đã được cứu bởi trực giác này rất nhiều lần. Tôi và thành viên trong tổ đội của mình đã đạt tới cấp 95, đủ khả năng đặt chân tiến công vào nơi hoang dã. Chúng tôi đã nỗ lực hết mình. Chúng tôi kiêu hãnh vì điều này.
 
-Nếu đã ở lại Ziege này với tư cách mạo hiểm giả và nhắm đến việc phát triển bản thân, làm sao có thể bỏ qua nơi hoang dã chứ? Nếu không muốn bước chân vào đó, vậy thà chọn hoạt động ở khu vực khác còn hơn.
+Nếu đã ở lại Tsige này với tư cách mạo hiểm giả và nhắm đến việc phát triển bản thân, làm sao có thể bỏ qua nơi hoang dã chứ? Nếu không muốn bước chân vào đó, vậy thà chọn hoạt động ở khu vực khác còn hơn.
 
 Song, nhiệm vụ nào trong nơi hoang dã cũng đều khó kinh hồn. Tôi đã từng nhận vài cái rồi, nhưng chưa bao giờ hoàn thành được chúng.
 
@@ -1137,7 +1137,7 @@ Thậm chí nhiệm vụ tìm kiếm hay thu thập cũng không thể hoàn th�
 
 Bọn tôi cũng nên tận dụng khả năng đó như vậy. Nếu Mio có cảm tình, chúng tôi cũng sẽ vớ được cơ hội béo bở như nhóm Toa. Sau khi mang nguyên liệu về, chúng tôi có thể đổi lấy tiền và nâng cấp trang bị tốt hơn.
 
-Nếu có thể cùng Tomoe đi qua nhiều vùng khác nhau ở nơi hoang dã thì tốt rồi. Khi trở về Ziege, chắc chắn cấp độ của tôi sẽ lên tới 200 - 300. Chuyện ngồi vào ghế Kỵ sĩ tối cao cũng không còn là giấc mộng xa vời nữa. Cả việc càn quét đại hội võ thuật ở các vùng cũng trở nên vô cùng dễ dàng. Có khi còn nhận được thẻ mời tham dự Cuộc thi võ uy vũ đỉnh cao nhất ở Đế quốc không biết chừng.
+Nếu có thể cùng Tomoe đi qua nhiều vùng khác nhau ở nơi hoang dã thì tốt rồi. Khi trở về Tsige, chắc chắn cấp độ của tôi sẽ lên tới 200 - 300. Chuyện ngồi vào ghế Kỵ sĩ tối cao cũng không còn là giấc mộng xa vời nữa. Cả việc càn quét đại hội võ thuật ở các vùng cũng trở nên vô cùng dễ dàng. Có khi còn nhận được thẻ mời tham dự Cuộc thi võ uy vũ đỉnh cao nhất ở Đế quốc không biết chừng.
 
 Tóm lại, việc ưu tiên hàng đầu của tôi bây giờ chính là kết thân với ba người đột nhiên xuất hiện ở nơi đây.
 
@@ -1153,7 +1153,7 @@ Công nhận nơi hoang dã có vô vàn hiểm nguy, nhưng chính vì vậy n�
 
 Để hai người họ chấp nhận, tôi bắt đầu hành động. Ngoài việc rất khó tìm thấy Mio, người nắm vai trò chủ chốt, thì cô ấy rất mạnh. Nếu khiến cô ấy phật ý, có khi chúng tôi sẽ bị giết mất.
 
-Vậy nên tôi sẽ tiếp cận Raidou, vì cậu ta rất hay đi loanh quanh thành phố Ziege này. Đầu tiên tôi sẽ dụ dỗ cậu ta, rồi từ đó tạo cơ hội nói chuyện thân tình với Mio.
+Vậy nên tôi sẽ tiếp cận Raidou, vì cậu ta rất hay đi loanh quanh thành phố Tsige này. Đầu tiên tôi sẽ dụ dỗ cậu ta, rồi từ đó tạo cơ hội nói chuyện thân tình với Mio.
 
 Tôi cố gắng trang điểm xinh đẹp nhất có thể, mặc những bộ đồ gái nhà lành hiền thục mà bình thường chẳng bao giờ đụng vào, và tìm cách bắt chuyện với cậu ta. Tuy nhiên, cậu lại không thể nói chuyện cùng tôi, vì quá bận làm việc... Cấp 1 mà lại bận thế à?
 
@@ -1201,7 +1201,7 @@ Raidou chắc chắn không thể vào nơi hoang dã một mình. Vì cả cấ
 
 ... Raidou nhạy bén đến lạ. Cách mà cậu ta né tránh tôi cũng cho thấy điều đó. Dù tôi có định sẵn nơi sẽ tiếp cận cậu ta, nhưng đến lúc gần giao nhau Raidou sẽ rẽ sang hướng khác. Có lúc tôi còn bị cậu ta cắt đuôi lúc nào chẳng hay. Tóm lại, một mình tôi không thể bắt kịp cậu ta. Không biết bằng cách nào cậu ta có thể phát hiện ra tôi, nhưng đúng là Raidou đang bày trò gì đó. Rõ ràng cậu mới chỉ ở cấp 1, nhưng lại có thể phát hiện mạo hiểm giả như tôi đang bám theo để cắt đuôi và biến mất cơ đấy. Kì quái thật.
 
-Vậy nên tôi sẽ nhờ hai người trong nhóm thay phiên cùng tôi thực hiện việc này. Ba người chúng tôi đã sinh ra và lớn lên ở Ziege. Nếu hai người họ ra tay, chắc chắn một người không nắm rõ địa hình nơi đây như Raidou sẽ không thể thoát được. Chuyện còn lại... là phải chuẩn bị mọi thứ sẵn sàng để tiến vào nơi hoang dã bất kì lúc nào.
+Vậy nên tôi sẽ nhờ hai người trong nhóm thay phiên cùng tôi thực hiện việc này. Ba người chúng tôi đã sinh ra và lớn lên ở Tsige. Nếu hai người họ ra tay, chắc chắn một người không nắm rõ địa hình nơi đây như Raidou sẽ không thể thoát được. Chuyện còn lại... là phải chuẩn bị mọi thứ sẵn sàng để tiến vào nơi hoang dã bất kì lúc nào.
 
 Cũng phải tính đến cách phỗng tay trên của nhóm Raidou nếu có gì xảy ra chứ.
 
@@ -1213,7 +1213,7 @@ Nếu nói rằng đây chính là cơ hội ngàn năm có một cũng không n
 #### **◇◆◇◆◇◆◇◆**
 <br /><br /><br /><br /><br />
 
-Sau hôm nghe kể chuyện không tưởng về Á Không, tôi được Mio dẫn đi thăm cánh đồng tại nơi đây. Sau khi dẫn Arche đi tìm kiếm ở nơi hoang dã, Mio đã phát hiện ra hoa Ambrosia và mang chúng về trồng ở Á Không. Mục đích hôm nay của tôi là đến xác nhận lại chúng.
+Sau hôm nghe kể chuyện không tưởng về Asora, tôi được Mio dẫn đi thăm cánh đồng tại nơi đây. Sau khi dẫn Arche đi tìm kiếm ở nơi hoang dã, Mio đã phát hiện ra hoa Ambrosia và mang chúng về trồng ở Asora. Mục đích hôm nay của tôi là đến xác nhận lại chúng.
 
 Không ngờ Ambrosia thật sự ra hoa ở nơi hoang dã. Mio bảo vì không muốn phá hoại quần thể sinh vật tự nhiên, nên họ chỉ hỏi xin vài rễ cây mang về. Nghĩa là có người quản lí chúng sao?
 
@@ -1249,7 +1249,7 @@ Tôi cảm thấy mọi thứ đang tiến triển tốt mà.
 
 "... Người bảo hộ?"
 
-Nếu có những người như vậy, ắt hẳn họ sẽ bắt đầu tìm kiếm thủ phạm sau khi phát hiện hoa bị hái đi. Có thể họ sẽ mở rộng phạm vi tìm kiếm đến Ziege, thành phố gần nơi Ambrosia sinh trưởng. Nếu làm đến mức đó, mảnh đất hoa đang mọc có khả năng sẽ bị người khác biết được.
+Nếu có những người như vậy, ắt hẳn họ sẽ bắt đầu tìm kiếm thủ phạm sau khi phát hiện hoa bị hái đi. Có thể họ sẽ mở rộng phạm vi tìm kiếm đến Tsige, thành phố gần nơi Ambrosia sinh trưởng. Nếu làm đến mức đó, mảnh đất hoa đang mọc có khả năng sẽ bị người khác biết được.
 
 Tôi cũng mới khám phá ra sự đáng giá của hoa Ambrosia thông qua vụ việc náo động của gia đình Rembrandt. Nếu bị phát hiện, chắc chắn sẽ xảy ra tranh chấp với đồng tộc Loài người. Tệ thật.
 
@@ -1265,7 +1265,7 @@ Sau khi tìm thấy giống thực vật tưởng chừng như tuyệt chủng, 
 
 Yêu tinh, Yêu tinh à? Lẽ nào là Pixie với hình hài bé nhỏ có thể bay lượn, hay nữ Yêu tinh Dryad chăm sóc cây cối? Hoặc nếu nói đến sự chăm chỉ và sức mạnh, có khả năng là Knocker, một loài yêu tinh nam trông giống những người thợ. Nếu là Dryad, vậy thì một nhân vật trong phạm vi tôi có thể cưa đổ đã xuất hiện.
 
-... Ở Ziege toàn những mỹ nhân đẹp quá thể nên tôi chẳng có cửa. Tôi ứng xử với phụ nữ kém lắm. Dù có bỏ qua những thương nhân, các mạo hiểm giả cũng đã quá khó lường. Đôi khi họ đẹp rạng ngời đến mức phải nhìn thêm lần nữa.
+... Ở Tsige toàn những mỹ nhân đẹp quá thể nên tôi chẳng có cửa. Tôi ứng xử với phụ nữ kém lắm. Dù có bỏ qua những thương nhân, các mạo hiểm giả cũng đã quá khó lường. Đôi khi họ đẹp rạng ngời đến mức phải nhìn thêm lần nữa.
 
 Có lần tôi bắt gặp một cô gái chỉ dùng một tấm vải ngắn quấn quanh ngực. Thế nhưng cô ấy lại dùng vải che kín nửa mặt như phụ nữ Ả Rập. Tôi chỉ muốn đề nghị bảo cô ấy rằng hãy đổi vị trí che chắn đi!
 
@@ -1275,13 +1275,13 @@ Hơn! Nữa!
 
 Bởi vì cấp độ quá cao của hai tùy tùng, dạo gần đây có người dùng mỹ nhân kế với tôi! Nếu những mạo hiểm giả như họ ngay từ lần đầu gặp mặt mà đã có ý đồ dụ dỗ tôi, vậy chắc chắn mục đích họ nhắm đến chính là Tomoe hay Mio. Còn nữa, không biết có phải do ra vào thương hội Rembrandt khiến tôi trông có vẻ lắm tiền không, phụ nữ cũng tiếp cận tôi vì lí do đó. Tóm lại, việc này vô cùng phiền phức.
 
-Nếu trở về Á Không, chưa tính đến Tomoe, thì Mio vẫn luôn làm vẻ mặt thèm khát (có lẽ tôi không phải tưởng tượng ra đâu), cô ấy còn vào phòng tôi nữa. Dường như Tomoe cảm thấy thú vị khi nhìn Mio như vậy, dạo này cô nàng ngoan ngoãn hẳn. Đủ quá rồi. Thật mệt quá. Đây là chuyện quan trọng nên... Mà thôi vậy, đã mệt tới thế này rồi.
+Nếu trở về Asora, chưa tính đến Tomoe, thì Mio vẫn luôn làm vẻ mặt thèm khát (có lẽ tôi không phải tưởng tượng ra đâu), cô ấy còn vào phòng tôi nữa. Dường như Tomoe cảm thấy thú vị khi nhìn Mio như vậy, dạo này cô nàng ngoan ngoãn hẳn. Đủ quá rồi. Thật mệt quá. Đây là chuyện quan trọng nên... Mà thôi vậy, đã mệt tới thế này rồi.
 
 Đã thế, tôi quyết định sẽ bỏ qua các bước cơ bản trong tình yêu như tỏ tình hay hẹn hò, đi tới bước trở thành người lớn luôn. Mọi người vẫn bảo nhau nếu nhanh chóng giải tỏa những kìm nén sẽ có thể điềm tĩnh như hiền triết mà.
 
 Ừ thì, tôi đã định bước vào một kĩ viện ở phố đèn đỏ trong tâm trạng bàng hoàng. Thật ra tôi gần như bị cưỡng ép đi đến đó. Khi ấy, tôi đã trộm nghĩ có lẽ cũng không tệ lắm. Giờ tôi quả thật không muốn nhớ lại điều đó nữa.
 
-Khi tôi cách kĩ viện chỉ một bước nữa, Tomoe và Mio không biết từ đâu xuất hiện, kéo tôi trở về Á Không. Họ làm ầm ĩ cả lên, bảo tôi đi ôm ấp ai vậy chứ, nếu muốn, cứ tận hưởng cùng hai người họ đây này. Khi hai người bắt đầu cởi quần áo, tôi tìm cách lách ra khỏi phòng, nhưng làn khói hồng đào trông có vẻ không tốt lành gì và tơ nhện vẫn cố chấp đuổi theo tôi.
+Khi tôi cách kĩ viện chỉ một bước nữa, Tomoe và Mio không biết từ đâu xuất hiện, kéo tôi trở về Asora. Họ làm ầm ĩ cả lên, bảo tôi đi ôm ấp ai vậy chứ, nếu muốn, cứ tận hưởng cùng hai người họ đây này. Khi hai người bắt đầu cởi quần áo, tôi tìm cách lách ra khỏi phòng, nhưng làn khói hồng đào trông có vẻ không tốt lành gì và tơ nhện vẫn cố chấp đuổi theo tôi.
 
 Hai người họ như người thân của tôi vậy, nếu tôi ôm ấp hay vướng vào quan hệ đó với họ, tôi có cảm giác mình phạm phải tình cảm loạn luân cấm kị. Tomoe và Mio quá đỗi thân thuộc.
 
@@ -1323,7 +1323,7 @@ Yêu tinh tộc à? Không biết thực tế sẽ như thế nào nhỉ?
 
 ... Tôi muốn gặp một chị gái tinh tế chu đáo như các cô hầu gái quá đi mất.
 
-Tùy tùng của tôi toàn là những người phóng túng tự do, nếu có một chị gái như thế, tôi sẽ tuyển cô nàng đến Á Không này ngay.
+Tùy tùng của tôi toàn là những người phóng túng tự do, nếu có một chị gái như thế, tôi sẽ tuyển cô nàng đến Asora này ngay.
 
 Mà khoan, có một chuyện còn quan trọng hơn.
 
@@ -1461,17 +1461,17 @@ Cô nắm rõ tình hình nãy giờ nhưng vẫn tỏ ra bàng quan à, như v�
 
 (Từ lúc mấy tên Loài người bám đuôi cậu và Mio. Lão đã âm thầm dõi theo bảo vệ.)
 
-(... Vậy là từ Ziege cơ à?!)
+(... Vậy là từ Tsige cơ à?!)
 
-(Nhưng trông cậu có vẻ vui quá nhỉ. Trong khi bọn lão chỉ muốn tìm kiếm một ít không khí phương Đông ở Á Không thôi vậy mà cũng bị trách mắng đấy?)
+(Nhưng trông cậu có vẻ vui quá nhỉ. Trong khi bọn lão chỉ muốn tìm kiếm một ít không khí phương Đông ở Asora thôi vậy mà cũng bị trách mắng đấy?)
 
 (Họ tự ý bám đuôi tôi cơ mà?! Tomoe, xin cô đấy! Muốn tạo ra bao nhiêu đồng lúa hay đao kiếm cũng được hết! Cứu tôi với!)
 
-(...! Lão sẽ nhớ những lời này của thiếu chủ! Thưởng phạt công minh là chân lý! Lão sẽ khiến ba tên Loài người lạc vào Á Không, cậu hãy tạo ra vụ nổ thật lớn nhé. Sau đó thiếu chủ hãy tránh khỏi Mio và nói chuyện với đám Quỷ rừng kia.)
+(...! Lão sẽ nhớ những lời này của thiếu chủ! Thưởng phạt công minh là chân lý! Lão sẽ khiến ba tên Loài người lạc vào Asora, cậu hãy tạo ra vụ nổ thật lớn nhé. Sau đó thiếu chủ hãy tránh khỏi Mio và nói chuyện với đám Quỷ rừng kia.)
 
 Quỷ rừng!
 
-Quỷ chứ không phải Yêu tinh à?! Thêm nữa, tôi lại vừa hứa một việc ngu ngốc! Á Không lại sắp tiến thêm bước nữa hướng đến phong cách Nhật Bản kì lạ rồi.
+Quỷ chứ không phải Yêu tinh à?! Thêm nữa, tôi lại vừa hứa một việc ngu ngốc! Asora lại sắp tiến thêm bước nữa hướng đến phong cách Nhật Bản kì lạ rồi.
 
 Tôi đã phán đoán tên chủng tộc cứng nhắc quá nhỉ. Nhưng nhìn từ ngoại hình, gọi họ là Yêu tinh cũng không có gì kì lạ. Hưmm, cuối cùng họ là Quỷ hay Yêu tinh?
 
@@ -1633,11 +1633,11 @@ Bầu không khí trên đường đến làng không mấy tốt đẹp, hơn n
 
 Họ còn cất công phái người đến trông coi hoa Ambrosia định kì, nên tôi nghĩ chuyện này là thật.
 
-Tôi đã xác định được, làng của hai cô ấy không quá xa Ziege. Cô nàng cầm cung, chính xác hơn là Qủy rừng Aqua với thân hình cao lớn hất cằm về phía trước để ra hiệu, nơi cô hướng về là một ngôi làng. Không thể nhìn lầm được, đấy chính là làng của Quỷ rừng.
+Tôi đã xác định được, làng của hai cô ấy không quá xa Tsige. Cô nàng cầm cung, chính xác hơn là Qủy rừng Aqua với thân hình cao lớn hất cằm về phía trước để ra hiệu, nơi cô hướng về là một ngôi làng. Không thể nhìn lầm được, đấy chính là làng của Quỷ rừng.
 
-Đi từ Ziege đến khu rừng nơi hoa Ambrosia mọc mất chưa đến nửa ngày, rồi từ khu rừng đó đến làng mất vài tiếng. Từ làng đến Ziege mất khoảng nửa ngày. Có cảm giác vị trí của Ziege, rừng Ambrosia, làng Quỷ rừng tạo thành ba góc tam giác.
+Đi từ Tsige đến khu rừng nơi hoa Ambrosia mọc mất chưa đến nửa ngày, rồi từ khu rừng đó đến làng mất vài tiếng. Từ làng đến Tsige mất khoảng nửa ngày. Có cảm giác vị trí của Tsige, rừng Ambrosia, làng Quỷ rừng tạo thành ba góc tam giác.
 
-Vậy nhưng phía Ziege lại không có thông tin gì về chuyện này.
+Vậy nhưng phía Tsige lại không có thông tin gì về chuyện này.
 
 Vì cảm thấy có chút kì lạ nên tôi đã dùng Giới để điều tra thử, và phát hiện nơi đây có tồn tại một lớp kết giới dù nó khá yếu.
 
@@ -1653,7 +1653,7 @@ Tuy nhiên, trong số đó vẫn tồn tại những mạo hiểm giả rất g
 
 Đối diện với những đám như vậy, có lẽ họ sẽ giải quyết bằng vũ lực.
 
-Việc người ở Ziege không hề biết gì về chuyện này đã cho thấy sự thật rằng đám Quỷ rừng này luôn dùng vũ lực thành công.
+Việc người ở Tsige không hề biết gì về chuyện này đã cho thấy sự thật rằng đám Quỷ rừng này luôn dùng vũ lực thành công.
 
 Ừm, xem chừng đây là một tập thể thiện chiến.
 
@@ -1815,7 +1815,7 @@ Lão đã nghĩ đây là cơ hội tìm hiểu về lịch sử thế giới c�
 
 Nếu chỉ tìm hiểu về gươm đao, cách trồng lúa, lịch sử hay kĩ thuật của chúng qua kịch thời đại, có rất nhiều phần không thể nắm được cốt lõi, cho nên...
 
-Khi đang mải suy nghĩ phương án ở Á Không, lão phát hiện thiếu chủ cùng Mio tiến vào nơi hoang dã và bị vài tên Loài người bám theo. Một trong nhưng khả năng của lão là kiểm tra được tình hình ở nơi xa thông qua hình ảnh. Thông qua năng lực này, lão đã âm thầm theo dõi tình huống chỗ thiếu chủ, và thấy mọi chuyện bắt đầu trở nên hỗn loạn.
+Khi đang mải suy nghĩ phương án ở Asora, lão phát hiện thiếu chủ cùng Mio tiến vào nơi hoang dã và bị vài tên Loài người bám theo. Một trong nhưng khả năng của lão là kiểm tra được tình hình ở nơi xa thông qua hình ảnh. Thông qua năng lực này, lão đã âm thầm theo dõi tình huống chỗ thiếu chủ, và thấy mọi chuyện bắt đầu trở nên hỗn loạn.
 
 Mắt của Mio trắng dã vô cùng nguy hiểm, ba tên Loài người không rõ là ai thì trốn chạy vòng quanh, cảnh tượng đó trông vô cùng hài hước. Vậy nhưng lão nhớ ra đặc trưng của nhóm hai người đang tấn công kia.
 
@@ -1839,7 +1839,7 @@ Biết đâu họ sẽ gợi ý được những lựa chọn hay ho.
 
 Việc phải làm chất chồng như núi vậy, nhưng nếu đây là việc thú vị, lão có thể xem xét. Lão đang tiếp tục hội họp với Eldwa (đây là cách gọi vắn tắt của Người lùn Elder lão đưa ra, nhưng thực tế dễ dùng là tốt rồi) để phân tích hình ảnh những người thợ rèn và việc chế tạo kiếm. Ngoài một nhóm chế tạo vũ khí cho thiếu chủ hay Mio, lão muốn có thêm người khác gia nhập.
 
-Lão cũng đã tìm kiếm được vài loài thực vật có vẻ là giống lúa nguyên thủy. Đó là lương thực chính ở đất nước cũng như thế giới thiếu chủ từng sống. Nếu nói Á Không này chính là thế giới của thiếu chủ cũng không quá lời. Nơi đây đáng lẽ không thể có lúa, nhưng nó lại tồn tại!
+Lão cũng đã tìm kiếm được vài loài thực vật có vẻ là giống lúa nguyên thủy. Đó là lương thực chính ở đất nước cũng như thế giới thiếu chủ từng sống. Nếu nói Asora này chính là thế giới của thiếu chủ cũng không quá lời. Nơi đây đáng lẽ không thể có lúa, nhưng nó lại tồn tại!
 
 Emma dẫn đầu, cùng những Orc Cao Nguyên bắt tay vào việc nâng cao chất lượng các loại mặt hàng. Bọn lão đang tiến hành thử nghiệm rút ngắn thời gian chờ thu hoạch lại bằng ma pháp.
 
@@ -1881,15 +1881,15 @@ Nó phản ánh qua cả những giấc mơ vàng kim lấp lánh ở thế gi�
 
 Được rồi, có lẽ đã đến lúc giải quyết rắc rối.
 
-Phải, đó chính là ba vị khách Loài người lão đã kéo đến Á Không. Lão cũng có thân phận là mạo hiểm giả ở Ziege, nên lúc này để phân thân giải quyết sẽ tốt hơn. Vì lão có thể bị nhớ mặt.
+Phải, đó chính là ba vị khách Loài người lão đã kéo đến Asora. Lão cũng có thân phận là mạo hiểm giả ở Tsige, nên lúc này để phân thân giải quyết sẽ tốt hơn. Vì lão có thể bị nhớ mặt.
 
 Việc tiếp đãi cứ để Orc, Thằn Lằn, Arche, Eldwa lo liệu như mọi khi sẽ ổn thôi. Mà thôi vậy, chỉ nên chọn người thông thạo ngôn ngữ chung và ôn hòa như Orc, hay Eldwa thôi sẽ tốt hơn.
 
 Họ mà hoảng sợ rồi làm ầm lên lúc đối mặt với Người thằn lằn hay Arche thì phiền phức lắm. Nhìn bộ dạng la hét trong rừng là biết sức chịu đựng của mấy tên này kém thế nào rồi.
 
-Nào nào, chẳng biết những vị khách lần này thấy gì trong mơ. Những gì tồn động trong trái tim họ sau khi lấy được của cải và trở về Ziege, không biết sẽ là sự kính phục đối với Á Không, hay sự phản kháng, hay lòng tham nữa.
+Nào nào, chẳng biết những vị khách lần này thấy gì trong mơ. Những gì tồn động trong trái tim họ sau khi lấy được của cải và trở về Tsige, không biết sẽ là sự kính phục đối với Asora, hay sự phản kháng, hay lòng tham nữa.
 
-... Bình thường chắc chắn thiếu chủ sẽ không cho những kẻ này vào Á Không. Cậu sẽ đối mặt với chuyện này như thế nào đây?
+... Bình thường chắc chắn thiếu chủ sẽ không cho những kẻ này vào Asora. Cậu sẽ đối mặt với chuyện này như thế nào đây?
 
 Hành động khác với mọi khi rồi sẽ dẫn đến kết quả đặc biệt. Nếu là thiếu chủ, có thể nói đây chính là dấu hiệu báo trước... Fufu, có lẽ lão cũng được cảm hóa mất rồi.
 
@@ -1901,7 +1901,7 @@ Thành phố Ảo mộng và lời đồn về nó.
 
 Hừm, hiện tại chỉ có một Thành phố Ảo mộng thôi à? Làm cả thành phố Sương mù cũng được nhỉ? Về sau nếu đặt tên cho thành phố có lẽ nó sẽ không cần thiết nữa, nhưng mà... Lão sẽ lại tập hợp các cư dân và thức xuyên đêm để cùng đưa ra ý kiến thôi. Ừm...
 
-Dù sao thì, sự tồn tại của thành phố này ở Ziege đang được lan truyền khá rộng rãi.
+Dù sao thì, sự tồn tại của thành phố này ở Tsige đang được lan truyền khá rộng rãi.
 
 Khi chìm vào giấc ngủ...
 
@@ -1911,15 +1911,15 @@ Khi nghĩ mình đã chết...
 
 Sẽ mơ hồ bị cuốn vào Thành phố Ảo mộng.
 
-Ở nơi đó, ma vật sử dụng ngôn ngữ chung để giao tiếp, họ cũng rất thân thiện với những khách ghé qua. Ai đến đó đều được tiếp đón và bình an vô sự trở về. Quà tặng mang về sẽ là những nguyên vật liệu hay trang bị vô cùng quý giá không thể thu thập trong các nhiệm vụ hay yêu cầu thông thường.
+Ở nơi đó, ma vật sử dụng ngôn ngữ chung để giao tiếp, họ cũng rất thân thiện với những khách ghé qua. Ai đến đó đều được tiếp đón và bình an vô sự trở về. Quà tặng mang về sẽ là những nguyên vật liệu hay trang bị vô cùng quý giAsora thể thu thập trong các nhiệm vụ hay yêu cầu thông thường.
 
-Đối với mạo hiểm giả, điều này giống như thắng được một canh bạc lớn vậy. Từng bước từng bước một, những nguyên liệu đó bắt đầu lưu thông ở Ziege, những nhiệm vụ liên quan đến chúng cũng dần được đưa ra.
+Đối với mạo hiểm giả, điều này giống như thắng được một canh bạc lớn vậy. Từng bước từng bước một, những nguyên liệu đó bắt đầu lưu thông ở Tsige, những nhiệm vụ liên quan đến chúng cũng dần được đưa ra.
 
-Nền móng để thiếu chủ có thể buôn bán sản phẩm của Á Không ở thương hội đang dần được thiết lập.
+Nền móng để thiếu chủ có thể buôn bán sản phẩm của Asora ở thương hội đang dần được thiết lập.
 
 Ngay sau khi bọn lão cùng thiếu chủ hỏi chuyện, căn cứ ở "Tuyệt Dã" đã bị phá hủy trong một sự cố bất ngờ.
 
-Hơn nữa, sau đó thiếu chủ lúc nào cũng cảnh giác cao độ, nghỉ ngơi cũng vội vàng qua loa, đi một mạch tới Ziege. Lão khi ấy đang tập trung hành hương tu luyện, nên chuyện này không tiến triển được.
+Hơn nữa, sau đó thiếu chủ lúc nào cũng cảnh giác cao độ, nghỉ ngơi cũng vội vàng qua loa, đi một mạch tới Tsige. Lão khi ấy đang tập trung hành hương tu luyện, nên chuyện này không tiến triển được.
 
 ... Lão chỉ tăng được 20 cấp thôi. Đúng là một cơn ác mộng muốn quên đi.
 
@@ -1927,7 +1927,7 @@ Tuy có trễ hơn dự kiến, nhưng lão đang hoàn thành tốt mệnh lệ
 
 Cứ thong dong rồi bị bỏ rơi lại phía sau không hợp với tinh cách của lão.
 
-Để có thể rời khỏi Ziege bất cứ lúc nào, lão cũng phải chăm chỉ tận hưởng công việc mới được.
+Để có thể rời khỏi Tsige bất cứ lúc nào, lão cũng phải chăm chỉ tận hưởng công việc mới được.
 
 <br /><br /><br /><br /><br />
 #### **◇◆◇◆◇◆◇◆**
@@ -2009,17 +2009,17 @@ Khi hắn bước qua lối đi giữa Aqua và Elis để tiến lên, tôi h�
 
 "Cảm ơn đã cho tôi biết. Tôi là Raidou, thương nhân mới vào nghề, thuộc thương hội Kuzunoha vừa thành lập không lâu. Đây là Mio, bạn đồng hành của tôi. Làm phiền người thân của trưởng lão phải cất công đến đây, thật ngại quá. Tôi là người buôn bán thuốc, hiện nay chuyên bán các loại thuốc dinh dưỡng có công hiệu xua tan mệt mỏi."
 
-Tôi sẽ đóng vai trò một thương nhân cho đến cùng. Khi chưa biết mục đích của đối phương là gì, so với chủ nhân của Á Không, hành động như một thương nhân ngẫu nhiên ghé thăm làng sẽ tốt hơn.
+Tôi sẽ đóng vai trò một thương nhân cho đến cùng. Khi chưa biết mục đích của đối phương là gì, so với chủ nhân của Asora, hành động như một thương nhân ngẫu nhiên ghé thăm làng sẽ tốt hơn.
 
 "Vậy à, một thương nhân sao? Tôi đã nghe cha mình nói về thương hội. Trước khi nghe cha nói, tôi đã tin chắc cậu là một mạo hiểm giả vì kĩ năng chiến đấu điêu luyện ấy. Ha ha ha."
 
 "Tôi cũng có mặt trong Hội mạo hiểm giả, nhưng chỉ có cái danh vậy thôi."
 
-"Nếu là Hội thương nhân ở thành phố gần đây của con người, nghĩa là không phải căn cứ đâu nhỉ. Cậu đến từ Ziege à?"
+"Nếu là Hội thương nhân ở thành phố gần đây của con người, nghĩa là không phải căn cứ đâu nhỉ. Cậu đến từ Tsige à?"
 
 Hắn nhìn tôi như đang đánh giá. Gì vậy, cái tên này.
 
-"Vâng, đúng vậy. Tôi từ Ziege đến đây."
+"Vâng, đúng vậy. Tôi từ Tsige đến đây."
 
 Chẳng biết mục đích của hắn ta là gì. Tôi không rõ nguồn cơn của cảm giác nhộn nhạo này, cũng không thoải mái trước nụ cười giả dối kia.
 
@@ -2491,11 +2491,11 @@ Nhưng thiếu chủ không hỏi gì cả, tôi nói nhiều như vậy có l�
 
 Chỉ cần nhìn thấy một góc sức mạnh của thiếu chủ thôi, sự thù địch ngu ngốc nào cũng sẽ phải tan biến như sương mù.
 
-(Cảm ơn cô, Mio. Xin lỗi nhưng có thể phiền cô lấy cớ mệt mỏi không dự yến tiệc, rồi trở về Á Không trong chốc lát để gọi Tomoe giúp tôi được không?)
+(Cảm ơn cô, Mio. Xin lỗi nhưng có thể phiền cô lấy cớ mệt mỏi không dự yến tiệc, rồi trở về Asora trong chốc lát để gọi Tomoe giúp tôi được không?)
 
 (Tôi không phiền đâu ạ, nhưng với Tomoe, chỉ cần dùng Niệm Thoại để gọi cô ấy là được mà?)
 
-(Thật ra tôi đã để ba mạo hiểm giả xâm phạm rừng lạc vào Á Không, nhưng Tomoe là người đang lo liệu ở đó. Vì muốn gọi Tomoe đến đây, nên tôi muốn nhờ cô thay thế đảm đương chuyện đó một lúc. Bây giờ tôi sẽ mở cửa Á Không.)
+(Thật ra tôi đã để ba mạo hiểm giả xâm phạm rừng lạc vào Asora, nhưng Tomoe là người đang lo liệu ở đó. Vì muốn gọi Tomoe đến đây, nên tôi muốn nhờ cô thay thế đảm đương chuyện đó một lúc. Bây giờ tôi sẽ mở cửa Asora.)
 
 (Tôi hiểu rồi ạ. Tôi sẽ đi ngay.)
 
@@ -2507,7 +2507,7 @@ Dù phải đổi chỗ với Tomoe cũng thật tiếc, nhưng khi trở về b
 
 Bởi cũng chẳng cần hao tổn tâm sức nhiều với những tên Loài người như vậy.
 
-Tôi đặt lại ảo ảnh của bản thân, để ai đến căn phòng này đều sẽ thấy tôi đang nằm ngủ, rồi trở về Á Không.
+Tôi đặt lại ảo ảnh của bản thân, để ai đến căn phòng này đều sẽ thấy tôi đang nằm ngủ, rồi trở về Asora.
 
 <br /><br /><br /><br /><br />
 #### **◇◆◇◆◇◆◇◆**
@@ -2591,7 +2591,7 @@ Trước kia, vì sợ những ma pháp dị thường, nên tôi đã tập h�
 
 Mọi người đều nghệt mặt ra khi nghe về nỗi lo lắng của tôi. Trông họ như muốn hỏi vì sao tôi lại sợ ma pháp ở trạng thái dị thường chứ.
 
-Tôi đã tắm mình trong nhiều loại ma pháp của cư dân Á Không như Tomoe, Mio cả Arche và Orc. Tuy nhiên, chẳng có gì xảy ra cả. Cả tinh thần lẫn thể trạng của tôi đều không có biến đổi gì khác thường.
+Tôi đã tắm mình trong nhiều loại ma pháp của cư dân Asora như Tomoe, Mio cả Arche và Orc. Tuy nhiên, chẳng có gì xảy ra cả. Cả tinh thần lẫn thể trạng của tôi đều không có biến đổi gì khác thường.
 
 Những gì họ thử lên tôi bao gồm các loại ma pháp thôi miên, hút hồn, tê liệt, độc cực mạnh.
 
@@ -2777,11 +2777,11 @@ Nhìn xuống đối phương đang yếu ớt run rẩy khiến tâm trạng t�
 
 Khi lão đến đón thiếu chủ, nơi đó đang lâm vào bầu không khí im lặng kì dị.
 
-Thiếu chủ vừa làm gì đó quá nổi trội à? Lão muốn nhanh chóng được ăn cơm với xúp miso, cùng món ăn kèm là những thanh kiếm được những người thợ nổi tiếng tại Á Không rèn nên.
+Thiếu chủ vừa làm gì đó quá nổi trội à? Lão muốn nhanh chóng được ăn cơm với xúp miso, cùng món ăn kèm là những thanh kiếm được những người thợ nổi tiếng tại Asora rèn nên.
 
 Đúng như nguyện vọng, thiếu chủ cưỡng chế lão ăn bữa sáng bằng gạo mỗi ngày, hoặc bánh mì cũng được.
 
-Thế nhưng nếu là mệnh lệnh lập tức phải có mặt thì đành chịu thôi. Vì đã vứt nhóm Loài người cho đám Orc giải quyết, nên giờ lão cũng rảnh rỗi không có việc gì để làm. Hơn nữa, lão cũng muốn đưa Quỷ rừng đến sống ở Á Không, nên việc đến đây cũng là cơ hội thích hợp.
+Thế nhưng nếu là mệnh lệnh lập tức phải có mặt thì đành chịu thôi. Vì đã vứt nhóm Loài người cho đám Orc giải quyết, nên giờ lão cũng rảnh rỗi không có việc gì để làm. Hơn nữa, lão cũng muốn đưa Quỷ rừng đến sống ở Asora, nên việc đến đây cũng là cơ hội thích hợp.
 
 Giữa không gian im ắng, lão nhìn về nơi đang thu hút sự chú ý của tất cả mọi người...
 
@@ -3137,7 +3137,7 @@ Cơ thể tôi nặng nề đến khó tin, cảm giác cực kì uể oải.
 
 Nghe bảo tên Lich ban đầu trông như một lớp khói đen thoát ra từ miệng tôi. Còn kẻ đánh bại tên Lich ấy chính là chàng trai đeo mặt nạ. Tôi không nắm rõ chi tiết trận đấu diễn ra như thế nào, nhưng hình như người ra đòn kết liễu là Shin, cô gái với mái tóc xanh.
 
-Raidou. Thưong nhân mới của Ziege à?
+Raidou. Thưong nhân mới của Tsige à?
 
 Chắc chắn là nói dối rồi!!
 
@@ -3185,15 +3185,15 @@ Dù là Raidou cũng vậy.
 #### **◇◆◇◆◇◆◇◆**
 <br /><br /><br /><br /><br />
 
-Đúng như dự đoán của tôi, trong cuộc họp với các trưởng lão Quỷ rừng, Tomoe đã đưa ra đề nghị mời cả tộc của họ đến Á Không.
+Đúng như dự đoán của tôi, trong cuộc họp với các trưởng lão Quỷ rừng, Tomoe đã đưa ra đề nghị mời cả tộc của họ đến Asora.
 
 Tuy nhiên, tôi thực sự không thể đồng tình với suy nghĩ ấy.
 
-Hiện nay, người duy nhất sử dụng được Thụ hình là gã sư phụ. Song, nếu thu nhận Quỷ rừng vào Á Không và để họ giao lưu với Tomoe hay phân thân tí hon của cô, tôi có linh cảm từng Quỷ rừng sẽ thức tỉnh sức mạnh đó, tương tự như Orc hay Người thằn lằn Mistio đang phát triển ở Á Không do ảnh hưởng từ Tomoe vậy. Nếu bảo chỉ vì tôi nhát gan thì đúng vậy đó. Chẳng có lí do gì khác cả.
+Hiện nay, người duy nhất sử dụng được Thụ hình là gã sư phụ. Song, nếu thu nhận Quỷ rừng vào Asora và để họ giao lưu với Tomoe hay phân thân tí hon của cô, tôi có linh cảm từng Quỷ rừng sẽ thức tỉnh sức mạnh đó, tương tự như Orc hay Người thằn lằn Mistio đang phát triển ở Asora do ảnh hưởng từ Tomoe vậy. Nếu bảo chỉ vì tôi nhát gan thì đúng vậy đó. Chẳng có lí do gì khác cả.
 
-Cũng giống như những Quỷ rừng trước đây, xem ra chẳng có ai phàn nàn về việc đến Á Không của chúng tôi (nhưng hình như họ nghĩ đây là thần vực của Tomoe), chuyện này sắp đi đến hồi kết. Vì chẳng có hại gì với cả hai bên nên đó là điều đương nhiên rồi. Dẫu họ gọi tôi là lãnh chúa hay đức vua gì đó, song thực tế tôi không làm được gì trong tình huống này, chỉ như vật trang trí mà thôi.
+Cũng giống như những Quỷ rừng trước đây, xem ra chẳng có ai phàn nàn về việc đến Asora của chúng tôi (nhưng hình như họ nghĩ đây là thần vực của Tomoe), chuyện này sắp đi đến hồi kết. Vì chẳng có hại gì với cả hai bên nên đó là điều đương nhiên rồi. Dẫu họ gọi tôi là lãnh chúa hay đức vua gì đó, song thực tế tôi không làm được gì trong tình huống này, chỉ như vật trang trí mà thôi.
 
-Tuy hiện nay tôi phải quyết định rất nhiều việc vì mọi người ở Á Không xem tôi như vua của họ, nhưng tôi sắp không thể làm vua được nữa rồi.
+Tuy hiện nay tôi phải quyết định rất nhiều việc vì mọi người ở Asora xem tôi như vua của họ, nhưng tôi sắp không thể làm vua được nữa rồi.
 
 Đối với Quỷ rừng, tôi chỉ là một tên đeo mặt nạ có vẻ đáng ngờ, còn Tomoe là một Thượng Long vô cùng đáng tin cậy mà họ từng chịu ơn trong quá khứ. Con rồng ấy bảo họ đến, nên hẳn là Quỷ rừng sẽ im lặng tới chỗ bọn tôi thôi.
 
@@ -3213,13 +3213,13 @@ Tôi không cách nào nghĩ được theo kiểu, mời toàn bộ Quỷ rừng
 
 Thế nên, lấy lí do ở làng Quỷ rừng có kết giới của Tomoe, tôi rẽ câu chuyện sang hướng không di cư toàn bộ ngôi làng này. Cũng chẳng cần tới nghệ thuật nói chuyện hấp dẫn gì cao siêu. Bởi vì người có quyền phát ngôn ở đây chính là chúng tôi.
 
-Tomoe rất muốn để Quỷ rừng trở thành cư dân của chúng tôi bởi sự thông minh nhạy bén và khả năng chiến đấu của họ, hơn nữa họ còn có dáng vẻ gần giống với Loài người. Trước sự phản đối của tôi về việc để họ di cư đến Á Không, Tomoe đã cố gắng thuyết phục. Dường như Tomoe không ngờ rằng tôi sẽ phản đối như vậy.
+Tomoe rất muốn để Quỷ rừng trở thành cư dân của chúng tôi bởi sự thông minh nhạy bén và khả năng chiến đấu của họ, hơn nữa họ còn có dáng vẻ gần giống với Loài người. Trước sự phản đối của tôi về việc để họ di cư đến Asora, Tomoe đã cố gắng thuyết phục. Dường như Tomoe không ngờ rằng tôi sẽ phản đối như vậy.
 
 Dù ở đây có kẻ mà bản thân Mio không thích, cô ấy vẫn đánh giá cao lượng kiến thức phong phú về thực vật của các Quỷ rừng, nên cũng tán thành việc di cư của họ. Nhưng vì ý kiến của tôi, cuối cùng cô ấy nói rằng "Sao cũng được".
 
 Đương nhiên, không phải tôi muốn từ chối toàn bộ Quỷ rừng.
 
-Tôi hiểu rõ lí do mình phản đối Quỷ rừng di cư đến Á Không hoàn toàn là vì nỗi sợ của bản thân, nên đâu đó trong tôi cũng muốn thỏa hiệp và đưa ra kết luận có thể chấp nhận.
+Tôi hiểu rõ lí do mình phản đối Quỷ rừng di cư đến Asora hoàn toàn là vì nỗi sợ của bản thân, nên đâu đó trong tôi cũng muốn thỏa hiệp và đưa ra kết luận có thể chấp nhận.
 
 Đầu tiên, tôi sẽ để Tomoe gia cố kết giới của Quỷ rừng. Đây là điều chắc chắn. Tôi cũng không muốn họ gặp nguy hiểm.
 
@@ -3229,7 +3229,7 @@ Tiếp theo, đúng như lời các Quỷ rừng, tôi cũng không muốn mất
 
 Giống như kiến nghị mà Tomoe đưa ra, tôi cũng nghĩ năng lực chiến đấu của Quỷ rừng khá cao, lại có dáng vẻ gần giống Loài người nên họ sẽ giúp ích rất nhiều cho việc kinh doanh của thương hội.
 
-Ý kiến của Mio cũng đúng, nếu để Quỷ rừng di cư đến Á Không, tôi nghĩ họ cũng sẽ mang đến nhiều lợi ích, vì hiện nay ở Á Không chưa có chuyên gia về rừng cây.
+Ý kiến của Mio cũng đúng, nếu để Quỷ rừng di cư đến Asora, tôi nghĩ họ cũng sẽ mang đến nhiều lợi ích, vì hiện nay ở Asora chưa có chuyên gia về rừng cây.
 
 Cân nhắc đến những lợi ích, tôi khó mà chọn không thu nhận họ được.
 
@@ -3237,19 +3237,19 @@ Vì vậy, tôi...
 
 ...
 
-Tôi đang ở phòng riêng của mình trong dinh thự tại Á Không. Hiện nay chỉ có bốn người ở đây. Tôi, Tomoe và Mio. Một người nữa thì vẫn đang nghỉ ngơi. Tôi vừa giải thích cho mọi người nghe lí do vì sao thái độ của tôi lại như vậy ở cuộc họp.
+Tôi đang ở phòng riêng của mình trong dinh thự tại Asora. Hiện nay chỉ có bốn người ở đây. Tôi, Tomoe và Mio. Một người nữa thì vẫn đang nghỉ ngơi. Tôi vừa giải thích cho mọi người nghe lí do vì sao thái độ của tôi lại như vậy ở cuộc họp.
 
 "... Thì ra là như vậy à."
 
 Tomoe vừa gật gù vừa nói.
 
-Cuối cùng, về chuyện của Quỷ rừng, chúng tôi quyết định sẽ giao thương với họ. Ngoài ra, thay vì đưa cả làng Quỷ rừng di cư tới đây, chúng tôi để họ lưu lại kiếm sống ở thương hội hay Á Không với hình thức làm việc xa nhà.
+Cuối cùng, về chuyện của Quỷ rừng, chúng tôi quyết định sẽ giao thương với họ. Ngoài ra, thay vì đưa cả làng Quỷ rừng di cư tới đây, chúng tôi để họ lưu lại kiếm sống ở thương hội hay Asora với hình thức làm việc xa nhà.
 
 Sau khi yên tâm với kết giới mới của ngôi làng, công việc của họ cũng nhiều lên. Cụ thể, họ phải học tập để buôn bán ở cửa hàng Kuzunoha, đứng ra đàm phán kinh doanh, và còn... thu thập thông tin nữa.
 
 Trong cuộc họp, tôi đã không bình tĩnh nên cố tạo ra khoảng cách với họ. Vậy nên, tôi cũng cảm thấy phiền muộn trước sự cố chấp của Tomoe.
 
-Ngạc nhiên thay, Tomoe xem họ như người của phái Iga và người của phái Koga. Đó là lí do lớn nhất cô muốn để họ sống ở Á Không... Bởi vì cô đưa ra những lí lẽ hợp lý đến lạ kì, chẳng hạn như lợi ích họ mang lại cho Á Không, hay sự ổn định trong nền tảng sinh hoạt của họ, khiến tôi cũng trở nên nghiêm túc với vấn đề này và cố hết sức tìm ra phương án thích hợp. Tôi đúng là làm chuyện vô ích.
+Ngạc nhiên thay, Tomoe xem họ như người của phái Iga và người của phái Koga. Đó là lí do lớn nhất cô muốn để họ sống ở Asora... Bởi vì cô đưa ra những lí lẽ hợp lý đến lạ kì, chẳng hạn như lợi ích họ mang lại cho Asora, hay sự ổn định trong nền tảng sinh hoạt của họ, khiến tôi cũng trở nên nghiêm túc với vấn đề này và cố hết sức tìm ra phương án thích hợp. Tôi đúng là làm chuyện vô ích.
 
 Dẫu đang trong cuộc họp, song nếu muốn, tôi có thể trao đổi và xác định suy nghĩ của cô ấy bằng Niệm Thoại bao nhiêu lần cũng được cơ mà.
 
@@ -3257,7 +3257,7 @@ Tôi thật sự không ngờ bản thân lại mất bình tĩnh như vậy.
 
 Cuộc trò chuyện đã kết thúc êm đẹp trong bầu không khí hài hòa.
 
-Sau đó, chúng tôi di chuyển về Á Không, tiến hành hướng dẫn cho Quỷ rừng đến đây quan sát học hỏi, rồi sẽ chiêu mộ những ai muốn chuyển tới để kiếm sống...
+Sau đó, chúng tôi di chuyển về Asora, tiến hành hướng dẫn cho Quỷ rừng đến đây quan sát học hỏi, rồi sẽ chiêu mộ những ai muốn chuyển tới để kiếm sống...
 
 Ngoài ra, việc này có giới hạn số lượng người, và phải thông qua buổi phỏng vấn với chúng tôi. Nếu để tất cả những người mong muốn chuyển về đây, kết quả có thể cả làng sẽ di cư đến đây, nên việc giới hạn này sẽ phòng ngừa tình trạng lời nói của tôi bị mất tác dụng.
 
@@ -3267,11 +3267,11 @@ Có vẻ như Tomoe cũng nhắm đến việc đó, nhưng sau khi hiểu đư�
 
 Chỉ bằng câu nói này, mọi chuyện đã được giải quyết. Thật tốt khi có thể gợi lên hứng thú của Tomoe, khiến cô ấy tràn đầy quyết tâm tuyển người như vậy.
 
-Lúc này, Quỷ rừng đang vừa tham quan học hỏi về Á Không, vừa nghe giải thích về các cư dân khác cũng như những khu vực ở đây.
+Lúc này, Quỷ rừng đang vừa tham quan học hỏi về Asora, vừa nghe giải thích về các cư dân khác cũng như những khu vực ở đây.
 
 Tomoe tí hon hoạt động rất tích cực. Emma cũng hỗ trợ tận tình. Quỷ rừng đã học được một chút ngôn ngữ chung, nên cuộc trò chuyện có vẻ suôn sẻ.
 
-... Khoan, nếu như vậy, ngôn ngữ chung sẽ chính thức trở thành ngôn ngữ phổ biến ở Á Không này. Không ổn rồi, tôi phải làm gì đó thôi. Liệu có cách nào không? Chắc hẳn tôi không thể đàm phán với bà Nữ thần để nhận lời chúc phúc nói được ngôn ngữ chung đâu nhỉ?
+... Khoan, nếu như vậy, ngôn ngữ chung sẽ chính thức trở thành ngôn ngữ phổ biến ở Asora này. Không ổn rồi, tôi phải làm gì đó thôi. Liệu có cách nào không? Chắc hẳn tôi không thể đàm phán với bà Nữ thần để nhận lời chúc phúc nói được ngôn ngữ chung đâu nhỉ?
 
 Nếu sau này đến thành phố học viện như dự định, tôi cũng phải giao tiếp thông qua việc viết ra như hiện tại. Vậy tôi sẽ cần dẫn theo tùy tùng nào đó như thường lệ, lại đau đầu rồi đây.
 
@@ -3301,7 +3301,7 @@ Mặc dù tôi thầm nghĩ làm sao có thể chế ngự gã ấy chỉ với 
 
 Aaa, quả thật không rõ là do đã giải quyết mọi chuyện hay là do đã nói ra tất cả mà tôi cảm thấy nhẹ nhõm hơn rất nhiều.
 
-Tiếp theo... Trước tiên cứ trở về Ziege đã.
+Tiếp theo... Trước tiên cứ trở về Tsige đã.
 
 Ừm, hình như tôi quên mất điều gì đó?
 
@@ -3323,11 +3323,11 @@ Chuyện trước đó nữa sao.
 
 ... Tôi nhớ lại những gì đã xảy ra trong khoảng thời gian tôi vừa khuyên giải Mio vừa né tránh sự tấn công của Quỷ rừng.
 
-A, quên mất tiêu!! Tôi đã để ba tên Loài người lạc vào Á Không.
+A, quên mất tiêu!! Tôi đã để ba tên Loài người lạc vào Asora.
 
 Không ổn rồi, tỉnh táo lên tôi ơi.
 
-Nghĩ lại thì lần này, từ sau khi rời khỏi Ziege tôi cứ bất cẩn sao sao ấy.
+Nghĩ lại thì lần này, từ sau khi rời khỏi Tsige tôi cứ bất cẩn sao sao ấy.
 
 Khi nghe câu chuyện về những mạo hiểm giả đến làng Quỷ rừng cũng vậy, khi bắt tay với gã sư phụ biến thái cũng thế, và cả sự tồn tại của Lich nữa, tôi đã thầy ngờ ngợ, nhưng vẫn bất cẩn không kiểm tra kĩ.
 
@@ -3353,7 +3353,7 @@ Nhân vật thứ tư đang nghỉ ngơi. Tomoe hất cằm về phía quý ngà
 
 Bộ xương ấy dùng ma thuật để khôi phục lại bộ áo cà sa (nói vậy nhưng bộ áo có màu đen, trên áo thêu những hoa văn vàng kim, trông đáng sợ đến mức không thể nghĩ nó là áo cà sa được). Nhờ vậy mà hắn không phơi bày da trần (xương) ra nữa. Trong hốc mắt hắn đọng lại tia sáng đỏ mang theo một chút sinh khí, tôi biết hắn đã lấy lại ý thức rồi.
 
-Sau khi để Tomoe (làm ra vẻ) đã kết liễu hắn, chúng tôi đưa hắn đến phòng riêng của tôi ở Á Không trước một bước. Đương nhiên, hắn đã bị giới hạn chỉ hoạt động được trong căn phòng này.
+Sau khi để Tomoe (làm ra vẻ) đã kết liễu hắn, chúng tôi đưa hắn đến phòng riêng của tôi ở Asora trước một bước. Đương nhiên, hắn đã bị giới hạn chỉ hoạt động được trong căn phòng này.
 
 Dường như hắn đã tỉnh lại từ lâu, nhưng không có ý định tham gia vào cuộc nói chuyện của chúng tôi, chỉ trầm lặng ở yên đó. Tuy có phần đáng sợ, nhưng dựa theo thuộc tính của hắn, chắc chắn Lich không phải mối nguy hại quá lớn với tôi. Tạm thời để mặc hắn như thế cũng chẳng sao cả.
 
@@ -3377,7 +3377,7 @@ Nếu để họ đụng phải nhóm Quỷ rừng trong lúc đi tham quan thì
 
 "Này, lỡ họ đụng mặt Quỷ rừng thì sao...?!"
 
-"Thiếu chủ yên tâm. Để tránh chuyện đó xảy ra, lão đã chia khu vực rồi. Ba tên Loài người đang ở gần xưởng của Eldwa, ngày mai lão sẽ gửi họ về. Lão sẽ vứt họ ở lối vào khe thung lũng dẫn về làng Ziege nằm trong rừng của nơi hoang dã."
+"Thiếu chủ yên tâm. Để tránh chuyện đó xảy ra, lão đã chia khu vực rồi. Ba tên Loài người đang ở gần xưởng của Eldwa, ngày mai lão sẽ gửi họ về. Lão sẽ vứt họ ở lối vào khe thung lũng dẫn về làng Tsige nằm trong rừng của nơi hoang dã."
 
 Tomoe còn nói thêm rằng, bởi họ là mạo hiểm giả, nên chỉ cần đưa vũ khí tốt một chút là họ đã thỏa mãn rồi. Xưởng rèn của Người lùn nằm biệt lập với các chủng tộc khác, nên xung quanh đó chẳng có ai cả. Nếu vậy, sẽ chẳng có chuyện họ bất ngờ gặp phải Quỷ rừng.
 
@@ -3385,7 +3385,7 @@ Thực ra, tôi thấy chính vì đám người ngu ngốc ấy mà lần này 
 
 Hừm.....
 
-Tuy chưa có câu trả lời thuyết phục, nhưng thôi kệ vậy. Nếu đã nhận được vũ khí như Tomoe nói, họ cũng thừa sức sinh tồn ở khu vực cửa vào nơi hoang dã. Tôi chúc cho họ từ nay sẽ tiến bước trên con đường ngay thẳng. Nhưng nếu họ còn tiếp tục gây rối thì chỉ có một con đường chết thôi. Khe thung lũng để trở về Ziege là một con đường hẹp và trắc trở, đúng như tên gọi của nó. Đường dốc gập ghềnh, lại có nhiều ma vật chực chờ tấn công. Nếu dốc hết sức trên đường về thì họ sẽ nâng cao được năng lực của mình.
+Tuy chưa có câu trả lời thuyết phục, nhưng thôi kệ vậy. Nếu đã nhận được vũ khí như Tomoe nói, họ cũng thừa sức sinh tồn ở khu vực cửa vào nơi hoang dã. Tôi chúc cho họ từ nay sẽ tiến bước trên con đường ngay thẳng. Nhưng nếu họ còn tiếp tục gây rối thì chỉ có một con đường chết thôi. Khe thung lũng để trở về Tsige là một con đường hẹp và trắc trở, đúng như tên gọi của nó. Đường dốc gập ghềnh, lại có nhiều ma vật chực chờ tấn công. Nếu dốc hết sức trên đường về thì họ sẽ nâng cao được năng lực của mình.
 
 Ừm, tất cả là nhờ vũ khí của Eldwa vô cùng xuất sắc đó. Lấy chúng làm quà lưu niệm là quá thích hợp rồi.
 
@@ -3409,7 +3409,7 @@ Tomoe à?
 
 Cả Mio nữa sao?
 
-Cũng không có nguy hiểm gì nên tôi mới muốn để hai người họ rời đi và tiếp tục lo liệu công việc ở Á Không, thế mà...
+Cũng không có nguy hiểm gì nên tôi mới muốn để hai người họ rời đi và tiếp tục lo liệu công việc ở Asora, thế mà...
 
 Mio à, nguy cơ tôi bị bộ xương này cướp mất đời trai tân hẳn là... không có đâu?
 
@@ -3429,9 +3429,9 @@ Trong lúc đó...
 
 "Ừm."
 
-Tổ ba người mạo hiểm giả được cuốn vào Á Không nhờ Makoto và Tomoe đang họp mặt.
+Tổ ba người mạo hiểm giả được cuốn vào Asora nhờ Makoto và Tomoe đang họp mặt.
 
-Họ được ma vật và Á nhân chào đón, còn được nghỉ trong căn phòng lộng lẫy hơn cả nơi họ thường trọ lại ở Ziege.
+Họ được ma vật và Á nhân chào đón, còn được nghỉ trong căn phòng lộng lẫy hơn cả nơi họ thường trọ lại ở Tsige.
 
 Tưởng đã mất mạng dưới tay Quỷ rừng nhưng cuối cùng lại đến được Thành phố Ảo mộng, họ cảm thấy đây như một cuộc gặp gỡ kì diệu vậy.
 
@@ -3455,7 +3455,7 @@ Ngay cả những kẻ từng nhắm đến Thành phố Ảo mộng như ba ng�
 
 Mục đích của những mạo hiểm giả như họ chỉ có một.
 
-Kết thân rồi nhận quà, và trở về Ziege giống như trong lời đồn ư? Không phải vậy. Họ muốn cướp bóc, à không, thu lấy đồ cống nạp.
+Kết thân rồi nhận quà, và trở về Tsige giống như trong lời đồn ư? Không phải vậy. Họ muốn cướp bóc, à không, thu lấy đồ cống nạp.
 
 Họ muốn vơ vét vũ khí và lương thực càng nhiều càng tốt rồi rời khỏi đây.
 
@@ -3491,9 +3491,9 @@ Kế hoạch nhắm đến phần thưởng đã nằm trong tầm tay.
 
 "Ừ, con heo đó... Nó còn bảo chắc chắn chúng ta phải ở lại để cùng dùng bữa nữa."
 
-Một Orc Cao Nguyên, cư dân của Á Không nhận trách nhiệm lo cho bọn họ. Orc béo núc ních dùng được ngôn ngữ chung, thậm chí có thể nói chuyện ngang hàng với Loài người. Chỉ trừ khi đánh úp bất ngờ, bằng không, dù cả ba người đồng loạt tấn công cũng chẳng phải là đối thủ của Orc đó.
+Một Orc Cao Nguyên, cư dân của Asora nhận trách nhiệm lo cho bọn họ. Orc béo núc ních dùng được ngôn ngữ chung, thậm chí có thể nói chuyện ngang hàng với Loài người. Chỉ trừ khi đánh úp bất ngờ, bằng không, dù cả ba người đồng loạt tấn công cũng chẳng phải là đối thủ của Orc đó.
 
-Hơn nữa, Orc Cao Nguyên còn được tăng cường khả năng ở Á Không này, nghĩ thôi cũng đủ hiểu đây là sinh vật có địa vị vô cùng cao.
+Hơn nữa, Orc Cao Nguyên còn được tăng cường khả năng ở Asora này, nghĩ thôi cũng đủ hiểu đây là sinh vật có địa vị vô cùng cao.
 
 Vậy nhưng, họ không nhận ra điều đó.
 
@@ -3503,7 +3503,7 @@ Họ hoàn toàn không đề phòng, đúng là vẫn còn non kém lắm...
 
 Vậy nhưng, trước mưu đồ xấc xược của họ, trước những ý định sẽ mang đến rất nhiều phiền phức ấy... cả Makoto và Tomoe đều đã nhìn nhận quá ngây thơ.
 
-Ba tên mạo hiểm giả Loài người yếu hơn cả Quỷ rừng, chắc chắn sẽ yếu hơn tất cả cư dân ở Á Không này.
+Ba tên mạo hiểm giả Loài người yếu hơn cả Quỷ rừng, chắc chắn sẽ yếu hơn tất cả cư dân ở Asora này.
 
 Makoto và mọi người đã nghĩ như thế.
 
@@ -4017,7 +4017,7 @@ Tomoe đã thuyết phục (tẩy não?) Lich thành công.
 
 Chúng tôi hiện đang tiến hành thử nghiệm xem có thể thành lập khế ước không. Dù bản thân Lich thiết tha mong muốn đi nữa, bản chất vấn đề vẫn chưa được giải quyết.
 
-Nơi thực hiện vẫn là phòng của tôi. Kể từ lúc chúng tôi tập trung đến nay cũng khá lâu rồi, giờ đã là tối muộn. Có lẽ mọi cư dân ở Á Không đều đang say giấc nồng. Đứng trên lập trường của người từng sống ở thời đại có nhiều thú vui giải trí, lúc này vẫn chưa đến giờ tôi muốn đi ngủ. Nhưng ở thế giới này, đặc biệt là các chủng tộc sống trong nơi hoang dã, họ có nguyên tắc ngủ sớm dậy sớm.
+Nơi thực hiện vẫn là phòng của tôi. Kể từ lúc chúng tôi tập trung đến nay cũng khá lâu rồi, giờ đã là tối muộn. Có lẽ mọi cư dân ở Asora đều đang say giấc nồng. Đứng trên lập trường của người từng sống ở thời đại có nhiều thú vui giải trí, lúc này vẫn chưa đến giờ tôi muốn đi ngủ. Nhưng ở thế giới này, đặc biệt là các chủng tộc sống trong nơi hoang dã, họ có nguyên tắc ngủ sớm dậy sớm.
 
 "Ừm, đúng là để nguyên như vậy thì rất khó..."
 
@@ -4199,7 +4199,7 @@ Ngay cả Mio cũng không ghét bỏ Lich, vì anh ta là nam giới. Tuy thế
 
 Tùy tùng thứ ba của tôi là Lich. Vì anh ta mang mười ba chiếc nhẫn có chứa ma lực của tôi, nên chúng đã hợp nhất với anh ta khi lập khế ước. Một ngày nào đó, chắc chắn Lich sẽ có thể dùng chúng để chiến đấu. Anh ta có cả kiến thức về ma pháp, nên nhất định sức chiến đấu sẽ không tồi.
 
-Tôi có nên che giấu thân phận của Lich rồi để anh ta đến Thành phố Học viện và hoạt động ở đó không? Hay là để anh ta ở lại trông coi Á Không này? Tuy bây giờ chưa có gì, nhưng biết đâu chừng những mạo hiểm giả bị cuốn vào đây sẽ gây ra náo loạn? Nếu có sẵn người giải quyết được chuyện đó thì tôi sẽ an tâm hơn rất nhiều.
+Tôi có nên che giấu thân phận của Lich rồi để anh ta đến Thành phố Học viện và hoạt động ở đó không? Hay là để anh ta ở lại trông coi Asora này? Tuy bây giờ chưa có gì, nhưng biết đâu chừng những mạo hiểm giả bị cuốn vào đây sẽ gây ra náo loạn? Nếu có sẵn người giải quyết được chuyện đó thì tôi sẽ an tâm hơn rất nhiều.
 
 "Thưa thiếu chủ! Để lão nói những chuyện mình biết được cho Mio đần độn và kẻ vốn là đầu lâu này nghe nhé?"
 
@@ -4247,7 +4247,7 @@ Khi xoay người lại, đập vào mắt tôi là hình ảnh Tomoe khuỵu g�
 
 Họ bị kẻ địch tấn công sao? Nhưng chỉ mình Tomoe trúng đòn?
 
-Hiện nay trong Á Không, ngoại trừ chúng tôi, chỉ có bộ ba Loài người ngốc nghếch và Quỷ rừng. Bọn họ làm sao đả thương được Tomoe chứ?
+Hiện nay trong Asora, ngoại trừ chúng tôi, chỉ có bộ ba Loài người ngốc nghếch và Quỷ rừng. Bọn họ làm sao đả thương được Tomoe chứ?
 
 "Tomoe! Chuyện gì đã xảy ra vậy?"
 
@@ -4255,7 +4255,7 @@ Hiện nay trong Á Không, ngoại trừ chúng tôi, chỉ có bộ ba Loài n
 
 Nói đến đó, Tomoe ngã sấp xuống. Máu trên trán cô vẫn chảy không ngừng.
 
-Đây là lần đầu tiên tôi thấy Tomoe bị tấn công. Chắc chắn ngoài tôi và Mio ra, chẳng ai ở Á Không này có thể đả thương cô ấy.
+Đây là lần đầu tiên tôi thấy Tomoe bị tấn công. Chắc chắn ngoài tôi và Mio ra, chẳng ai ở Asora này có thể đả thương cô ấy.
 
 Chết tiệt, rốt cuộc là có chuyện gì vậy?!
 
@@ -4267,7 +4267,7 @@ Dừng việc tìm kiếm và cảm ứng ma lực lại, tôi chuyển sang tri
 
 Tìm được... điểm dị thường rồi!
 
-Nơi ấy là khu vực cổng tôi đã mở ra khi quay về đây, liên kết với đường hẻm trong Ziege.
+Nơi ấy là khu vực cổng tôi đã mở ra khi quay về đây, liên kết với đường hẻm trong Tsige.
 
 Đó là một nơi khá trống trải ở mặt sau của dinh thự. Nếu chạy hết tốc lực, có lẽ từ đây đến đó sẽ mất khoảng vài phút.
 
@@ -4537,11 +4537,11 @@ Những tưởng tượng tồi tệ ngập tràn tâm trí tôi.
 
 Để xóa tan cơn ác mộng ấy, tôi cố gắng tập trung vào hiện tại.
 
-... Ba luồng. Tôi cảm nhận có ba luồng ma lực, không phải của những cư dân trong Á Không này. Đó là ba kẻ theo lời Tomoe sao? Quả thật, từ sức mạnh ma lực, tôi đoán ba kẻ ấy là Loài người.
+... Ba luồng. Tôi cảm nhận có ba luồng ma lực, không phải của những cư dân trong Asora này. Đó là ba kẻ theo lời Tomoe sao? Quả thật, từ sức mạnh ma lực, tôi đoán ba kẻ ấy là Loài người.
 
 Nhưng nếu đúng là do ba kẻ đó, vậy họ đã gây ra sự náo loạn này bằng cách nào?
 
-Bọn họ chỉ là những kẻ tầm thường ở Ziege, thật sự chẳng có gì đặc biệt cơ mà?
+Bọn họ chỉ là những kẻ tầm thường ở Tsige, thật sự chẳng có gì đặc biệt cơ mà?
 
 Tôi lần theo ba luồng ma lực.
 
@@ -4569,11 +4569,11 @@ Sau khi Lich chạy đến, tôi để lại câu nói ấy rồi cố tách m�
 # **Chapter 5**
 <br /><br /><br /><br /><br />
 
-"Đây là... Ziege? Mình đã về được, rồi sao?"
+"Đây là... Tsige? Mình đã về được, rồi sao?"
 
 Giọng của một phụ nữ vang lên.
 
-"A! Mình, được cứu rồi! Không khí này, mùi hương này, không thể lầm được! Đây chính là Ziege!"
+"A! Mình, được cứu rồi! Không khí này, mùi hương này, không thể lầm được! Đây chính là Tsige!"
 
 Tôi đã tìm ra cô ta.
 
@@ -4585,9 +4585,9 @@ Có vẻ cô ta cũng vừa nhận ra nơi này. Ngạc nhiên thật. Đúng l�
 
 Toàn thân cô ta chồng chất đầy vết thương nặng. Nếu đây là nơi hoang dã, trong tình trạng đó, chắc chắn cô ta sẽ không thể sống sót trở về.
 
-May mắn thay, nơi đây đã là Ziege rồi. Cô ta chỉ cần bước ra đường lớn và kêu cứu là được.
+May mắn thay, nơi đây đã là Tsige rồi. Cô ta chỉ cần bước ra đường lớn và kêu cứu là được.
 
-Dù đêm đã về khuya, ở nơi nhan nhản những con phố kĩ viện như Ziege này, hẳn cô ta sẽ gặp được ai đó.
+Dù đêm đã về khuya, ở nơi nhan nhản những con phố kĩ viện như Tsige này, hẳn cô ta sẽ gặp được ai đó.
 
 Phải, đấy là nếu như cô ta còn đủ sức bước ra đường lớn và kêu cứu.
 
@@ -4597,11 +4597,11 @@ Không lâu trước đó. Nếu tôi không hay biết gì về những việc 
 
 Tôi cũng không hiểu chuyện gì đã xảy ra với cơ thể mình. Nó diễn ra ngay khi tôi tiến lại gần, khiến tôi rối rắm chẳng biết làm sao để hỏi người phụ nữ đang đổ gục kia tất cả mọi chuyện.
 
-Nguyên nhân ma lực của bản thân bám trên người ả ta và vết thương, cả thảm kịch trong Á Không. Tôi rất muốn biết những điều đó. Thật sự muốn biết.
+Nguyên nhân ma lực của bản thân bám trên người ả ta và vết thương, cả thảm kịch trong Asora. Tôi rất muốn biết những điều đó. Thật sự muốn biết.
 
 Ngay lúc đó...
 
-"Bám đuôi, hoa Ambrosia, thù ghét Á nhân, giết #$%&.(, mục đích, vơ vét tất cả, Thành phố Sương mù, Raidou, Thành phố < >? của địch, nguy hiểm, băng đảng, vì sao hai người ấy, ()=~1~=, trốn thoát, thành công, phần thưởng, Ziege, nghiền nát, giết, trộm, cướp đoạt, quyền lợi, may mắn, &. thùng rác, Á nhân ngu ngốc, đêm khuya, núi châu báu, !"# người đuổi theo, đến thung lũng, vũ khí tối thượng, tay trái, RTGH nhẫn thất bại, ánh sáng bùng nổ..."
+"Bám đuôi, hoa Ambrosia, thù ghét Á nhân, giết #$%&.(, mục đích, vơ vét tất cả, Thành phố Sương mù, Raidou, Thành phố < >? của địch, nguy hiểm, băng đảng, vì sao hai người ấy, ()=~1~=, trốn thoát, thành công, phần thưởng, Tsige, nghiền nát, giết, trộm, cướp đoạt, quyền lợi, may mắn, &. thùng rác, Á nhân ngu ngốc, đêm khuya, núi châu báu, !"# người đuổi theo, đến thung lũng, vũ khí tối thượng, tay trái, RTGH nhẫn thất bại, ánh sáng bùng nổ..."
 
 Một lượng lớn thông tin đột nhiên ập đến.
 
@@ -4645,7 +4645,7 @@ Có lẽ đã qua khá lâu. Cô ta khẽ động đậy.
 
 Tôi tạm thời giữ khoảng cách và ẩn mình.
 
-... Ngay khi cô ta vui mừng vì nhận ra nơi này là Ziege, tôi cuốn cô ta và toàn bộ mọi thứ xung quanh vào sương mù. Vậy là con hẻm này đã bị cách li hoàn toàn với Ziege.
+... Ngay khi cô ta vui mừng vì nhận ra nơi này là Tsige, tôi cuốn cô ta và toàn bộ mọi thứ xung quanh vào sương mù. Vậy là con hẻm này đã bị cách li hoàn toàn với Tsige.
 
 Có lẽ đã nhận ra khung cảnh đột nhiên chìm trong làn sương mù dày đặc, cô ta hoảng hốt trước sự thay đổi ấy, dáo dác nhìn quanh như để kiểm tra tình hình.
 
@@ -4663,7 +4663,7 @@ Cô ta nâng giọng.
 
 Tôi không trả lời. Vì tôi chẳng cần trao đổi suy nghĩ gì với cô ta cả.
 
-"... Ngươi đuổi kịp ta ư? Nhưng mà muộn rồi. Nơi này là Ziege. Kẻ đã thông đồng với Á nhân kia, chẳng có ai là đồng minh của ngươi ở đây đâu!"
+"... Ngươi đuổi kịp ta ư? Nhưng mà muộn rồi. Nơi này là Tsige. Kẻ đã thông đồng với Á nhân kia, chẳng có ai là đồng minh của ngươi ở đây đâu!"
 
 "Thông đồng? ... À à, theo kí ức của cô thì là như vậy nhỉ. Tôi cũng chẳng muốn giải thích nhiều, cô nghĩ sao thì tùy."
 
@@ -4695,9 +4695,9 @@ Phải. Tôi thật lòng nghĩ như thế.
 
 Cô ta cao giọng nói. Giờ đây, những lời của cô ta chẳng đáng quan tâm nữa.
 
-"... Các người tình cờ tới Á Không cùng lúc với Quỷ rừng nên công tác canh phòng xung quanh lỏng lẻo, rồi ngẫu nhiên được ở gần kho phế liệu của Người lùn, nhân lúc họ vô ý nới lỏng cảnh giác trước nguy hiểm mà các người đã thành công trộm được vũ khí dù chỉ là hàng chất lượng kém, lại còn vô tình lấy được Draupnir bị nứt rồi chạy trốn đến khu vực gần cổng sương mù. Chiếc nhẫn bị cô ném lại tình cờ phát nổ đã loại bỏ những kẻ đuổi theo, nhưng nhờ mang theo khiên Clay Aeis để phòng hờ, mà cô trở thành người sống sót trong ba kẻ yếu nhất lúc đó, rồi nhờ ma lực của tôi tràn ra từ Draupnir khiến cổng sương mù vô tình mở ra, cô lại tình cờ bước qua đó nên mới có thể trở về thành phố..."
+"... Các người tình cờ tới Asora cùng lúc với Quỷ rừng nên công tác canh phòng xung quanh lỏng lẻo, rồi ngẫu nhiên được ở gần kho phế liệu của Người lùn, nhân lúc họ vô ý nới lỏng cảnh giác trước nguy hiểm mà các người đã thành công trộm được vũ khí dù chỉ là hàng chất lượng kém, lại còn vô tình lấy được Draupnir bị nứt rồi chạy trốn đến khu vực gần cổng sương mù. Chiếc nhẫn bị cô ném lại tình cờ phát nổ đã loại bỏ những kẻ đuổi theo, nhưng nhờ mang theo khiên Clay Aeis để phòng hờ, mà cô trở thành người sống sót trong ba kẻ yếu nhất lúc đó, rồi nhờ ma lực của tôi tràn ra từ Draupnir khiến cổng sương mù vô tình mở ra, cô lại tình cờ bước qua đó nên mới có thể trở về thành phố..."
 
-Nghe như một trò đùa dai vậy. Bao nhiêu kì tích xuất hiện cùng lúc như thế có vô lí quá không? Ý trời hả? Đời nào có chuyện đó?
+Nghe như một trò đùa dai vậy. Bao nhiêu kì tích xuất hiện cùng lúc như thế có vô lí quAsora? Ý trời hả? Đời nào có chuyện đó?
 
 Những kí ức mà tôi buộc phải chứng kiến của cô ta... có lẽ cũng sai lệch về mặt liên kết, nhiều khả năng trong đó còn trộn lẫn vài phần ước nguyện của cô ta nữa. Dù vậy, giờ đây tôi chỉ còn cách tin vào cảnh tượng kinh hoàng như cơn ác mộng kia.
 
@@ -4719,7 +4719,7 @@ Cô ta đã ném Draupnir vào anh ấy, nhưng nhắm lệch khiến Draupnir v
 
 Nếu như anh ấy không cảm thấy mình phải chịu trách nhiệm cho chuyện này và ngoan ngoãn lùi lại, có lẽ anh ấy đã được cứu rồi.
 
-Tuy vậy, tôi cũng không muốn quy trách nhiệm cho anh ta. Orc Cao Nguyên đó đã tìm cách sửa chữa sai lầm bằng mọi giá, cố bắt các mạo hiểm giả chạy trốn khỏi Á Không trở lại giúp tôi. Anh ta thật sự rất can đảm.
+Tuy vậy, tôi cũng không muốn quy trách nhiệm cho anh ta. Orc Cao Nguyên đó đã tìm cách sửa chữa sai lầm bằng mọi giá, cố bắt các mạo hiểm giả chạy trốn khỏi Asora trở lại giúp tôi. Anh ta thật sự rất can đảm.
 
 Tôi sẽ nói lại với Emma cũng như mọi Orc Cao Nguyên rằng mình đã sử dụng thanh kiếm ngắn họ tặng để trừng phạt kẻ thù của anh ta. Ít nhất, tôi mong sao linh hồn anh ta được siêu thoát.
 
@@ -4731,7 +4731,7 @@ Nói xong, tôi bước lên một bước, lẳng lặng thu hẹp khoảng cá
 
 Khi tôi tiến lại gần, cô ta tuôn ra những lời mắng nhiếc mà tôi chẳng buồn quan tâm, và chĩa thanh kiếm dài về phía tôi.
 
-Giọng nói của cô ta ngày một to hơn theo từng bước chân của tôi. Có lẽ cô ta định làm vậy để thu hút sự chú ý xung quanh. Nếu đây là Ziege, với vận may của cô ta, có thể ý định đó sẽ thành công. Song, nơi đây là khoảng lưng chừng của cánh cổng nối giữa Á Không và Ziege. Ngoài tôi ra, chẳng ai có thể nghe được tiếng gào đó.
+Giọng nói của cô ta ngày một to hơn theo từng bước chân của tôi. Có lẽ cô ta định làm vậy để thu hút sự chú ý xung quanh. Nếu đây là Tsige, với vận may của cô ta, có thể ý định đó sẽ thành công. Song, nơi đây là khoảng lưng chừng của cánh cổng nối giữa Asora và Tsige. Ngoài tôi ra, chẳng ai có thể nghe được tiếng gào đó.
 
 Vì đang bị thương nặng nên đương nhiên cô ta không thể chiến đấu trong tình trạng này. Ngay cả quay lưng bỏ chạy cô ta cũng không làm nổi. Hơn nữa, nếu là mạo hiểm giả, ắt hẳn cô ta cũng hiểu quay lưng lại với đối phương trong tình huống này có ý nghĩa như thế nào.
 
@@ -4805,11 +4805,11 @@ Shiki chính là Lich.
 
 Đã hai ngày trôi qua kể từ sự kiện kinh hoàng đó.
 
-Sau khi giết cô ta, tôi cố tỏ ra điềm tĩnh và trở về Á Không. Thật ra lúc ấy tâm trí tôi hết sức rối bời. Sau khi khóc một lát, vì không muốn để ai nhìn thấy khuôn mặt sưng lên của mình nên tôi đã đợi một lúc rồi mới đi gặp người khác.
+Sau khi giết cô ta, tôi cố tỏ ra điềm tĩnh và trở về Asora. Thật ra lúc ấy tâm trí tôi hết sức rối bời. Sau khi khóc một lát, vì không muốn để ai nhìn thấy khuôn mặt sưng lên của mình nên tôi đã đợi một lúc rồi mới đi gặp người khác.
 
-Sau đó, trước khi tập hợp mọi người lại như hiện giờ, tôi đã suy nghĩ rất nhiều về tương lai của Á Không, phải làm sao để không lặp lại thảm kịch kia nữa.
+Sau đó, trước khi tập hợp mọi người lại như hiện giờ, tôi đã suy nghĩ rất nhiều về tương lai của Asora, phải làm sao để không lặp lại thảm kịch kia nữa.
 
-Thi thể của người phụ nữ tôi đã giết không có ở Ziege hay Á Không. Có lẽ nó đã trôi dạt đâu đó vào lối đi ấy. Tôi không biết nữa, sao cũng được.
+Thi thể của người phụ nữ tôi đã giết không có ở Tsige hay Asora. Có lẽ nó đã trôi dạt đâu đó vào lối đi ấy. Tôi không biết nữa, sao cũng được.
 
 Lúc này, mọi người đang tập trưng ở dinh thự của tôi.
 
@@ -4851,7 +4851,7 @@ Còn lần này, lí do tôi tạ lỗi với Orc là bởi nếu không làm th
 
 "Dựng thành phố trong lòng thành phố sao?"
 
-Nói rõ hơn, chúng tôi sẽ tạo nên một thành phố giả và để Loài người ở đó. Vì không phải giao lưu trao đổi văn hóa nên chỉ cần chuẩn bị trước một lượng vật phẩm ít ỏi, đủ để chúng lưu thông ở Ziege hay căn cứ là được. Chúng tôi vốn chỉ cần hàng hóa ở Á Không được thế giới ngoài kia biết đến.
+Nói rõ hơn, chúng tôi sẽ tạo nên một thành phố giả và để Loài người ở đó. Vì không phải giao lưu trao đổi văn hóa nên chỉ cần chuẩn bị trước một lượng vật phẩm ít ỏi, đủ để chúng lưu thông ở Tsige hay căn cứ là được. Chúng tôi vốn chỉ cần hàng hóa ở Asora được thế giới ngoài kia biết đến.
 
 "Đúng vậy. Còn về đối tượng vào đó, dù là Người thằn lằn, hay Người lùn ở đây đi nữa, nhất định phải chọn người có thực lực cao. Tôi muốn Tomoe đưa mạo hiểm giả tới phân khu chuyên biệt trước, làm sao để bọn họ nghĩ rằng nơi đó là toàn bộ Thành phố Ảo mộng. Có rất nhiều khu vực chỉ mới chuẩn bị mặt bằng, chưa hề xây dựng gì cả, nên chỉ cần chia một phần ra sử dụng cũng đã đủ rộng rồi."
 
@@ -4891,7 +4891,7 @@ Là những người thợ tài giỏi, họ thừa hiểu những sản phẩm 
 
 Draupnir - thứ trở thành hung khí lần này - là chiếc nhẫn đã hấp thụ ma lực của tôi đến cực hạn và không sử dụng được nữa. Nó cũng bị đặt trong kho không khóa lại. Draupnir bị trộm cũng một phần do ý thức lỏng lẻo ấy.
 
-Tuy nhiên, có lẽ tình hình này cũng do Á Không vẫn luôn sinh hoạt khép kín theo từng bộ tộc. Bình thường, sẽ chẳng có người của tộc khác dám tự ý hoạt động ở xưởng của Người lùn. Chắc chắn Người lùn sẽ không cho phép chuyện đó xảy ra.
+Tuy nhiên, có lẽ tình hình này cũng do Asora vẫn luôn sinh hoạt khép kín theo từng bộ tộc. Bình thường, sẽ chẳng có người của tộc khác dám tự ý hoạt động ở xưởng của Người lùn. Chắc chắn Người lùn sẽ không cho phép chuyện đó xảy ra.
 
 ... Dù vấn đề nằm ở cách quản lí Draupnir thật đấy, nhưng nguyên nhân của việc này còn do tôi đã để mạo hiểm giả trú ở gần xưởng của Người lùn. Khi nghe thông tin đó từ Tomoe, nếu tôi nhận ra nguy cơ thì tốt rồi. Nghĩ thế, trái tim tôi cũng trĩu nặng khi phải khiển trách Eldo và Beren như vậy.
 
@@ -4899,11 +4899,11 @@ Tuy nhiên, có lẽ tình hình này cũng do Á Không vẫn luôn sinh hoạt
 
 "Vâng, chúng tôi sẽ tiến hành ngay."
 
-"Ừ. Ngoài ra, mọi người hãy phối hợp với Emma và chọn ra Người lùn để đối phó với mạo hiểm giả. Eldo có thông tin về trang bị của chúng tôi rồi phải không? Họp xong tôi sẽ hỏi về chúng. Beren hãy tiến hành việc tuyển chọn vài ứng viên sẽ đến Ziege công tác nhé."
+"Ừ. Ngoài ra, mọi người hãy phối hợp với Emma và chọn ra Người lùn để đối phó với mạo hiểm giả. Eldo có thông tin về trang bị của chúng tôi rồi phải không? Họp xong tôi sẽ hỏi về chúng. Beren hãy tiến hành việc tuyển chọn vài ứng viên sẽ đến Tsige công tác nhé."
 
 "Đã rõ ạ."
 
-Cả hai người đều đáp lời tôi một cách hùng hồn. Có lẽ họ không còn bất cẩn như trước nữa. Chắc chắn kể từ bây giờ, họ sẽ quản lí chặt chẽ hơn. Trên thực tế, những vũ khí Người lùn xem là rác cũng có giá trị cao ở Ziege. Nhìn danh mục những vật bị trộm, tôi nhận ra mình phải cân nhắc thật thận trọng về những trang bị do Người lùn chế tạo ở thương hội Kuzunoha. Có thể tôi sẽ giao việc này cho những Người lùn trẻ tuổi và còn non tay trong việc chế tạo trang bị, coi như một cách để họ tu nghiệp.
+Cả hai người đều đáp lời tôi một cách hùng hồn. Có lẽ họ không còn bất cẩn như trước nữa. Chắc chắn kể từ bây giờ, họ sẽ quản lí chặt chẽ hơn. Trên thực tế, những vũ khí Người lùn xem là rác cũng có giá trị cao ở Tsige. Nhìn danh mục những vật bị trộm, tôi nhận ra mình phải cân nhắc thật thận trọng về những trang bị do Người lùn chế tạo ở thương hội Kuzunoha. Có thể tôi sẽ giao việc này cho những Người lùn trẻ tuổi và còn non tay trong việc chế tạo trang bị, coi như một cách để họ tu nghiệp.
 
 "Tiếp theo, Người thằn lằn Mistio."
 
@@ -4941,13 +4941,13 @@ Người thằn lằn rất dễ bị Tomoe ảnh hưởng, vậy nên cách nó
 
 Cũng giống như cảnh sát đi tuần quanh thành phố vậy. Nếu để Tomoe làm thủ lĩnh, chắc hẳn mô hình sẽ trở thành đội ngăn chặn phóng hỏa và cướp giật như thời Edo. Nhưng thật ra tôi cũng nghĩ đến nó nên không vấn đề gì.
 
-Nếu xét về cấp độ văn minh, cách hữu hiệu nhất để duy trì trật tự ở Á Không có lẽ chính là mô hình đó.
+Nếu xét về cấp độ văn minh, cách hữu hiệu nhất để duy trì trật tự ở Asora có lẽ chính là mô hình đó.
 
 Tôi nghĩ sở cảnh sát và xe cảnh sát thời hiện đại cũng bắt nguồn từ nó. Có lẽ tôi sẽ thử tin vào thành tựu thực tế của thời Edo. Dù sao cũng tốt hơn nhiều so với việc không làm gì.
 
 Ở nhiệm vụ nào cũng khó khăn về mặt nhân số, nhưng đây là việc chưa thể giải quyết ngay được.
 
-Mời Quỷ rừng đến Á Không ngay cũng là một cách, nhưng trong lòng tôi vẫn chưa thể chấp nhận họ, nên chẳng biết có xây dựng được mối quan hệ tốt đẹp giữa đôi bên không nữa. Vả lại, cảm nhận của họ về tôi cũng vẫn chưa rõ ràng.
+Mời Quỷ rừng đến Asora ngay cũng là một cách, nhưng trong lòng tôi vẫn chưa thể chấp nhận họ, nên chẳng biết có xây dựng được mối quan hệ tốt đẹp giữa đôi bên không nữa. Vả lại, cảm nhận của họ về tôi cũng vẫn chưa rõ ràng.
 
 Nếu tìm thấy Ma tộc có trí năng, có lẽ tôi cũng cần chiêu mộ họ gia nhập. Xem ra, nếu dẫn về một bộ tộc có cấp độ thấp hơn quá rõ rệt so với các cư dân hiện tại, rất nhiều vấn dề như phân biệt giai cấp, quan hệ trên dưới,... sẽ phát sinh.
 
@@ -4975,7 +4975,7 @@ Arche đại diện đặt tay lên ngực và cúi đầu. Hai người còn l�
 
 A... Xem ra tôi có nói gì cũng vô dụng.
 
-Người đang nói chuyện với tôi là nữ. Có bốn Arche ở Á Không, nam có hai người gồm cậu bạn bị thương hôm trước và một người nữa. Hai đối hai như vậy, cảm giác rất hài hòa.
+Người đang nói chuyện với tôi là nữ. Có bốn Arche ở Asora, nam có hai người gồm cậu bạn bị thương hôm trước và một người nữa. Hai đối hai như vậy, cảm giác rất hài hòa.
 
 "À, tôi cũng mừng vì cậu ta được cứu. Vậy tiếp theo, tôi có vài chuyện muốn nhờ đến Arche. Hiện nay, có bao nhiêu Arche biến được thành hình người rồi?"
 
@@ -5041,7 +5041,7 @@ Thần Tsukuyomi bảo tôi có ma lực vượt trội hơn cả những Anh h�
 
 Từ trước đến nay, tôi chưa thấy có gì bất thường xảy ra do khế ước trên cơ thể mình.
 
-... Điều bất thường duy nhất mà tôi có thể xác thực là trải nghiệm của tôi trong không gian ở Á Không nối giữa cổng sương mù và Ziege.
+... Điều bất thường duy nhất mà tôi có thể xác thực là trải nghiệm của tôi trong không gian ở Asora nối giữa cổng sương mù và Tsige.
 
 ... Xâm nhập dòng chảy kí ức của người khác. Chắc chắn đó là năng lực của Tomoe.
 
@@ -5175,7 +5175,7 @@ Mắt Shiki mở lớn, dường như anh ta chưa từng nghĩ mình sẽ nghe 
 
 Trời ạ, anh ta rõ ràng là một chàng trai tóc đỏ cao ráo trông rất ngầu, vậy mà lại dùng đôi mắt run rẩy như cún con để thể hiện mình không dám tin tưởng, thật chẳng hài hòa gì cả.
 
-"Tôi sẽ trở về Ziege, bỏ ra vài ngày chuẩn bị rồi lên đường đến Thành phố Học viện. Chuyện của thương hội tôi sẽ nói chi tiết sau. Vốn dĩ tôi đã có dự định đến Thành phố Học viện rồi, nhưng lúc này tôi muốn đến đó càng sớm càng tốt vì hứng thú với nền giáo dục của Loài người. Tôi sẽ nhờ mọi người lo việc ở Ziege."
+"Tôi sẽ trở về Tsige, bỏ ra vài ngày chuẩn bị rồi lên đường đến Thành phố Học viện. Chuyện của thương hội tôi sẽ nói chi tiết sau. Vốn dĩ tôi đã có dự định đến Thành phố Học viện rồi, nhưng lúc này tôi muốn đến đó càng sớm càng tốt vì hứng thú với nền giáo dục của Loài người. Tôi sẽ nhờ mọi người lo việc ở Tsige."
 
 "Ngài định đi một mình à?"
 
@@ -5189,7 +5189,7 @@ Trông dáng vẻ bồn chồn hoảng hốt của Shiki buồn cười thật �
 
 ... Cần dạy cho hai cô kia cách cư xử với đàn em của mình thôi. Chẳng phải tôi chỉ mới bế quan tỏa cảng hai ngày thôi sao.
 
-"Dù gì, về Á Không cũng sẽ gặp được nhau thôi. Tôi nghĩ chia ra hành động sẽ tiện hơn rất nhiều. Vì hiện nay, người có thể tạo cổng chỉ có tôi và Tomoe thôi. Shiki có vẻ như đã từng là nhà nghiên cứu, nên anh có thể học trước được nhiều xu hướng hay chính sách. Nếu đến một vùng đất mới, tôi cảm giác anh sẽ thích hợp hơn Tomoe. Hơn nữa, anh cũng từng sống như Loài người rồi, thường thức chắc chắn vững hơn bọn họ."
+"Dù gì, về Asora cũng sẽ gặp được nhau thôi. Tôi nghĩ chia ra hành động sẽ tiện hơn rất nhiều. Vì hiện nay, người có thể tạo cổng chỉ có tôi và Tomoe thôi. Shiki có vẻ như đã từng là nhà nghiên cứu, nên anh có thể học trước được nhiều xu hướng hay chính sách. Nếu đến một vùng đất mới, tôi cảm giác anh sẽ thích hợp hơn Tomoe. Hơn nữa, anh cũng từng sống như Loài người rồi, thường thức chắc chắn vững hơn bọn họ."
 
 Càng nói, giọng tôi càng nhỏ dần.
 
@@ -5223,7 +5223,7 @@ Shiki than vãn với đôi mắt ướt lệ. Để anh ta cáng đáng chuyệ
 
 "?!"
 
-"Tôi muốn họ hướng về phía Bắc của Ziege để đến biển... Sắp tới, chắc chắn Tomoe sẽ nói về sản vật biển cho xem. Vì đi theo phong cách phương Đông nên thể nào cô ấy cũng nhắc đến cá ngừ khô hay tảo biển. Tomoe hoạt động gần Ziege sẽ tiện hơn trong việc bắt cóc các mạo hiểm giả hay giữ mối liên hệ với thương hội Rembrandt."
+"Tôi muốn họ hướng về phía Bắc của Tsige để đến biển... Sắp tới, chắc chắn Tomoe sẽ nói về sản vật biển cho xem. Vì đi theo phong cách phương Đông nên thể nào cô ấy cũng nhắc đến cá ngừ khô hay tảo biển. Tomoe hoạt động gần Tsige sẽ tiện hơn trong việc bắt cóc các mạo hiểm giả hay giữ mối liên hệ với thương hội Rembrandt."
 
 Bởi vì cô ấy đàm phán giỏi tới bất ngờ.
 
@@ -5239,7 +5239,7 @@ Chuyện là thế đó, nhưng Shiki à, tại sao anh lại bày ra vẻ mặt
 
 "... Ngài thật sự, thật sự đã quyết định để cho tôi nói chuyện này với họ sao ạ?"
 
-"Đương nhiên rồi. Tôi còn phải trở về Ziege để chào Rembrandt nữa. Người ta đã cho mình thuê chỗ để buôn bán rồi, thân làm chủ cửa hàng mà lại lẳng lặng đi xa như vậy sẽ thất lễ lắm. Vậy nên tôi muốn chào hỏi đàng hoàng trước khi rời đi."
+"Đương nhiên rồi. Tôi còn phải trở về Tsige để chào Rembrandt nữa. Người ta đã cho mình thuê chỗ để buôn bán rồi, thân làm chủ cửa hàng mà lại lẳng lặng đi xa như vậy sẽ thất lễ lắm. Vậy nên tôi muốn chào hỏi đàng hoàng trước khi rời đi."
 
 "Mệnh lệnh đầu tiên nhận được lại là việc nguy hiểm nhường này... Chắc tôi sẽ trở về với đất mẹ mất..."
 
@@ -5247,7 +5247,7 @@ Tôi thản nhiên lờ đi lời độc thoại của Shiki. Nhắc mới nhớ
 
 Hoàn toàn không thể tưởng tượng được. Về đất, hay về mặt linh hồn cũng thế. Định nghĩa của tôi dường như hoàn toàn chẳng còn ý nghĩa gì nữa. Điều duy nhất tôi đã nghĩ đúng chính là, nếu bị rút ma lực vượt quá nguồn cung cấp, họ sẽ tiêu biến.
 
-"Được rồi, nhờ anh nhé. Giờ tôi sẽ quay lại Ziege."
+"Được rồi, nhờ anh nhé. Giờ tôi sẽ quay lại Tsige."
 
 <br /><br /><br /><br /><br />
 #### **◇◆◇◆◇◆◇◆**
@@ -5263,7 +5263,7 @@ Nguyên nhân thúc đẩy tôi quyết định đi ngay lập tức là do kí 
 
 Tôi từng nghĩ thế giới này quái dị là chuyện đương nhiên, bà Nữ Thần ấy quản lí nó cơ mà. Tuy nhiên, tôi vẫn không thể chấp nhận chuyện đó. Tôi muốn biết về thế giới này, về Loài người, về tín ngưỡng hay những gì Nữ Thần đã nói, về Á nhân, về Ma tộc, về ma pháp, về Grant, và về các thế giới khác.
 
-Vậy nên, dù phải bỏ dở những gì đang tiến hành ở Á Không hay Ziege, tôi vẫn quyết định lên đường.
+Vậy nên, dù phải bỏ dở những gì đang tiến hành ở Asora hay Tsige, tôi vẫn quyết định lên đường.
 
 Khi đến chỗ của Rembrandt để chào tạm biệt, tấm bản đồ thế giới chưa hoàn thành mà tôi ngẫu nhiên nhìn thấy cũng để lại ấn tượng mạnh trong tôi. Hình thù, ý nghĩa của nó... Điều tôi muốn biết cứ ngày một tăng lên.
 
@@ -5273,7 +5273,7 @@ Dù có cảm giác họ đang gài bẫy gì đó, song không ngờ tôi lại
 
 Vì họ còn chuẩn bị cả giấy tờ cần thiết ở Thành phố Học viện cho tôi, nên chắc chắn họ cũng có dụng ý của riêng mình. Tôi vẫn luôn tin tưởng gia đình Rembrandt ở một mức độ nào đó. Có lẽ là do tôi đã nhìn thấy cảm xúc của ông dành cho gia đình, khi họ vướng phải căn bệnh nguyền rủa. Chắc chắn bọn họ khác biệt với ả Loài người mà tôi đã giết.
 
-Nhận lấy giấy tờ sẽ nộp ở Thành phố Học viện và thư tiến cử Rembrandt đã viết, tôi cúi đầu thật thấp để tỏ lòng cảm ơn. Tôi không ngờ ông ấy còn viết cả thư tiến cử cho mình. Tôi đã nghĩ ông ấy chỉ là một thương nhân có quyền lực trong thành phố Ziege ở biên giới này, nhưng xem ra, ông ấy là một nhân vật có tầm ảnh hưởng lớn hơn tôi tưởng.
+Nhận lấy giấy tờ sẽ nộp ở Thành phố Học viện và thư tiến cử Rembrandt đã viết, tôi cúi đầu thật thấp để tỏ lòng cảm ơn. Tôi không ngờ ông ấy còn viết cả thư tiến cử cho mình. Tôi đã nghĩ ông ấy chỉ là một thương nhân có quyền lực trong thành phố Tsige ở biên giới này, nhưng xem ra, ông ấy là một nhân vật có tầm ảnh hưởng lớn hơn tôi tưởng.
 
 Để bày tỏ lòng biết ơn vì họ đã nghĩ cho tôi chu đáo như vậy, tôi gỡ mặt nạ ra trước mắt hai người ấy. Đây là chuyện tôi đã quyết. Dù sao đó chỉ là vật tôi đeo vào để tránh né rắc rối thôi.
 
@@ -5283,9 +5283,9 @@ Họ lại còn đơn giản nói ra những lời quá đáng như sẽ quen ng
 
 Tuy cuối cùng ông ấy không để tôi gặp mặt vợ và con gái của mình, nhưng mọi chuyện cũng xem như diễn ra suôn sẻ.
 
-Tôi đã có thể an tâm rời khỏi dinh thự của Rembrandt. Tôi thực sự rất biết ơn ông ấy, thậm chí tôi còn nghĩ tới chuyện sẽ ưu tiên lưu thông hàng hóa của Á Không cho ông.
+Tôi đã có thể an tâm rời khỏi dinh thự của Rembrandt. Tôi thực sự rất biết ơn ông ấy, thậm chí tôi còn nghĩ tới chuyện sẽ ưu tiên lưu thông hàng hóa của Asora cho ông.
 
-Việc còn lại là ở Á Không, hay nói đúng hơn là việc của Tomoe và Mio nhỉ.
+Việc còn lại là ở Asora, hay nói đúng hơn là việc của Tomoe và Mio nhỉ.
 
 Sau khi nghe lại mọi chuyện từ Shiki, đúng như tôi đoán (xin lỗi nhé, Shiki), có vẻ cả hai đã phát cuồng.
 
@@ -5325,11 +5325,11 @@ Tuy vậy, tôi chẳng biết phải mở lời thế nào, và vì quá ngại
 
 "Bố, mẹ. Con gần như chẳng biết gì về hai người cả, nhưng con sẽ chầm chậm tìm kiếm. Như vậy là được phải không ạ?"
 
-Tôi độc thoại trên ngọn đồi hoang vu. Nhờ khế ước giữa tôi và Shiki, đồi và núi đã mọc lên ở Á Không. Bởi vì chúng toàn xuất hiện ở xa khu vực thành phố nên không sao. Trong trường hợp ngược lại, tôi nghĩ sẽ là thảm họa lớn đấy.
+Tôi độc thoại trên ngọn đồi hoang vu. Nhờ khế ước giữa tôi và Shiki, đồi và núi đã mọc lên ở Asora. Bởi vì chúng toàn xuất hiện ở xa khu vực thành phố nên không sao. Trong trường hợp ngược lại, tôi nghĩ sẽ là thảm họa lớn đấy.
 
-Tôi đến một ngọn đồi trong số đó. Hoàng hôn dần buông, ráng chiều nhuộm đỏ bầu trời của Á Không. Đây là khoảng thời gian nhiệt độ hạ dần. Mông của tôi cũng lạnh đi vì ngồi trên đất.
+Tôi đến một ngọn đồi trong số đó. Hoàng hôn dần buông, ráng chiều nhuộm đỏ bầu trời của Asora. Đây là khoảng thời gian nhiệt độ hạ dần. Mông của tôi cũng lạnh đi vì ngồi trên đất.
 
-Tay trái tôi cầm hai bức hình chân dung của bố và mẹ, độ lớn có lẽ bằng tờ giấy A5? Tôi không biết kích cỡ chính xác. Bố và mẹ tôi mỗi người được vẽ riêng một tấm. Thứ mà hôm trước tôi nhờ họa sĩ Rinon ở Hội mạo hiểm giả vẽ đã hoàn thành rồi. Tôi nhờ em ấy vì hiện nay ở Á Không vẫn chưa có người giỏi hội họa. Tôi không biết em ấy có phải danh họa giỏi nhất hay chăng. Nhưng tôi không muốn nhờ đến những họa sĩ vẽ chân dung trong thành phố.
+Tay trái tôi cầm hai bức hình chân dung của bố và mẹ, độ lớn có lẽ bằng tờ giấy A5? Tôi không biết kích cỡ chính xác. Bố và mẹ tôi mỗi người được vẽ riêng một tấm. Thứ mà hôm trước tôi nhờ họa sĩ Rinon ở Hội mạo hiểm giả vẽ đã hoàn thành rồi. Tôi nhờ em ấy vì hiện nay ở Asora vẫn chưa có người giỏi hội họa. Tôi không biết em ấy có phải danh họa giỏi nhất hay chăng. Nhưng tôi không muốn nhờ đến những họa sĩ vẽ chân dung trong thành phố.
 
 "..."
 
@@ -5369,7 +5369,7 @@ Sau đó, tôi sẽ quyết định xem mình nên làm gì. Từ giờ đến l
 
 Tôi cúi đầu như thể cuộn mình lại, củng cố quyết tâm của mình.
 
-Thành phố Học viện, Rotsgard. Theo như bản đồ tôi đã xem, đó là thành phố ở gần trung tâm lục địa, có quy mô lớn hơn một tiểu vương quốc. Theo hiểu biết về Ziege - thành phố ở phía Tây Nam này, thì Thành phố Học viện tuy tập trung nghiên cứu và học tập, nhưng lại là khu vực gần nơi giao tranh với Ma tộc.
+Thành phố Học viện, Rotsgard. Theo như bản đồ tôi đã xem, đó là thành phố ở gần trung tâm lục địa, có quy mô lớn hơn một tiểu vương quốc. Theo hiểu biết về Tsige - thành phố ở phía Tây Nam này, thì Thành phố Học viện tuy tập trung nghiên cứu và học tập, nhưng lại là khu vực gần nơi giao tranh với Ma tộc.
 
 Nơi ấy là điểm đến tiếp theo của tôi.
 
@@ -5417,7 +5417,7 @@ Sau đó, trên gương mặt Rembrandt hiện lên vẻ nghiêm trọng, pha l�
 
 "Ừm."
 
-"Cậu Raidou đúng là một người may mắn. Không chỉ phu nhân và tiểu thư quý mến cậu ấy, mà ngay cả ông chủ cũng thế. Thế này thì dù cho cậu ấy có là người đại diện bù nhìn đi nữa, thương hội Kuzunoha cũng sẽ dễ dàng phất lên ở Ziege."
+"Cậu Raidou đúng là một người may mắn. Không chỉ phu nhân và tiểu thư quý mến cậu ấy, mà ngay cả ông chủ cũng thế. Thế này thì dù cho cậu ấy có là người đại diện bù nhìn đi nữa, thương hội Kuzunoha cũng sẽ dễ dàng phất lên ở Tsige."
 
 "... Tôi biết mình đang quá nuông chiều cậu ấy, Moris. Vậy nhưng, tôi cảm thấy... có gì đó 'khác biệt' ở Raidou. Lúc này tôi chưa thể giải thích cặn kẽ được, nhưng rõ ràng là có gì đó."
 
@@ -5475,11 +5475,11 @@ Thật ra, tuy Raidou, hay nói đúng hơn là Makoto vẫn chưa thực sự n
 
 Từ những tin tức về quy mô hay những phương diện quan sát được, Makoto chỉ thấy Rembrandt là một thương nhân có tầm ảnh hưởng khá lớn.
 
-Tuy nhiên, thật ra Rembrandt đã thâu tóm được toàn bộ cửa hàng lâu đời ở Ziege này.
+Tuy nhiên, thật ra Rembrandt đã thâu tóm được toàn bộ cửa hàng lâu đời ở Tsige này.
 
 Nghĩa là, chẳng một thương nhân nào ở thành phố này dám bảo mình đủ khả năng chống lại Rembrandt. Các thương hội chỉ được giao dịch và nhập nguyên liệu cần thiết từ Rembrandt, ngoài ra, những người lãnh đạo còn bị nắm thóp điểm yếu nào đó.
 
-Rembrandt là người đứng đầu ở Ziege này là việc mà mọi người đều ngầm hiểu.
+Rembrandt là người đứng đầu ở Tsige này là việc mà mọi người đều ngầm hiểu.
 
 Vậy nên, khi Rembrandt đến hỏi chuyện Hội thương nhân vào sáng sớm, Hội vô cùng hoảng hốt.
 
@@ -5623,7 +5623,7 @@ Sau một thời gian dài làm việc ở thương hội khác, người đại
 
 Từ đó đến nay chỉ khoảng ba mươi năm mà thôi.
 
-Vì là người từ thành phố khác chuyển đến Ziege sau khi nhìn ra cơ hội kinh doanh ở nơi này, nên hắn không biết gì về quá khứ của Patrick Rembrandt.
+Vì là người từ thành phố khác chuyển đến Tsige sau khi nhìn ra cơ hội kinh doanh ở nơi này, nên hắn không biết gì về quá khứ của Patrick Rembrandt.
 
 Hắn chỉ biết Rembrandt là người có quyền lực nên cần dè chừng ông, nhưng lại không thể tượng tưởng ra trước đây, ông đã thực hiện những phi vụ làm ăn giống như hắn, à không, thậm chí còn đen tối hơn cả hắn như thế nào.
 
@@ -5823,7 +5823,7 @@ Dù đến mà chẳng hẹn trước, nhưng Moris vẫn nhận được sự t
 
 "Lúc trước các ông đã giúp đỡ tôi rất nhiều. Ân huệ ấy đến bây giờ tôi vẫn không quên."
 
-"Ngài đã mở được một cửa tiệm lớn mạnh không thể thiếu ở Ziege này, nên không cần phải cúi đầu trước tôi như thế đâu."
+"Ngài đã mở được một cửa tiệm lớn mạnh không thể thiếu ở Tsige này, nên không cần phải cúi đầu trước tôi như thế đâu."
 
 "Nhưng tôi vẫn luôn biết ơn các ông sâu sắc như trước."
 
@@ -5857,7 +5857,7 @@ Moris từ tốn dẫn dắt vấn dề, bàn luận một cách tự nhiên, th
 
 Không hề nhận ra mình đang bị Moris dẫn dắt, Howe - người đại diện của thương hội Miliono bắt đầu kể hết những chuyện mình biết về thương hội Kuzunoha.
 
-"Nếu quen biết cậu ta, vậy có lẽ ông cũng biết chuyện này rồi. Dạo gần đây, rất nhiều nguyên liệu, vật liệu từ nơi hoang dã đã được nhập vào Ziege."
+"Nếu quen biết cậu ta, vậy có lẽ ông cũng biết chuyện này rồi. Dạo gần đây, rất nhiều nguyên liệu, vật liệu từ nơi hoang dã đã được nhập vào Tsige."
 
 "Tôi cũng có nghe qua chuyện đó."
 
@@ -5891,7 +5891,7 @@ Sau khi nhấp môi, thấy Moris vẫn luôn lắng nghe với vẻ đồng tì
 
 "Đó là ý định của những người kinh doanh cửa hàng bán buôn, và cả khách của những cửa hàng này à...? Ông nói tạm thời nghĩa là sao?"
 
-"Nguyên nhân của sự mất cân bằng là do các vật liệu Raidou đưa vào Ziege, đây là sự thật. Chúng tôi sẽ không làm như vậy nếu cậu ta suy nghĩ thấu đáo hơn cho thị trường. Tuy nhiên, đó không phải là những hành động ác ý, suy cho cùng, vật liệu từ Á Không đổ về nhiều hơn vốn là chuyện đáng mừng. Vậy nên, sau khi bán hết phần lớn vật liệu tồn kho, tôi định sẽ xây dựng lại mối quan hệ tốt đẹp với cậu ta."
+"Nguyên nhân của sự mất cân bằng là do các vật liệu Raidou đưa vào Tsige, đây là sự thật. Chúng tôi sẽ không làm như vậy nếu cậu ta suy nghĩ thấu đáo hơn cho thị trường. Tuy nhiên, đó không phải là những hành động ác ý, suy cho cùng, vật liệu từ Asora đổ về nhiều hơn vốn là chuyện đáng mừng. Vậy nên, sau khi bán hết phần lớn vật liệu tồn kho, tôi định sẽ xây dựng lại mối quan hệ tốt đẹp với cậu ta."
 
 _(... Gã nói ra rồi.)_
 
@@ -5917,7 +5917,7 @@ Bởi vì trước đây, bản thân gã cũng nhận ân huệ như vậy.
 
 Hồi ấy, tuy khác với hình thức của Raidou bây giờ, nhưng Howe cũng rất nổi bật. Gã cũng bị quấy nhiễu hệt như trong câu chuyện mình vừa nói.
 
-Sau đó, gã được thương hội Rembrandt giúp đỡ, khiến tài năng của gã nở rộ, và rồi Howe đã có thể phất lên trong lĩnh vực buôn bán vật tư ở Ziege này.
+Sau đó, gã được thương hội Rembrandt giúp đỡ, khiến tài năng của gã nở rộ, và rồi Howe đã có thể phất lên trong lĩnh vực buôn bán vật tư ở Tsige này.
 
 "Chủ nhân của tôi đang dồn hết tâm sức để trợ giúp cậu Raidou, người đã có công cứu phu nhân và các tiểu thư. Chắc chắn ngài ấy sẽ rất vui trước quyết định sáng suốt của ngài Howe."
 
@@ -5953,7 +5953,7 @@ Moris trả lời.
 
 Sau khi xác nhận sự biến hóa của Howe, Moris nói ra vấn đề.
 
-"Chúng tôi sẽ nói với cậu Raidou những việc này, nhờ cậu ấy hạn chế đừng lưu thông nhiều nguyên liệu trong một thời gian. Hiện nay, nguồn cung cấp nguyên liệu từ nơi hoang dã ở Ziege hầu hết đều là các mạo hiểm giả có quan hệ với thương hội Kuzunoha. Vậy nên nếu áp dụng biện pháp này, giá thành nguyên liệu sẽ được nâng lên."
+"Chúng tôi sẽ nói với cậu Raidou những việc này, nhờ cậu ấy hạn chế đừng lưu thông nhiều nguyên liệu trong một thời gian. Hiện nay, nguồn cung cấp nguyên liệu từ nơi hoang dã ở Tsige hầu hết đều là các mạo hiểm giả có quan hệ với thương hội Kuzunoha. Vậy nên nếu áp dụng biện pháp này, giá thành nguyên liệu sẽ được nâng lên."
 
 "Ra vậy."
 
@@ -5973,7 +5973,7 @@ Trước một món hời lớn đột nhiên xuất hiện, gã không thể ch
 
 "... Phải nói là quá đủ rồi."
 
-"Những người không có chuyên môn về nguyên liệu từ nơi hoang dã như chúng tôi chỉ có thể đưa ra kế hoạch sơ sài như vậy. Về phần chi tiết hơn, ngài cứ thoải mái quyết định theo ý mình. Nếu được, chúng tôi muốn việc bán buôn ở Ziege được tập trung lại, với tâm điểm là thương hội Miliono. Chủ nhân nói rằng việc đó sẽ giúp thành phố này có triển vọng phát triển hơn. Tôi cũng đồng ý với ngài ấy."
+"Những người không có chuyên môn về nguyên liệu từ nơi hoang dã như chúng tôi chỉ có thể đưa ra kế hoạch sơ sài như vậy. Về phần chi tiết hơn, ngài cứ thoải mái quyết định theo ý mình. Nếu được, chúng tôi muốn việc bán buôn ở Tsige được tập trung lại, với tâm điểm là thương hội Miliono. Chủ nhân nói rằng việc đó sẽ giúp thành phố này có triển vọng phát triển hơn. Tôi cũng đồng ý với ngài ấy."
 
 "Ông quá lời rồi. Thương hội Miliono vẫn luôn biết tự lượng sức mình."
 
@@ -6005,7 +6005,7 @@ Hâu hết những thương hội chủ chốt đều biết Rembrandt đã dùn
 
 Kết quả...
 
-Trong lúc chờ mở cửa hàng, thương hội Kuzunoha dần dần trở thành sự tồn tại bất khả xâm phạm ở Ziege.
+Trong lúc chờ mở cửa hàng, thương hội Kuzunoha dần dần trở thành sự tồn tại bất khả xâm phạm ở Tsige.
 
 Tất cả những việc này vẫn chưa đến tai Raidou. Có lẽ cậu sẽ mãi mãi không bao giờ biết. Nếu Rembrandt không tự mình đề cập, những thương hội khác cũng không dám khinh suất hé răng điều gì.
 
@@ -6105,7 +6105,7 @@ Quả là nuông chiều.
 
 Cha mẹ vẫn thường nuông chiều đứa con trai út. Có lẽ trong mắt Rembrandt, Raidou là ân nhân, nhưng đồng thời cũng như một đứa con trai đột nhiên xuất hiện.
 
-Sau khi Moris rời đi, Rembrandt đứng dậy khỏi ghế, ngắm nhìn những dãy phố của Ziege qua cửa sổ.
+Sau khi Moris rời đi, Rembrandt đứng dậy khỏi ghế, ngắm nhìn những dãy phố của Tsige qua cửa sổ.
 
 "Lần đầu tiên kinh doanh mà lại chọn nơi này, sẽ khó khăn đấy. Không hiếm trường hợp chỉ cần sảy chân là phải nhận lấy vết thương trí mạng. Vậy nên, Raidou, ta sẽ dõi theo và bảo vệ cậu một thời gian. Khi đã có nơi đủ chắc chắn để đặt chân, cậu có thể vấp ngã bao nhiêu tùy thích. Ví dụ như, nơi mà cậu đang hướng tới... Thành phố Học viện chẳng hạn."
 
@@ -6177,13 +6177,13 @@ Song, câu chuyện ấy nghe rất ngớ ngẩn, nên Moris vẫn còn nghi ng�
 
 "Dạo gần đây, tôi nghĩ dự đoán về cậu Raidou có lẽ là chuyện vô ích. Không ngờ cậu ấy còn chuẩn bị sẵn những mặt hàng độc quyền như vậy."
 
-_(Ngoài ra... Những người phụ nữ vốn đến để mua trái cây hay sản phẩm quý giá, dần dần sẽ thử mua những loại thuốc men cần có trong nhà. Bên cạnh đó, các mạo hiểm giả tới đây vì vũ khí cũng sẽ thử mua thuốc trị thương hay trị độc. Bản thân mình cũng đã dùng thử để kiểm tra kết quả, thật sự công hiệu của chúng tốt đến mức có thể sánh với ma pháp dược, lại còn rất rẻ nữa. Vậy là Raidou cũng đồng thời thực hiện được ước nguyện của bản thân rồi, cậu ấy từng bảo muốn mở cửa hàng bách hóa, nhưng chủ yếu sẽ kinh doanh thuốc men. Sớm muộn gì cửa hàng của cậu ấy cũng sẽ lớn mạnh đến mức thu hút tất cả mọi người ở Ziege. Nếu Raidou đã tính đến tất cả những chuyện ấy thì đúng là xuất sắc, nhưng dù chẳng tính toán gì cả thì mọi thứ cũng đã rất tuyệt vời. Mình thật sự mong chờ được nhìn thấy sự phát triển của thương hội Kuzunoha cũng như của thành phố Ziege này.)_
+_(Ngoài ra... Những người phụ nữ vốn đến để mua trái cây hay sản phẩm quý giá, dần dần sẽ thử mua những loại thuốc men cần có trong nhà. Bên cạnh đó, các mạo hiểm giả tới đây vì vũ khí cũng sẽ thử mua thuốc trị thương hay trị độc. Bản thân mình cũng đã dùng thử để kiểm tra kết quả, thật sự công hiệu của chúng tốt đến mức có thể sánh với ma pháp dược, lại còn rất rẻ nữa. Vậy là Raidou cũng đồng thời thực hiện được ước nguyện của bản thân rồi, cậu ấy từng bảo muốn mở cửa hàng bách hóa, nhưng chủ yếu sẽ kinh doanh thuốc men. Sớm muộn gì cửa hàng của cậu ấy cũng sẽ lớn mạnh đến mức thu hút tất cả mọi người ở Tsige. Nếu Raidou đã tính đến tất cả những chuyện ấy thì đúng là xuất sắc, nhưng dù chẳng tính toán gì cả thì mọi thứ cũng đã rất tuyệt vời. Mình thật sự mong chờ được nhìn thấy sự phát triển của thương hội Kuzunoha cũng như của thành phố Tsige này.)_
 
 "Ông chủ?"
 
 Lo lắng trước dáng vẻ nhắm nghiền mắt trầm lặng của chủ nhân, Moris quay sang nhìn.
 
-"À, không có gì, tôi đang nghĩ từ giờ ta sẽ bận rộn hơn đấy. Có lẽ thương hội Kuzunoha sẽ trở thành một liều thuốc kích thích cực mạnh đối với Ziege. Ban nãy tôi chỉ đang xác định lại, giữ quan hệ tốt đẹp với Raidou và cùng cậu ấy làm thành phố trở nên giàu có, phong phú hơn chính là nhiệm vụ của tôi. Từ giờ ông cũng sẽ vất vả lắm đấy."
+"À, không có gì, tôi đang nghĩ từ giờ ta sẽ bận rộn hơn đấy. Có lẽ thương hội Kuzunoha sẽ trở thành một liều thuốc kích thích cực mạnh đối với Tsige. Ban nãy tôi chỉ đang xác định lại, giữ quan hệ tốt đẹp với Raidou và cùng cậu ấy làm thành phố trở nên giàu có, phong phú hơn chính là nhiệm vụ của tôi. Từ giờ ông cũng sẽ vất vả lắm đấy."
 
 "Tôi sẽ luôn đồng hành cùng ngài. Bản thân tôi cũng nghĩ, có thể nhìn ngắm quang cảnh ấy và cảm nhận sức sống tràn vào cơ thể... quả thật không tệ chút nào."
 
@@ -6191,6 +6191,6 @@ Lo lắng trước dáng vẻ nhắm nghiền mắt trầm lặng của chủ nh
 
 "... Xin nghe theo ý ngài."
 
-Lúc này đây, Raidou đã xuất phát đến Thành phố Học viện và để lại những món quà đặc sản mà chẳng có ý đồ gì sâu xa. Nhưng Patrick Rembrandt nghĩ, những thứ ấy rồi sẽ làm thay đổi Ziege này.
+Lúc này đây, Raidou đã xuất phát đến Thành phố Học viện và để lại những món quà đặc sản mà chẳng có ý đồ gì sâu xa. Nhưng Patrick Rembrandt nghĩ, những thứ ấy rồi sẽ làm thay đổi Tsige này.
 
 Trực giác của ông có lẽ sẽ đúng.

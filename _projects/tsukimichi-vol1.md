@@ -339,7 +339,7 @@ _"Sức mạnh của ông già Tsukuyomi cũng đã khá yếu rồi nhỉ. Ở 
 
 Người đó nói tiếp. Nhất định là Nữ thần rồi.
 
-_"Hơn nữa, lâu quá không gặp, đến cả tính cách của ta mà ông già đó cũng quên mất, giờ còn đưa một cậu nhóc ra ứng cử, ta dám cá ông ta đã biến thành lão già lẩm cẩm rồi. A ha ha ha."_
+_"Hơn nữa, lâu quAsora gặp, đến cả tính cách của ta mà ông già đó cũng quên mất, giờ còn đưa một cậu nhóc ra ứng cử, ta dám cá ông ta đã biến thành lão già lẩm cẩm rồi. A ha ha ha."_
 
 N-Nữ thần ?... Ừm, chắc đúng là Nữ thần đấy.
 
@@ -1599,21 +1599,21 @@ Ngay cả trong loài rồng, ta cũng đứng ở một vị trí cao, được
 
 Tuy nhiên, năng lực tấn công đơn thuần của ta kém hơn những con rồng cấp cao khác. Năng lực phòng ngự cũng vậy.
 
-Dù thế ta vẫn vô địch, tất cả là nhờ năng lực "Á Không" của ta.
+Dù thế ta vẫn vô địch, tất cả là nhờ năng lực "Asora" của ta.
 
-Bao vây kẻ địch bằng sương mù, kéo vào trong Á Không rồi giết chết. Sương mù là vật trung gian dùng để dụ dỗ sinh vật bị bắt vào trong Á Không.
+Bao vây kẻ địch bằng sương mù, kéo vào trong Asora rồi giết chết. Sương mù là vật trung gian dùng để dụ dỗ sinh vật bị bắt vào trong Asora.
 
-"Á Không" là không gian đặc biệt do ta tạo ra và khống chế. Đó là một không gian tối tăm chẳng hề có bất cứ thứ gì, đến cả sương mù cũng không. Ở trong không gian này, ta có thể thoải mái tạo ra băng, đóng băng, hay đốt cháy kẻ địch bằng nghiệp hỏa. Toàn bộ đều do ta quyết định. Con mồi bị dụ vào trong Á Không chỉ có thể bị ta đùa giỡn đến chết.
+"Asora" là không gian đặc biệt do ta tạo ra và khống chế. Đó là một không gian tối tăm chẳng hề có bất cứ thứ gì, đến cả sương mù cũng không. Ở trong không gian này, ta có thể thoải mái tạo ra băng, đóng băng, hay đốt cháy kẻ địch bằng nghiệp hỏa. Toàn bộ đều do ta quyết định. Con mồi bị dụ vào trong Asora chỉ có thể bị ta đùa giỡn đến chết.
 
-Trong quá khứ, chưa một con mồi nào có thể thoát khỏi Á Không. Tất nhiên, ta sẽ không tha cho kẻ vô lễ dám phá hủy cánh cổng của ta.
+Trong quá khứ, chưa một con mồi nào có thể thoát khỏi Asora. Tất nhiên, ta sẽ không tha cho kẻ vô lễ dám phá hủy cánh cổng của ta.
 
-Trước lúc sương mù hoàn toàn bao trùm, ta đã tấn công hắn hai lần, sau khi hắn bị màn sương bao vây, ta sẽ giam cầm hắn vào trong Á Không, và mọi thứ chắc chắn sẽ kết thúc.
+Trước lúc sương mù hoàn toàn bao trùm, ta đã tấn công hắn hai lần, sau khi hắn bị màn sương bao vây, ta sẽ giam cầm hắn vào trong Asora, và mọi thứ chắc chắn sẽ kết thúc.
 
 Thế nhưng, ta lại không thể kéo hắn vào được.
 
 Dù đã thử không biết bao nhiêu lần, nhưng lúc nào ta cũng có cảm giác như đang đem vật lớn nhét vào một cái lỗ nhỏ, hoàn toàn không thực hiện được. Chẳng lẽ cánh cổng do ta tạo ra quá nhỏ sao?
 
-Không ổn rồi, dù làm thế nào cũng vẫn không thể mang hắn vào trong Á Không. Không còn cách nào khác, ta sẽ săn hắn trong màn sướng mù này.
+Không ổn rồi, dù làm thế nào cũng vẫn không thể mang hắn vào trong Asora. Không còn cách nào khác, ta sẽ săn hắn trong màn sướng mù này.
 
 Ta thử lao đến tấn công từ phía sau, nhưng bằng cách nào đó, hắn đã linh cảm trước đòn tấn công và tránh được.
 
@@ -1621,7 +1621,7 @@ Chậc, đúng là một tên Loài người phiền toái.
 
 Chẳng thể kết liễu hắn nhanh gọn được.
 
-Rốt cuộc vì lý do gì mà hắn có thể thoát khỏi Á Không của ta? Tại sao hắn có thể tránh được đòn tấn công của ta trong màn sương mù làm nhiễu loạn cảm giác này? Thực sự chỉ là ngẫu nhiên thôi sao? Xem ra ta cần phải nghiên cứu một chút rồi.
+Rốt cuộc vì lý do gì mà hắn có thể thoát khỏi Asora của ta? Tại sao hắn có thể tránh được đòn tấn công của ta trong màn sương mù làm nhiễu loạn cảm giác này? Thực sự chỉ là ngẫu nhiên thôi sao? Xem ra ta cần phải nghiên cứu một chút rồi.
 
 Nếu không, cái danh "Vô Địch" của ta sẽ bị lung lay mất.
 
@@ -1729,11 +1729,11 @@ Sức mạnh cường đại của hắn khiến ta nghĩ có lẽ ta không th�
 
 Nằm sấp trên mặt đất, ta giả vờ mất ý thức và tìm kiếm năng lực của hắn bằng thông tin có được từ trong sương mù, đồng thời âm thầm phun thêm sương mù để tạo ra ảo giác.
 
-Ngoại trừ Á Không, ta vẫn còn các năng lực khác.
+Ngoại trừ Asora, ta vẫn còn các năng lực khác.
 
 Ảo giác là một trong những sở trường đặc trưng của ta. Ta có thể nhìn trộm ký ức của đối phương, rồi từ đó chiếu lên trên sương mù ảo giác về những điều hắn mong ước hay căm hận để mê hoặc hắn. Một khi kẻ đó chìm đắm trong ảo giác của ta, trong tiềm thức hắn sẽ xuất hiện những suy nghĩ sai lầm, khiến hắn cảm thấy đó mới đúng là hiện thực.
 
-Không biết vì sao ta không thể mang tên này vào trong Á Không, nên giờ chỉ còn cách tấn công bất ngờ và giam cầm hắn trong sương mù, rồi "chăn nuôi" cho tới chết.
+Không biết vì sao ta không thể mang tên này vào trong Asora, nên giờ chỉ còn cách tấn công bất ngờ và giam cầm hắn trong sương mù, rồi "chăn nuôi" cho tới chết.
 
 Sẽ rất rắc rối nếu đó không phải là ảo giác mà hắn mong mỏi. Lỡ như hắn vùng vẫy chống lại thì phiền phức vô cùng.
 
@@ -2183,15 +2183,15 @@ Dáng người cân đối, cơ thể săn chắc... mặc dù tôi chắc chắ
 
 Khi tôi nói rằng "Trông cô giống chiến binh thật đấy", thì cô ấy lại nài nỉ tôi rằng "Tôi muốn được gọi là samurai!". Có điều, tôi nghĩ vẻ bề ngoài của cô ấy thích hợp với phong cách phương Tây hơn.
 
-Khi hỏi về Á Không - năng lực đặc biệt của Shin, tôi mới biết nó đã thay đổi hoàn toàn bởi khế ước mà cô ấy đã ký với tôi.
+Khi hỏi về Asora - năng lực đặc biệt của Shin, tôi mới biết nó đã thay đổi hoàn toàn bởi khế ước mà cô ấy đã ký với tôi.
 
-Nhờ Shin dẫn đường, tôi bước chân vào Á Không.
+Nhờ Shin dẫn đường, tôi bước chân vào Asora.
 
-Khác hẳn với một không gian sặc mùi giết chóc như Shin đã kể cho tôi, bên trong Á Không là một vùng đất rộng lớn với màu xanh trải dài. Quang cảnh nơi đây hoàn toàn trái ngược so với chốn hoang dã đầy bụi bặm bên ngoài.
+Khác hẳn với một không gian sặc mùi giết chóc như Shin đã kể cho tôi, bên trong Asora là một vùng đất rộng lớn với màu xanh trải dài. Quang cảnh nơi đây hoàn toàn trái ngược so với chốn hoang dã đầy bụi bặm bên ngoài.
 
 Thảo nguyên bát ngát với cây cỏ cao tới gần đầu gối mọc um tùm, phía xa xa còn có một khu rừng nhỏ. Mặc dù phạm vi tầm nhìn khá xa, nhưng tôi không hề thấy một tòa kiến trúc nào.
 
-Đứng từ đây tôi cũng không nhìn thấy có sông suối hay ao hồ, nhưng vì thảm thực vật của Á Không tươi tốt như vậy, chắc hẳn xung quanh phải có nguồn nước.
+Đứng từ đây tôi cũng không nhìn thấy có sông suối hay ao hồ, nhưng vì thảm thực vật của Asora tươi tốt như vậy, chắc hẳn xung quanh phải có nguồn nước.
 
 Tôi thử dùng năng lực của mình để tìm kiếm. Có vẻ cũng có vài con suối nhỏ, tôi cũng cảm nhận được khí tức của các loại sinh vật khác. Mặc dù không nhìn thấy trực tiếp, nhưng có lẽ những loài thực vật trong tầm hiểu biết của tôi cũng có hình dạng giống như ở trên Trái Đất.
 
@@ -2201,15 +2201,15 @@ Tuy nơi này bị bao vây bởi những bức tường ấy, nhưng chúng cá
 
 Nói đúng hơn, khi nghĩ đến chuyện cư dân ở đây chỉ có mỗi mình tôi thì... nơi này quá lớn rồi đấy.
 
-"Á Không rốt cuộc..."
+"Asora rốt cuộc..."
 
 _... Là nơi như thế nào vậy?_ Trước khi kịp hỏi câu đó, tôi đã nghe thấy Shin cất tiếng: "Ở đây là đâu thế?"
 
 Làm như tôi biết được ấy!
 
-Cũng chẳng còn cách nào khác, hai người chúng tôi đành thử đi dạo một chút bên trong Á Không vừa được tái tạo này. Có vẻ Á Không đã trở thành một không gian như một "thế giới" độc lập. Các loại thực vật tương tự cây cỏ ở Trái Đất này đều mọc tự nhiên, ví như cây thông và cây bách Nhật... Mùi hương của cây cối khiến tôi nhớ đến quê nhà. Sau đó, tôi còn phát hiện ra một cây hồng, liền hái trái hồng từ trên cây xuống và ăn thử, mùi vị hệt như quả hồng trong ký ức của tôi. Shin cũng ăn một quả, và cô ấy khen hương vị của nó không ngớt lời.
+Cũng chẳng còn cách nào khác, hai người chúng tôi đành thử đi dạo một chút bên trong Asora vừa được tái tạo này. Có vẻ Asora đã trở thành một không gian như một "thế giới" độc lập. Các loại thực vật tương tự cây cỏ ở Trái Đất này đều mọc tự nhiên, ví như cây thông và cây bách Nhật... Mùi hương của cây cối khiến tôi nhớ đến quê nhà. Sau đó, tôi còn phát hiện ra một cây hồng, liền hái trái hồng từ trên cây xuống và ăn thử, mùi vị hệt như quả hồng trong ký ức của tôi. Shin cũng ăn một quả, và cô ấy khen hương vị của nó không ngớt lời.
 
-Trong lúc chúng tôi đi dạo, Shin rất đỗi ngạc nhiên với sự thay đổi diện mạo của Á Không.
+Trong lúc chúng tôi đi dạo, Shin rất đỗi ngạc nhiên với sự thay đổi diện mạo của Asora.
 
 ... Tuy rằng chúng tôi đi tới đây là nhờ vào màn sương mù trung gian của cô ấy, nhưng Shin quả thật chẳng đáng tin cậy chút nào.
 
@@ -2219,7 +2219,7 @@ Do chỉ có thể đi tới nơi này qua lớp sương mù trung gian của Sh
 
 Nếu xây dựng thành phố ở đây, nó sẽ trở thành thành phố ảo ảnh cho coi. Câu nói đó của tôi nghe chỉ như một trò đùa, nhưng không biết vì sao, Shin lại rơi vào trầm tư.
 
-Chúng tôi ra khỏi Á Không và quay trở lại làng Orc. Đã đến lúc nghỉ ngơi rồi.
+Chúng tôi ra khỏi Asora và quay trở lại làng Orc. Đã đến lúc nghỉ ngơi rồi.
 
 Ngày mai chúng tôi sẽ rời khỏi ngôi làng này, hướng về nơi Loài người đang sinh sống.
 
@@ -2277,13 +2277,13 @@ Rốt cuộc cô ấy đang muốn nói cái gì vậy?
 
 Thế giới của cô ấy?
 
-"Chậm hiểu quá đi mất... Là Á Không, Á Không ấy! Sau khi tạo khế ước với chủ nhân, Á Không đã trở thành một vùng đất màu mỡ. Nó đã trở thành một thế giới đẹp đẽ rồi!"
+"Chậm hiểu quá đi mất... Là Asora, Asora ấy! Sau khi tạo khế ước với chủ nhân, Asora đã trở thành một vùng đất màu mỡ. Nó đã trở thành một thế giới đẹp đẽ rồi!"
 
 Cái người này, coi trò đùa của tôi thành thật à?!
 
-Tạo ra một thành phố lớn ở trong Á Không. Không thể ngờ được cô ấy lại thực hiện điều đó thật...
+Tạo ra một thành phố lớn ở trong Asora. Không thể ngờ được cô ấy lại thực hiện điều đó thật...
 
-"Cô để cho sinh vật sinh sống ở trong Á Không, thật sự không có vấn đề gì sao?"
+"Cô để cho sinh vật sinh sống ở trong Asora, thật sự không có vấn đề gì sao?"
 
 "Đương nhiên, thực vật mọc tự nhiên, nước và không khí đều không có vân đề gì. Đêm qua tôi đã xem xét kỹ càng rồi! Ngoài ra, tôi còn thử thả động vật vào nữa, gồm cả những loài vốn đã ở đấy ngay từ đầu, chúng hoàn toàn không gặp khó khăn trong việc thích nghi! Công bằng mà nói, có thể gọi đó là một vùng đất có chất lượng khá cao đấy!"
 
@@ -2311,7 +2311,7 @@ Trưởng lão gật mạnh đầu, có vẻ như các Orc rất kiên định v
 
 Trên gương mặt Shin hiện lên nụ cười rạng rỡ.
 
-"Chà, thế sao? Dù vậy, mọi người định giải quyết nơi ở thế nào? Ở trong Á Không làm gì có nhà."
+"Chà, thế sao? Dù vậy, mọi người định giải quyết nơi ở thế nào? Ở trong Asora làm gì có nhà."
 
 Trước mắt mọi người định dựng trại sao? Nhưng tổng số người lên đến hơn một trăm! Chuyện này có vẻ không được rồi.
 
@@ -2361,11 +2361,11 @@ Bắt đầu trò chơi mô phỏng xây dựng thành phố ở nơi Tận cùn
 
 "Chủ nhân, Orc Cao Nguyên đã di cư xong rồi đấy!
 
-Chúng ta hãy chào mừng những cư dân đầu tiên của Á Không nào!"
+Chúng ta hãy chào mừng những cư dân đầu tiên của Asora nào!"
 
 Uầy, thật đấy à! Mọi người đã chuyển vào từ lúc nào vậy?
 
-"Tôi đã để lại phân thân của mình ở phía bên kia để dẫn đường cho họ, nên cậu cứ yên tâm đi. Nơi chúng ta nhắm đến chính là nơi ở của Loài người, chúng ta sẽ đi vào buổi sáng, buổi chiều nghỉ ngơi ở trong Á Không, đến chập tối chúng ta sẽ lại đi tiếp!"
+"Tôi đã để lại phân thân của mình ở phía bên kia để dẫn đường cho họ, nên cậu cứ yên tâm đi. Nơi chúng ta nhắm đến chính là nơi ở của Loài người, chúng ta sẽ đi vào buổi sáng, buổi chiều nghỉ ngơi ở trong Asora, đến chập tối chúng ta sẽ lại đi tiếp!"
 
 Shin đúng là hăng hái quá mức. Mà cái cô này còn có cả kỹ năng đặc biệt như phân thân. Phải báo cáo đầy đủ năng lực bản thân cho chủ nhân của cô biết chứ...
 
@@ -2439,9 +2439,9 @@ Tôi cảm nhận được ác ý thông qua cách nói của Shin, người đa
 
 Vài ngày đã trôi qua từ khi đó. Nói chung, mỗi ngày đều ngột ngạt đến mức khiến tôi vô cùng bức bối, chỉ muốn nôn luôn.
 
-Orc Cao Nguyên xem chừng đã thích ứng được với Á Không. Vào hai bữa ăn trưa và tối, tôi đều hỏi mấy người Emma tình hình gần đây.
+Orc Cao Nguyên xem chừng đã thích ứng được với Asora. Vào hai bữa ăn trưa và tối, tôi đều hỏi mấy người Emma tình hình gần đây.
 
-Nói đến Shin, có vẻ cô ấy nghiêm túc muốn làm ra tivi thật, cô ấy đã thử chế tạo thiết bị chiếu lại ký ức, mỗi lần nghỉ ngơi đều trầm tư suy nghĩ trong Á Không.
+Nói đến Shin, có vẻ cô ấy nghiêm túc muốn làm ra tivi thật, cô ấy đã thử chế tạo thiết bị chiếu lại ký ức, mỗi lần nghỉ ngơi đều trầm tư suy nghĩ trong Asora.
 
 Nghe có vẻ rất khó tin, nhưng tình cờ Shin có biết vài thứ có thể làm trung gian cho ký ức giống như HDD và DVD, và đã chạy đi lấy. Sau khi trở về, trong tay cô ấy là một loại khoáng thạch trong suốt tỏa ra ánh hào quang, dễ thấy rằng đó là một món hàng cao cấp.
 
@@ -2453,7 +2453,7 @@ Cô ấy là người duy nhất có khả năng can thiệp vào khu vực ký 
 
 Cho dù là ký ức mà ngay cả bản thân chủ sở hữu đã quên mất, cô ấy cũng có thể lấy ra được. Nếu đúng vậy thì đó quả là một năng lực hữu dụng. Giống như phát âm thanh và hình ảnh trong đĩa CD bằng thiết bị phát lại, năng lực này có thể nhìn được ký ức vô cùng chi tiết, ngoài ra còn những chức năng nổi trội như có thể tua nhanh, quản lý theo chương... Đợi chút, chẳng lẽ tôi bị coi như là đĩa CD à?!
 
-Vì Shin đang bắt đầu tập trung tạo ra vật trung gian cho ký ức nên cô ấy không ở bên cạnh tôi được, thế nên tôi chỉ còn biết lang thang trong Á Không.
+Vì Shin đang bắt đầu tập trung tạo ra vật trung gian cho ký ức nên cô ấy không ở bên cạnh tôi được, thế nên tôi chỉ còn biết lang thang trong Asora.
 
 Vừa đi dạo, tôi vừa suy nghĩ đến những ngọn núi lửa đang hoạt động trên đường đi tại vùng hoang dã. Hình như ở đó có Người lùn.
 
@@ -2463,9 +2463,9 @@ Nếu đúng như tưởng tượng của tôi, họ là những thợ rèn có 
 
 Chỉ nhìn vào cô gái của Orc Cao Nguyên đang phải cố gắng hết sức để mô phỏng lại Kimono theo mệnh lệnh của Shin, cũng đủ khiến cho nước mắt của tôi rơi xuống... Số người bị hại sẽ còn tiếp tục tăng thêm sao?
 
-Hình như Shin muốn gia tăng nhanh chóng số lượng cư dân của Á Không.
+Hình như Shin muốn gia tăng nhanh chóng số lượng cư dân của Asora.
 
-Cứ theo đà phát triển này, tôi có một cảm giác bất an rằng, đến khi chúng tôi ra khỏi Tận cùng của Thế giới, phần lớn các chủng tộc ở nơi này sẽ bị bắt vào đây hết, rồi Á Không sẽ có quy mô tầm cỡ một quốc gia.
+Cứ theo đà phát triển này, tôi có một cảm giác bất an rằng, đến khi chúng tôi ra khỏi Tận cùng của Thế giới, phần lớn các chủng tộc ở nơi này sẽ bị bắt vào đây hết, rồi Asora sẽ có quy mô tầm cỡ một quốc gia.
 
 Nơi này là vùng hoang dã mà cả Loài người lẫn ma vật đều gọi là "Tận cùng". Hầu hết là những mảnh đất chưa được khai hoang. Cũng có một vài lý do cho việc này. Đầu tiên là vì điều kiện sống khắc nghiệt. Sự chênh lệch nhiệt độ giữa ban ngày và ban đêm vô cùng lớn, cây trồng không thể phát triển. Ngoài ra, ở đây hầu như không có nước sử dụng được. Hơn phân nửa dã thú sinh sống ở đây đều nắm giữ sức mạnh vô cùng tàn bạo, và đương nhiên quy tắc sinh tồn của nơi này chính là cá lớn nuốt cá bé. Trong một môi trường sống như vậy, có lẽ tôi cũng không cần phải nói, chắc hẳn những người bằng cách nào đó tồn tại được ở đây hẳn đều phải có sức chiến đấu đáng kể. Nếu đưa bọn họ ra khỏi chốn hoang vu này, có thể sẽ gây ảnh hưởng tới cán cân sức mạnh của toàn thế giới.
 
@@ -2541,11 +2541,11 @@ Tuy tôi có vài loại thuộc tính, nhưng có thể chắc chắn rằng Th
 
 Ghi nhớ, ghi nhớ nào. Tuy ma lực của tôi ở cấp bậc siêu nhân, nhưng thuộc tính ma pháp có vẻ như không phải vậy.
 
-Ngoài ra, tôi tiếp tục luyện tập ma pháp theo kiểu đó để qua những ngày tháng ở trong Á Không.
+Ngoài ra, tôi tiếp tục luyện tập ma pháp theo kiểu đó để qua những ngày tháng ở trong Asora.
 
 Khi tôi vẫn còn đang trăn trở không biết có nên giúp đỡ công việc của mọi người tộc Orc hay không thì Shin đã ngăn tôi lại, vậy nên tôi cũng chẳng còn việc khác để làm.
 
-Không biết vì sao tôi lại trở thành lãnh chúa của Á Không, nhưng làm người có địa vị cao như vậy qủa thực không hợp với tính cách của tôi.
+Không biết vì sao tôi lại trở thành lãnh chúa của Asora, nhưng làm người có địa vị cao như vậy qủa thực không hợp với tính cách của tôi.
 
 Orc Cao Nguyên đã chuyển toàn bộ ngôi làng tới nơi này, vậy nên ngoại trừ chủ nhân của vài căn nhà đã bị phá hủy, tất cả mọi người đều có nhà riêng cùa mình. Chỉ riêng tôi và Shin là phải ở trong lều, bởi vì căn nhà của chúng tôi đang trong quá trình xây dựng.
 
@@ -2595,7 +2595,7 @@ Dựa vào những bức ảnh, tôi sẽ vẽ lại chân dung của cha mẹ v
 
 Bước ra khỏi lều, tôi đi về phía cánh cửa do Shin tạo ra. Tuy được gọi là cửa, nhưng nó cũng không phải công trình kiến trúc đồ sộ gì mà chỉ là một màn sương mù sáng lấp lánh thôi.
 
-Tôi là chủ nhân của Shin, nhưng không có nghĩa là tôi có thể tạo ra được cánh cửa sương mù kết nối Á Không với thế giới bằng sức mạnh của mình. Tôi đã được cô ấy giải thích và cho xem cách làm, vậy nên hẳn là tôi cũng sẽ làm được sớm thôi. Trong tình huống khẩn cấp, tạo ra một cánh cửa ngay tại chỗ sẽ rất tiện lợi, tôi phải học cho nhanh mới được.
+Tôi là chủ nhân của Shin, nhưng không có nghĩa là tôi có thể tạo ra được cánh cửa sương mù kết nối Asora với thế giới bằng sức mạnh của mình. Tôi đã được cô ấy giải thích và cho xem cách làm, vậy nên hẳn là tôi cũng sẽ làm được sớm thôi. Trong tình huống khẩn cấp, tạo ra một cánh cửa ngay tại chỗ sẽ rất tiện lợi, tôi phải học cho nhanh mới được.
 
 "Chủ nhân."
 
@@ -2639,7 +2639,7 @@ Trông Shin chẳng có vẻ gì là lo lắng.
 
 "Hảả? Ai lại đến thế giới do cô tạo ra chứ?"
 
-Đây là Á Không, là dị giới trong dị giới đấy. Đáng lẽ nơi này phải được ngăn cách tuyệt đối với bên ngoài, vậy tại sao lại có kẻ xâm nhập chứ? Nghiêm túc đấy, làm ơn cho tôi một câu giải thích thỏa đáng đi, con nhỏ vốn là rắn kia!
+Đây là Asora, là dị giới trong dị giới đấy. Đáng lẽ nơi này phải được ngăn cách tuyệt đối với bên ngoài, vậy tại sao lại có kẻ xâm nhập chứ? Nghiêm túc đấy, làm ơn cho tôi một câu giải thích thỏa đáng đi, con nhỏ vốn là rắn kia!
 
 Mau đi tạ lỗi với cha mẹ của chim trĩ và rắn đi, cái đồ chết tiệt này!
 
@@ -2657,7 +2657,7 @@ Trả lời câu hỏi đi... mà khoan, chủ nhân? Nói tôi à?
 
 Tôi quay đầu lại.
 
-Những cái chân đen nhánh trông như CG từ khe nứt không gian đang duỗi vào trong Á Không.
+Những cái chân đen nhánh trông như CG từ khe nứt không gian đang duỗi vào trong Asora.
 
 Khe nứt dần dần mở rộng ra. Mấy cái chân đang chui ra từ bên trong bóng tối của khe nứt, hơn nữa còn có hai chiếc răng nanh đang tỏa ra thứ ánh sáng kỳ lạ.
 
@@ -3033,7 +3033,7 @@ Ta đã nghĩ rằng thuộc tính tương thích hệ Thủy của chủ nhân 
 
 Đòn tấn công lần này không chỉ dựa vào ma lực của bản thân, mà còn sử dụng cả những tác động bên ngoài. Từ nãy đến giờ, cậu ta chỉ chiến đấu bằng ma lực bên trong cơ thể, hơn nữa còn chỉ sử dụng một lượng nhỏ.
 
-Nãy giờ, chủ nhân hẳn là đã nương tay vì lo lắng về cuộc chiến bên trong Á Không và không muôn tíêu phí ma lực.
+Nãy giờ, chủ nhân hẳn là đã nương tay vì lo lắng về cuộc chiến bên trong Asora và không muôn tíêu phí ma lực.
 
 Xem ra cậu ta đã không còn quan tâm đến chuyện đó nữa, và có ý định thổi bay hết tất cả. Vẻ mặt cậu ta hết sức bình tĩnh lạnh lùng, không có bất cứ dấu hiệu dao động nào.
 
@@ -3207,17 +3207,17 @@ Ha ha, chủ nhân của ta đúng thực là một người sẽ không làm ch
 #### **◇◆◇◆◇◆◇◆**
 <br /><br /><br /><br /><br />
 
-Á Không đang mở rộng ra một cách rõ ràng tình hình càng lúc càng trở nên khó lường hơn.
+Asora đang mở rộng ra một cách rõ ràng tình hình càng lúc càng trở nên khó lường hơn.
 
 Ở phía trước của đường chân trời là một cánh rừng rậm rạp. Nơi đó đáng lẽ ra là một thảo nguyên tiếp tục trải rộng mới phải.
 
 Dòng sông vốn chưa từng tồn tại bỗng nhiên xuất hiện, chảy ngang qua ngôi làng của tộc Orc như thể nó đã ở đó từ lâu lắm, rồi tiếp tục chảy về phía hạ lưu và hướng về nơi nào đó... Có biển ở phía trước chăng?
 
-Đó không phải là ảo giác của tôi. Xét về mặt vật lý, càng mở rộng ra thì địa hình càng thay đổi. Mặc dù những bức tường sương mù bao quanh Á Không vẫn tồn tại như cũ, nhưng đã lùi ra (?) một khoảng không nhỏ. Tôi vẫn có thể xác nhận được sự tồn tại của nó từ xa. Xem ra dòng sông chảy đến bức tường sương mù thì biến mất, dường như khu vực này dần trở nên rộng lớn hơn. Xét về mặt tổng thể, thực vật và nguồn nước đã tăng lên. Càng lúc tôi càng cảm thấy nơi này trông giống làng mạc tại Nhật Bản. Mặc dù không có nhà cửa và đồng ruộng, nhưng bầu không khí hệt như nhau.
+Đó không phải là ảo giác của tôi. Xét về mặt vật lý, càng mở rộng ra thì địa hình càng thay đổi. Mặc dù những bức tường sương mù bao quanh Asora vẫn tồn tại như cũ, nhưng đã lùi ra (?) một khoảng không nhỏ. Tôi vẫn có thể xác nhận được sự tồn tại của nó từ xa. Xem ra dòng sông chảy đến bức tường sương mù thì biến mất, dường như khu vực này dần trở nên rộng lớn hơn. Xét về mặt tổng thể, thực vật và nguồn nước đã tăng lên. Càng lúc tôi càng cảm thấy nơi này trông giống làng mạc tại Nhật Bản. Mặc dù không có nhà cửa và đồng ruộng, nhưng bầu không khí hệt như nhau.
 
 ... Nơi này đúng là không ổn định chút nào. Thực sự có thể sinh sống ở đây chứ?
 
-Đặt tay lên trán, tôi thở dài. Không phải là do sự tiến hóa của Á Không, mà là bởi vì tôi chợt nhớ tới một chuyện.
+Đặt tay lên trán, tôi thở dài. Không phải là do sự tiến hóa của Asora, mà là bởi vì tôi chợt nhớ tới một chuyện.
 
 Cuối trận tử chiến với con nhện, tới đã mất đi ý thức, và sau khi tỉnh dậy trong căn lều do tộc Qrc chuẩn bị, tôi thấy bên cạnh mình có một người con gái tóc đen đang chống ba ngón tay xuống và cúi đầu với tôi.
 
@@ -3233,7 +3233,7 @@ Mặc kệ cô gái còn định tiếp tục nói gì đó, tôi bỏ lại m�
 
 Tôi muốn bình tĩnh lại, nhưng rốt cuộc chỉ càng thấy rối bời hơn... tình hình hiện tại chính là như thế.
 
-Á Không chết tiệt, dồn tôi vào tình thế tiến thoái lưỡng nan, không hiểu nổi chuyện gì đang diễn ra thì có cái gì thú vị chứ?! Về sau hy vọng ngươi có thể báo trước một tiếng cho ta trong trường hợp địa hình thay đổi.
+Asora chết tiệt, dồn tôi vào tình thế tiến thoái lưỡng nan, không hiểu nổi chuyện gì đang diễn ra thì có cái gì thú vị chứ?! Về sau hy vọng ngươi có thể báo trước một tiếng cho ta trong trường hợp địa hình thay đổi.
 
 Haiz, thực ra nếu đã thay đổi rồi thì cũng chẳng còn cách nào khác. Không có một ai ở gần đây, có lẽ tôi nên quay về lều thôi.
 
@@ -3271,7 +3271,7 @@ Tôi biết nơi này là căn lều của mình.
 
 Bây giờ hẳn đang là đêm khuya.
 
-Tôi cũng nghe nói thời gian trong Á Không trùng khớp với thời gian của thế giới bên ngoài, nên chắn hẳn không có gì nhầm lẫn.
+Tôi cũng nghe nói thời gian trong Asora trùng khớp với thời gian của thế giới bên ngoài, nên chắn hẳn không có gì nhầm lẫn.
 
 "Shin đang đợi ở bên ngoài."
 
@@ -3313,17 +3313,17 @@ Tôi có nên gọi cô ta là Vô Danh không? Hay nên gọi là bề tôi s�
 
 ... Cho dù tôi có gọi bằng cái tên gì, chúng cũng chẳng phù hợp để xưng hô với một người đẹp chút nào.
 
-Có lẽ tôi nên nghĩ ra một cái tên mới thì hơn. Nếu bây giờ vẫn còn gọi cô ta là "con nhện", có thể chuyện cô ta, hay nói cách khác, chuyện con nhện tấn công Á Không sẽ bị lộ ra ngoài mất.
+Có lẽ tôi nên nghĩ ra một cái tên mới thì hơn. Nếu bây giờ vẫn còn gọi cô ta là "con nhện", có thể chuyện cô ta, hay nói cách khác, chuyện con nhện tấn công Asora sẽ bị lộ ra ngoài mất.
 
-Nhắc đến chuyện con nhện mới nhớ, tôi phải xác nhận xem có phải Shin lại đang dụ dỗ kẻ địch vào Á Không để chiến đấu giống như lần của tôi không. Á Không đã triệt để thay đổi diện mạo khác hẳn với trước đây, hiện tại chắc chắn không phải là nơi thích hợp cho chiến đấu nữa. Tôi muốn tránh chuyện làng Orc đã di cư tới đây bị phơi bày trong nguy hiểm. Xem ra tôi cần phải hỏi cô ấy có còn ý định tiếp tục dùng Á Không giống như trước đây hay không rồi.
+Nhắc đến chuyện con nhện mới nhớ, tôi phải xác nhận xem có phải Shin lại đang dụ dỗ kẻ địch vào Asora để chiến đấu giống như lần của tôi không. Asora đã triệt để thay đổi diện mạo khác hẳn với trước đây, hiện tại chắc chắn không phải là nơi thích hợp cho chiến đấu nữa. Tôi muốn tránh chuyện làng Orc đã di cư tới đây bị phơi bày trong nguy hiểm. Xem ra tôi cần phải hỏi cô ấy có còn ý định tiếp tục dùng Asora giống như trước đây hay không rồi.
 
-Về phương pháp sử dụng Á Không mới, hỏi ý kiến của Shin cũng rất cần thiết.
+Về phương pháp sử dụng Asora mới, hỏi ý kiến của Shin cũng rất cần thiết.
 
 Ví dụ như chuyện xây dựng thành phố mà Shin đã nói tới, bây giờ vẫn chưa bắt tay vào làm, nhưng nếu ý định của cô ta là nghiêm túc, chúng tôi cũng cần phải xác định diện tích đại khái cho vùng đất trước.
 
-Ở xung quanh thành phố, ngôi làng của tộc Orc và của những chủng tộc khác mà sau này chúng tôi sẽ mời vào Á Không, cũng có thể được giữ lại một phần. Cho tới khi chọn được vùng đất để xây dựng thành phố, cũng không cần phải lo lắng gì cả.
+Ở xung quanh thành phố, ngôi làng của tộc Orc và của những chủng tộc khác mà sau này chúng tôi sẽ mời vào Asora, cũng có thể được giữ lại một phần. Cho tới khi chọn được vùng đất để xây dựng thành phố, cũng không cần phải lo lắng gì cả.
 
-Nếu như vậy, để tham khảo cho việc xây dựng thành phố ở trong Á Không, chúng tôi cũng cần phải đi xem thành phố của thế giói này là như thế nào.
+Nếu như vậy, để tham khảo cho việc xây dựng thành phố ở trong Asora, chúng tôi cũng cần phải đi xem thành phố của thế giói này là như thế nào.
 
 Những người tộc Orc cũng đang cố gắng hết sức để cho ngôi làng của mình được yên ổn, vậy nên cho đến khi bọn họ định cư, cứ làm thong thả là được.
 
@@ -3331,7 +3331,7 @@ Nếu như giao toàn bộ mọi việc cho Shin, có khả năng cô ấy sẽ 
 
 Hơn nữa, giống như thế giới trong thời Cổ đại hay thời Trung cổ, có lẽ cô ấy sẽ bắt cư dân làm việc quần quật như ngựa kéo xe mất.
 
-Nếu chẳng may có nổi loạn trong Á Không thì không đùa được đâu.
+Nếu chẳng may có nổi loạn trong Asora thì không đùa được đâu.
 
 "Ồ, chủ nhân, cậu tình rồi sao?"
 
@@ -3389,7 +3389,7 @@ Người lùn bước lên trước một bước, lịch sự cúi đầu.
 
 "Cảm ơn vì sự lịch sự của ông. Vậy, ông Beren, ông nói rằng tôi đã giúp ông? Nếu trí nhớ của tôi chính xác... thì Shin mới là người giúp ông chứ."
 
-"Hả? Không, tôi chỉ mang cái người sắp bị ngấu nghiến đó vào trong Á Không thôi."
+"Hả? Không, tôi chỉ mang cái người sắp bị ngấu nghiến đó vào trong Asora thôi."
 
 Shin, người nãy giờ chi im lặng và lắng nghe cuộc nói chuyện, bỗng xen vào.
 
@@ -3455,7 +3455,7 @@ Ngay cả Shin, người sống ở khu vực này cũng không biết có Ngư�
 
 Beren bỗng im lặng. Nếu đã nói đến như vậy, tôi cũng đã hiểu được đại khái nội dung rồi.
 
-"... Ngài có thể cho phép chúng tôi tiến vào Á Không được chứ?"
+"... Ngài có thể cho phép chúng tôi tiến vào Asora được chứ?"
 
 Đúng vậy. Nơi này an toàn và có nhiều vật tư hơn hẳn chốn hoang dã.
 
@@ -3485,7 +3485,7 @@ Shin nói liến thoắng một loạt các điều kiện, thêm vào hết cá
 
 "Thành phố sao?! Tất nhiên, tôi không có ý kiến gì với điều đó."
 
-Có vẻ Á Không này là một nơi vô cùng dễ sống. Mặc dù ấn tượng của tôi đối với tộc Người lùn là họ tương đối bảo thủ, nhưng trong thực tế, Beren đang đứng trước mắt tôi rất hiểu chuyện, ông ta dễ dàng chấp nhận điều kiện do Shin đưa ra.
+Có vẻ Asora này là một nơi vô cùng dễ sống. Mặc dù ấn tượng của tôi đối với tộc Người lùn là họ tương đối bảo thủ, nhưng trong thực tế, Beren đang đứng trước mắt tôi rất hiểu chuyện, ông ta dễ dàng chấp nhận điều kiện do Shin đưa ra.
 
 "Đúng vậy. Chúng tôi dự định trong tương lai sẽ xây dựng thành phố ở dây. Đương nhiên, nếu các người muốn có ngôi làng của riêng mình, chuyện đó cũng không thành vấn dề."
 
@@ -3505,7 +3505,7 @@ Lại là cái đó sao? Quả thực là phương pháp chuyển nhà đơn gi�
 
 Hành lý lớn để trong nhà, rồi dịch chuyển cả căn nhà luôn... là như vậy sao?
 
-Nếu coi Á Không làm trạm trung chuyển và tiến hành di chuyển, biết đâu lại có thể làm được việc gần với kiểu dịch chuyển tức thời không chừng.
+Nếu coi Asora làm trạm trung chuyển và tiến hành di chuyển, biết đâu lại có thể làm được việc gần với kiểu dịch chuyển tức thời không chừng.
 
 Hmm, vậy hãy để Shin tạo ra một cánh cổng ở nơi chúng tôi thường đi qua đi.
 
@@ -3927,9 +3927,9 @@ Mặc dù thị trấn đang ở ngay trước mắt!!
 
 Sau khi hỏi lý do, Tomoe bảo rằng muốn đợi mấy người tộc Người lùn tới. Nếu vậy thì cũng chẳng còn cách nào khác. Ngày mai tới thị trấn cũng được.
 
-Tôi nhanh chóng chấp thuận và đi vào trong Á Không nghỉ ngơi. Di cư chắc cũng sẽ kết thúc trong khoảng thời gian đó.
+Tôi nhanh chóng chấp thuận và đi vào trong Asora nghỉ ngơi. Di cư chắc cũng sẽ kết thúc trong khoảng thời gian đó.
 
-Nếu giao việc hướng dẫn chi tiết ở bên trong Á Không cho phân thân của Tomoe, có lẽ sẽ không có vấn đề gì đâu.
+Nếu giao việc hướng dẫn chi tiết ở bên trong Asora cho phân thân của Tomoe, có lẽ sẽ không có vấn đề gì đâu.
 
 Ngoài ra, họ còn báo rằng tộc Người lùn sẽ đến chào hỏi tôi vào buổi trưa ngày mai. Không hiểu tộc đó đến vì lý do gì, tôi nghi hoặc đặt lưng lên giường ngủ.
 
@@ -4009,7 +4009,7 @@ Sau khi nhận được sự cho phép bằng ánh mắt của Tomoe và Mio, Be
 
 Những Người lùn đang quỳ gối cũng đồng loạt đứng dậy và tiến về phía trước một bước. Quả đúng là khả năng gây ấn tượng mạnh mẽ không thể diễn tả bằng lời.
 
-"Ngài Makoto, xin hãy tha thứ cho sự vô lễ của tôi vì đã gọi tên của ngài. Bắt đầu từ hôm nay, năm mươi tư người thuộc tộc Người lùn Elder chúng tôi đang có mặt ở đây sẽ sinh sống tại Á Không. Sau này mong ngài hãy giúp đỡ nhiều hơn!"
+"Ngài Makoto, xin hãy tha thứ cho sự vô lễ của tôi vì đã gọi tên của ngài. Bắt đầu từ hôm nay, năm mươi tư người thuộc tộc Người lùn Elder chúng tôi đang có mặt ở đây sẽ sinh sống tại Asora. Sau này mong ngài hãy giúp đỡ nhiều hơn!"
 
 "Ừ, tôi cũng rất mong nhận được sự giúp đỡ của mọi người. Tôi là Makoto. Tôi cũng không phiền nếu mọi người gọi tôi bằng tên đâu."
 
@@ -4183,7 +4183,7 @@ Dứt lời, tôi bước về phía cửa ra.
 
 Tomoe và Mio có vẻ đã chấp thuận, chắc hẳn họ sẽ không đi theo tôi đâu.
 
-Nếu như Á Không xảy ra tranh chấp, đến lúc ấy tôi sẽ nghĩ ra cách gì đó!
+Nếu như Asora xảy ra tranh chấp, đến lúc ấy tôi sẽ nghĩ ra cách gì đó!
 
 Dù sao đi nữa, hiện tại tôi phải đi tới thị trấn.
 
@@ -4271,7 +4271,7 @@ Nhìn thấy cảnh đó, những người cầm kiếm và thương đang lao t
 
 Xem ra những cư dân này chỉ tạm thời quan sát tình huống, sau đó họ sẽ tấn công bất cứ lúc nào với quyết tâm sống chết không từ. Nếu như bây giờ tôi không rút lui, có lẽ tình hình sẽ trở nên không thể cứu vãn.
 
-Tôi xoay người lại và bỏ chạy hết tốc lực. Với tốc độ ngay cả ngựa cũng không đuổi kịp, tôi hất tung đám bụi mù và quay trở vào Á Không.
+Tôi xoay người lại và bỏ chạy hết tốc lực. Với tốc độ ngay cả ngựa cũng không đuổi kịp, tôi hất tung đám bụi mù và quay trở vào Asora.
 
 ![][IMG_0116.PNG]{:class="img-fluid"}
 
@@ -4301,7 +4301,7 @@ Ngôn ngữ chung chính là ngôn ngữ mà toàn bộ Loài người của th�
 
 Không thể tiếp nhận được hiện thực, tôi còn nghĩ không biết có phải mình đã bị Tomoe và Mio chọc ghẹo hay không, vì thế tôi đã thử thực hiện một vài thí nghiệm.
 
-Từ những người dân hiện đang được phép định cư tại Á Không, tôi chọn ra đại biểu của từng chủng tộc, tập trung lại một chỗ và thử nghe họ nói chuyện bâng quơ với nhau. Kết quả, chỉ mình tôi hiểu được hết các ngôn ngữ của tất cả chủng tộc.
+Từ những người dân hiện đang được phép định cư tại Asora, tôi chọn ra đại biểu của từng chủng tộc, tập trung lại một chỗ và thử nghe họ nói chuyện bâng quơ với nhau. Kết quả, chỉ mình tôi hiểu được hết các ngôn ngữ của tất cả chủng tộc.
 
 Chủng tộc khá xuất sắc là tộc Orc. Bọn họ có thể miễn cưỡng giao tiếp được với các chủng tộc khác, vì vậy họ có thể trở thành một chiến lực to lớn trong công cuộc vận hành thành phố sau này.
 
@@ -4371,7 +4371,7 @@ Tôi không muốn tin, cũng không muốn thừa nhận, nhưng nguyên nhân 
 
 Hình như khi bước đi, tôi đã tỏa ra một lượng ma lực vô cùng không lồ. Đó là một lượng ma lực lớn đến mức ngay cả người bình thường cũng nhận ra được tôi là kẻ bất thường. Nói một cách cụ thế, người ta có thể nhìn thấy cảnh vật trong khoảng vài chục mét xung quanh tôi bị bóp méo.
 
-Mọi người trong Á Không đương nhiên là nhận ra được ma lực khổng lồ mà tôi phóng ra.
+Mọi người trong Asora đương nhiên là nhận ra được ma lực khổng lồ mà tôi phóng ra.
 
 Tuy nhiên, khác ở một chỗ là chúng tôi có thể giao tiếp được với nhau, hơn nữa tôi còn có một con rồng với vẻ bề ngoài là Loài người điều khiến được không gian làm bề tôi. Ngoài ra, bản thân họ cũng không hề tỏ vẻ đế ý tới sự rò rỉ của ma lực.
 
@@ -4381,7 +4381,7 @@ Không ngờ mọi người vốn chẳng hề nghĩ tôi đang vô thức tỏa
 
 Sau đó nói cho tôi biết một tiếng được chứ?
 
-Gần đây, Emma, người đặc biệt giỏi về giao tiếp ở trong tộc Orc, nhân vật quan trọng của Á Không, đã nói rằng cô ấy "không hề cảm nhận được ma lực" lúc mới gặp tôi. Đó là vì khi ấy ma lực bị phong ấn trong thân thể sao?
+Gần đây, Emma, người đặc biệt giỏi về giao tiếp ở trong tộc Orc, nhân vật quan trọng của Asora, đã nói rằng cô ấy "không hề cảm nhận được ma lực" lúc mới gặp tôi. Đó là vì khi ấy ma lực bị phong ấn trong thân thể sao?
 
 Kể từ khi tôi biết đến ma thuật tại hang động - nơi thanh tẩy cơ thể, ma lực đã rò rỉ ra ngoài và tràn đầy, giống như cái nắp nồi bị mở tung.
 
@@ -4483,11 +4483,11 @@ Thậm chí tôi còn là món chính nữa. Uaaaa, thất bại! Đúng thật 
 
 Kể từ bây giờ, tôi phải mang theo hai người kia tiếp tục cuộc hành trình ư? Mặc dù ngoài rào cản ngôn ngữ, tôi còn phải chịu đựng nhiều điều bất lợi khác nhưng tôi vẫn sẽ cố gắng hết sức. Tôi nhất quyết không chịu thua bởi vì tôi biết, phía trước còn có tương lai tươi sáng đang chờ đợi mình.
 
-Với những đại biểu của các chủng tộc, tôi đã trực tiếp giao chỉ thị cho bọn họ, vì vậy cho dù chúng tôi vắng mặt khỏi Á Không chắc cũng không có vẩn đề gì.
+Với những đại biểu của các chủng tộc, tôi đã trực tiếp giao chỉ thị cho bọn họ, vì vậy cho dù chúng tôi vắng mặt khỏi Asora chắc cũng không có vẩn đề gì.
 
 Như vậy, cuối cùng tôi cũng có thể bắt đầu cuộc hành trình.
 
-Theo kết quả của cuộc họp bàn, thiết lập của tôi - kẻ có ngoại hình kỳ quặc đạt điểm tối đa, sẽ là con trai của một thương nhân có tài sản kếch xù ngao du khắp nơi để học tập và rèn luyện. Tôi mang theo hai người với vai trò là vệ sĩ kiêm người hầu cùng đồng hành và buôn bán những vật phẩm quý hiếm. Những vật phẩm quý hiếm đó là trái cây tươi sạch và các sản phẩm do người dân Á Không làm ra. Một căn bệnh thời thơ ấu đã khiến tôi mất đi giọng nói, hơn nữa còn phải đeo chiếc nhẫn và mặt nạ bị nguyền rủa, chịu đủ loại bất tiện. Đúng là một thiết lập siêu khó tín.
+Theo kết quả của cuộc họp bàn, thiết lập của tôi - kẻ có ngoại hình kỳ quặc đạt điểm tối đa, sẽ là con trai của một thương nhân có tài sản kếch xù ngao du khắp nơi để học tập và rèn luyện. Tôi mang theo hai người với vai trò là vệ sĩ kiêm người hầu cùng đồng hành và buôn bán những vật phẩm quý hiếm. Những vật phẩm quý hiếm đó là trái cây tươi sạch và các sản phẩm do người dân Asora làm ra. Một căn bệnh thời thơ ấu đã khiến tôi mất đi giọng nói, hơn nữa còn phải đeo chiếc nhẫn và mặt nạ bị nguyền rủa, chịu đủ loại bất tiện. Đúng là một thiết lập siêu khó tín.
 
 Rốt cuộc tôi bất hạnh đến mức nào vậy? Còn "đủ loại bất tiện" là cái quái gì thế...
 
@@ -4513,11 +4513,11 @@ Có vẻ như không ai nghĩ rằng tôi chính là kẻ lạ mặt khả nghi 
 
 Mặc dù chỉ là ứng phó tạm thời, nhưng chúng tôi cũng chuấn bị xe ngựa thích hợp để vận chuyển hành lý. Chúng tôi cũng mang theo cả hàng hóa quý hiếm, thế nên thay vì bị nghi ngờ, có thể nói rằng chúng tôi đã rất được hoan nghênh.
 
-Người đàn ông gác cổng vô cùng hứng thú đối với các loại quả, trái cây. Chúng tôi nhanh chóng bỏ trái cây đã hái được ở Á Không vào thùng, sẽ rất rắc rõỉ nếu như chúng tôi bị chú ý quá mức.
+Người đàn ông gác cổng vô cùng hứng thú đối với các loại quả, trái cây. Chúng tôi nhanh chóng bỏ trái cây đã hái được ở Asora vào thùng, sẽ rất rắc rõỉ nếu như chúng tôi bị chú ý quá mức.
 
 Xung quanh nơi đây đều là những vùng đất hoang vu khô cằn, vậy nên sản phẩm như vậy chắc hẳn sẽ rất được chào đón. Ngẫm lại thì tôi chưa từng nhìn thấy một cái cây nào có thể ra quả ở nơi này. Trái cây có lẽ sẽ được coi là một loại sản vật quý giá.
 
-Trong chủng tộc Người lùn Elder đã di cư tới Á Không, có người từng sinh sống tại thị trấn của Loài người, vì vậy tôi đã nhờ người đó chỉ cho tôi biết giá trị của các hàng hóa, nhưng tại một nơi đặc thù như ở đây, cái đó chỉ có thể dùng để tham khảo. Bản thân thông tin ấy cũng đã cũ, nên tôi nghĩ rằng mình nên tìm hiểu thêm kiến thức để đề phòng.
+Trong chủng tộc Người lùn Elder đã di cư tới Asora, có người từng sinh sống tại thị trấn của Loài người, vì vậy tôi đã nhờ người đó chỉ cho tôi biết giá trị của các hàng hóa, nhưng tại một nơi đặc thù như ở đây, cái đó chỉ có thể dùng để tham khảo. Bản thân thông tin ấy cũng đã cũ, nên tôi nghĩ rằng mình nên tìm hiểu thêm kiến thức để đề phòng.
 
 Tuy vẫn giữ ý định làm thương nhân, nhưng tôi cũng muốn đăng ký làm mạo hiểm giả. Người lùn đó đã nói cho tôi biết rằng có một tổ chức mang đầy tính kỳ ảo tồn tại, chính là Hội mạo hiềm giả.
 
@@ -5493,7 +5493,7 @@ Bởi cậu thiếu niên ở quầy tiếp tân đã bị chúng tôi hăm dọ
 
 "Ừm, và?"
 
-"Buôn bán mà không có chứng nhận của Hội là vi phạm quy định. Thị trấn gần nhất có thể cấp và phát hành lại thẻ có tên là Ziege."
+"Buôn bán mà không có chứng nhận của Hội là vi phạm quy định. Thị trấn gần nhất có thể cấp và phát hành lại thẻ có tên là Tsige."
 
 "Khoảng cách?"
 
@@ -5527,7 +5527,7 @@ Có lẽ tôi sẽ có được một khoản thu nhập kha khá.
 
 Như vậy, cuối cùng đã kết thúc một ngày. Nhưng chúng tôi cũng không thể thư thả quá mức. Dù sao vẫn còn rất nhiều chuyện cần phải làm.
 
-Ngày hôm nay tôi sẽ nhanh chóng đi ngủ mà bỏ qua việc đi vào Á Không.
+Ngày hôm nay tôi sẽ nhanh chóng đi ngủ mà bỏ qua việc đi vào Asora.
 
 "Phải rồi. Nhớ chú ý động thái của mấy kẻ bám đuôi nữa."
 
@@ -5617,7 +5617,7 @@ Một điều đáng mừng rằng thiếu chủ nắm được khá nhiều tri
 
 Sau đó, ta nhìn vào đống hành lý.
 
-Đó là trái cây bên trong Á Không. Chúng hình như giống với trái cây có ở thế giới của thiếu chủ. Vậy nên chuyện chúng có ăn được hay không là do cậu ấy phán đoán.
+Đó là trái cây bên trong Asora. Chúng hình như giống với trái cây có ở thế giới của thiếu chủ. Vậy nên chuyện chúng có ăn được hay không là do cậu ấy phán đoán.
 
 Mỗi trái đều tràn ngập sức sống, vô cùng mọng nước. Hương vị cũng rất ngon.
 
@@ -6329,7 +6329,7 @@ Tôi có thể nói chuyện với chúng, vậy nên chắc chúng cũng hiểu
 
 Bởi vậy, tôi chỉ cầm dây cương cho có thôi chứ toàn trực tiếp chỉ thị con ngựa di chuyên.
 
-Tuy nhiên, giờ tôi không thể làm thế vì tôi không muốn củng cố thêm hình tượng một con người kỳ quái của mình chút nào. Ban đầu năng lực đó rất hữu dụng, nhưng khi nhìn thấy dáng vẻ ngồi trên xe ngựa của tôi trong Á Không, Tomoe đã nói rằng, "Người nói chuyện được với ngựa bằng thứ ngôn ngữ kỳ lạ đúng là quái nhân", khiến tôi vô cùng ngạc nhiên, và quyết định phong ấn năng lực ấy.
+Tuy nhiên, giờ tôi không thể làm thế vì tôi không muốn củng cố thêm hình tượng một con người kỳ quái của mình chút nào. Ban đầu năng lực đó rất hữu dụng, nhưng khi nhìn thấy dáng vẻ ngồi trên xe ngựa của tôi trong Asora, Tomoe đã nói rằng, "Người nói chuyện được với ngựa bằng thứ ngôn ngữ kỳ lạ đúng là quái nhân", khiến tôi vô cùng ngạc nhiên, và quyết định phong ấn năng lực ấy.
 
 ... Tôi thật sự không muốn bị một cô gái mơ tưởng làm samurai ở thế giới khác nói như vậy đâu.
 
@@ -6561,7 +6561,7 @@ Người đàn ông gọi những người đồng nghiệp tới ăn thử đà
 
 ... Tuy tôi chỉ chọn đại bốn loại quả này, nhưng bất kể loại nào cũng ngon hơn nhiều so với giống ban đầu.
 
-Không chỉ vậy, tôi thực sự giật mình trước sự bừa bãi của thực vật phát triến trong Á Không. Cả mùa vụ lẫn phân bón cũng chẳng cần mà cứ thế phát triển.
+Không chỉ vậy, tôi thực sự giật mình trước sự bừa bãi của thực vật phát triến trong Asora. Cả mùa vụ lẫn phân bón cũng chẳng cần mà cứ thế phát triển.
 
 Sau này, tôi định cải tiến chủng loại, nhưng không biết nó có khó khăn quá hay không.
 
@@ -7473,7 +7473,7 @@ Không được rồi, chuyện này chắc chắn là không được rồi! T�
 
 Tomoe, trước tiên phải xử lý riêng với cô ta đã. Có vẻ như cô ta rất thích làm võ giả, nếu nói chuyện với cô ta, có lẽ cô ta sẽ đồng ý hành động một mình. Cứ làm thế đi.
 
-Mio biết nghe lời hơn nhiều so với Tomoe. Miễn là chuyện có thể giải quyết, khống chế Mio cũng dễ dàng hơn nhiều. Cứ để cô ấy làm hộ vệ đi, nói tóm lại, tôi cần phải nhanh chóng đi tới thị trấn Ziege.
+Mio biết nghe lời hơn nhiều so với Tomoe. Miễn là chuyện có thể giải quyết, khống chế Mio cũng dễ dàng hơn nhiều. Cứ để cô ấy làm hộ vệ đi, nói tóm lại, tôi cần phải nhanh chóng đi tới thị trấn Tsige.
 
 Nếu như không có Trouble Maker Tomoe, có lẽ sẽ không xảy ra chuyện phiền phức cũng nên... chắc vậy.
 
