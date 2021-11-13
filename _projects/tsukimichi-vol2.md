@@ -4016,12 +4016,2538 @@ Tên thuật sĩ bị đánh bay, mặt hắn ma sát với nền đất, thậm
 
 "Thiếu chủ, thật tuyệt vời!"
 
+Tomoe cảm thán.
 
+Gã đàn ông cao gầy há hốc miệng nhìn tên thuật sĩ đã hoàn toàn bị biến dạng.
+
+"Chỉ còn lại một mình ngươi. Ngoan ngoãn đầu hàng đi."
+
+"Đừng có đùa với ta!"
+
+"Hô!"
+
+"Cái...!"
+
+"Này."
+
+"Không thể nàoooooo?!"
+
+"Hây a."
+
+"Ư?! M-máu mũi?!! Đừng coi thường ta..."
+
+"Trúng rồi."
+
+"Hả? Mình... bầu trời... hả??"
+
+"Hmm."
+
+"Aaa! Xin hãy tha cho tôi! Chuyện gì tôi cũng làm!"
+
+À ừm, nếu phải giải thích thì...
+
+Sau câu nói của Tomoe, gã đàn ông đó vô cùng tức giận, hắn rút dao găm ra định chém, nhưng Tomoe đã vứt kiếm đi và dùng tuyệt kỹ tay không chặn dao sắc.
+
+Sau đó, một tiếng "rắc" khẽ vang lên, con dao gặm bị Tomoe bẻ gãy, rồi cô ấy thuận thế dùng tay đấm thẳng vào mặt hắn.
+
+Tiếp đó, Tomoe gạt chân và ném bay gã đàn ông vẫn còn đang cố gắng chống cự lên cao.
+
+Tomoe nhặt thanh Kogarasumaru rơi ngay cạnh gã đàn ông đang lăn tròn và ngã ngửa trên mặt đất, tôi có cảm giác giây phút cô đâm xuống, gã ta lập tức đầu hàng.
+
+... Lime à, yếu quá đấy~!
+
+"Thiếu chủ, ngài có gì muốn hỏi không?"
+
+Chẳng biết từ lúc nào, Lime đã lặng lẽ quỳ gối trên mặt đất.
+
+[Vì sao lại tấn công bọn ta?]
+
+Nhìn thấy khung lời thoại, Lime giật mình trong thoáng chốc. Tuy nhiên, gã nhanh chóng thu lại biểu cảm thất thố của mình.
+
+"Chữ, chữ viết...? A, không, chẳng có gì kỳ lạ hết! Không có gì đâu! Lý do, phải rồi, là lý do phải không?"
+
+Cảm nhận được sự tức giận của Tomoe, gã đàn ông lập tức nuốt lại lời thắc mắc ngớ ngẩn vào cổ họng, rồi bắt đầu trả lời câu hỏi của tôi.
+
+Theo lời Lime, khi thương hội Rembrandt mở rộng quy mô, những tổ chức giống như công ty con đã được tạo ra nhằm đảm nhiệm tất cả yêu cầu vận chuyên và yêu cầu thu thập cấp thấp. Kết quả, những nhiệm vụ đơn giản mà mạo hiểm giả có thể tiếp nhận đã bị sụt giảm nghiêm trọng.
+
+Đối với mạo hiểm giả có thực lực, số tiền đó chẳng đáng là bao, chỉ như tiền tiêu vặt bị giảm đi mà thôi, nhưng trong mắt nhóm mạo hiểm giả yếu ớt, đó chính là vấn đề sống còn. Có người phải từ bỏ và đi tới thị trấn khác, nhưng trong số đó, cũng có những người đã chết vì đói.
+
+Và với tình trạng mọi thứ cứ tiếp diễn như vậy, nỗi tức giận khiến họ nghĩ tới việc trả thù, họ đã lập kế hoạch và thực hiện nó, đó chính là ngọn nguồn của sự việc lần này.
+
+Đứng ở vị trí của những người đó, có lẽ họ cảm thấy mình mới là cây búa công lý. "Không thể để tên thương nhân thất đức đó độc chiếm hết lợi ích!", họ đã nghĩ như vậy.
+
+Nếu ông Rembrandt bị các mạo hiểm giả tại Ziege oán hận, tôi cũng có thể lý giải được tại sao yêu cầu thu thập mắt của Ruby Eye không thể hoàn thành. Chắc hắn sẽ chẳng có mạo hiểm giả nào nhận yêu cầu và thực hiện nghiêm túc cả. Nói không chừng, từ lúc nhận yêu cầu đó, tôi đã trở thành mục tiêu của họ rồi.
+
+Vậy nên Lime - người có thứ hạng cao nhất tại Ziege đã giúp họ một tay và tham gia vào cuộc tập kích với vai trò là người thực hiện việc phục thù sao?
+
+... Nói thế nào đây, tôi cho rằng những mạo hiểm nàỵ đang tự làm tự chịu.
+
+Thay vì đi đến nơi hoang dã, họ chỉ muốn nhận những yêu cầu dễ thực hiện ở xung quanh Ziege, vậy thì làm mạo hiểm giả còn có ý nghĩa gì nữa chứ? Rút lui và tìm công việc khác chẳng phải sẽ tốt hơn sao?
+
+Tôi không thể đồng tình với chuyện này được. Chỉ vì lý do đó mà đày đọa gia đình ông Rembrandt bằng lời nguyền kinh khủng kia thì quá ích kỷ.
+
+[Tuy nhiên, các người không cảm thấy cắn rứt lương tâm khi sử dụng thủ đoạn độc ác như thế sao?]
+
+"Thủ đoạn độc ác ư...? chẳng phải đó chỉ là lời nguyền chìm vào giấc ngủ mấy năm thôi sao? Tuy tôi có nghe rằng lời nguyền đó đã được yểm thêm một thuật thức mạnh để không bị giải trừ nửa chừng..."
+
+Hửm? Tên này đang nói dối à?
+
+[Ngươi đang nói gì vậy? Lời nguyền mà người thân của ông Rembrandt mắc phải là chú bệnh cấp 8 chắc chắn có thể dẫn tới tử vong. Hơn nữa còn kèm theo cả một lựa chọn đầy hung ác.]
+
+"Hả?"
+
+"Ngươi đang giả ngốc đấy à?"
+
+Tomoe rút kiếm ra, tỏ vẻ muốn chém.
+
+"T-tôi không hề nói dối!! Đừng giết tôi! Chúng tôi chỉ muốn dạy cho tên Rembrandt đó một bài học đau đớn vì đã cướp đoạt sinh kế của các mạo hiểm giả mà thôi!"
+
+Vẻ mặt Lime trông không giống như đang nói dối.
+
+Tuy nhiên, để chắc chắn, tôi sẽ mượn sức mạnh của Tomoe.
+
+Tôi trao đổi với Tomoe bằng Niệm Thoại:
+
+(Tomoe, cô có thể nhìn vào ký ức của tên này không?)
+
+(Cứ giao cho lão.)
+
+Tomoe gật đầu, tôi yên lặng đứng đợt một lát.
+
+"Tên này không nói dối."
+
+Xem ra Tomoe đã kiểm tra ký ức của gã. Nếu vậy thì chẳng cần tra khảo thêm nữa.
+
+... Thật tình, cuộc nói chuyện này trục trặc ở chỗ nào vậy? Mặc dù có chút hiểu lầm, nhưng (đa phần) không có ai phải chết, tình hình cũng khá tốt, phải không?
+
+Tôi không thể nói chuyện này đã kết thúc tốt đẹp, nhưng tạm thời vụ việc đã được giải quyết xong. Giờ Tomoe đã nhìn thấy ký ức của gã, tôi cũng không cần tiếp tục gặng hỏi Lime nữa. Chưa chắc toàn bộ lời gã nói đã là thật, lát nữa xem xét kỷ ức mà Tomoe thu được là xong.
+
+[Thôi được rồi.]
+
+"! Cậu bỏ qua cho tôi sao?"
+
+[Đúng vậy. Tốt hơn là mau chữa trị cho đồng bọn của ngươi đi.]
+
+"Vâng! Xin lỗi!"
+
+Ngay lúc Lime định đứng dậy, tay của gã chợt bị nắm lấy.
+
+"Gì, gì vậy? Cô gái đồ đen?"
+
+Người giữ gã lại chính là Mio, chẳng biết từ lúc nào cô ấy đã quay lại bên cạnh chúng tôi.
+
+"Tiền."
+
+"A, phải rồi, tiền đúng không? Tôi hiểu rồi... Hả?"
+
+Mio cướp chiếc túi đựng tiền từ tay Lime, rồi dốc hết toàn bộ số tiền bên trong vào tay mình. Vốn đã thỏa thuận là mười đồng vàng, nhưng rõ ràng cô ấy còn lấy nhiều hom thế.
+
+"A, rốt cuộc đây là..."
+
+"Trả ngươi."
+
+Mio trả chiếc túi rỗng lại cho gã.
+
+"Không không không! Chẳng phải cô lấy quá nhiều sao?!"
+
+"Lợi tức."
+
+Tiền lãi vài chục đồng vàng á? Đến cả dân cho vay nặng lãi cũng phải tái xanh mặt mày.
+
+Có vẻ đó là từ mà Mio mới học được gần đây, nhưng cách sử dụng thì lại sai lầm nghiêm trọng.
+
+"Lợi... lợi tức?"
+
+"Đúng vậy, lợi tức."
+
+"... Vậy cũng quá nhiều rồi."
+
+Rõ ràng là thế.
+
+"LỢI-TỨC."
+
+Mio nhấn mạnh từng chữ một.
+
+"... V-vâng, được rồi."
+
+Mio đe dọa hắn ta bằng ánh mắt... Quả là một đứa trẻ đáng sợ. Lime hơi đáng thương rồi đấy.
+
+Thật tội nghiệp khi để gã trở về như thế, thôi thì tôi giúp một chút vậy.
+
+[Con dao mà người đồng hành của tôi đã làm gãy có vẻ là một món đồ khá tốt. Ngày mai tôi sẽ chuẩn bị một thứ khác tương xứng để bồi thường.]
+
+Tôi vỗ vai Lime để gã thấy khung lời thoại.
+
+"Hả?"
+
+Tôi gật đầu trước câu hỏi tỏ vẻ khó hiểu của gã. Tôi cảm nhận được ma lực từ con dao bị vỡ nát trên mặt đất. Chắc chắn đó là một con dao đã được yểm ma pháp.
+
+[Hửm, tôi sẽ để lại lời nhắn tại Hội mạo hiểm giả dưới cái tên Raidou. Xin lỗi. Vậy, chúng tôi xin phép đi trước.]
+
+"Thiếu chủ! Ngài đâu cần phải làm thế~"
+
+"A, thiếu chủ, đợi tôi với-"
+
+Không biết có phải vì chịu ảnh hưởng bởi hành vi của Mio với Lime hay không, Tomoe cũng đang định lục đồ của đám người đang nằm rên rỉ trên mặt đất. Cũng bởi muốn ngăn cô ấy lại, tôi liền nhanh chân rời khỏi nơi này.
+
+Đúng thật là... hành vi như vậy có khác gì chặn đường cướp của chứ!
+
+<br /><br /><br /><br /><br />
+# **Chapter 5**
+<br /><br /><br /><br /><br />
+
+#### **◇◆ Tomoe ◇◆**
+<br /><br /><br /><br /><br />
+
+Ngày hôm sau.
+
+Thiếu chủ cùng Lime Latte ghé thăm dinh thự Rembrandt, tạ tội với gia chủ về chuyện chú bệnh.
+
+Mặc dù kế hoạch đã thất bại, nhưng việc Lime cố gắng báo thù nhà Rembrandt là sự thật không thể chối cãi. Vì vậy thái độ cứng rắn của Rembrandt cũng là chuyện đưong nhiên.
+
+Tuy nhiên, ngoài nhờ cậy thiếu chủ, lão và Mio giúp đỡ, Lime còn liên tục cầu xin Rembrandt thứ tội, hết ngày này sang ngày khác.
+
+Nể mặt thiếu chủ - người đứng giữa trong sự việc lần này và cũng là ân nhân của mình, cuối cùng Rembrandt đã đồng ý tha thứ cho Lime.
+
+Để chuộc tội, Lime cần bồi thường tiền tài, nhưng đương nhiên, mọi chuyện không chỉ dễ dàng như vậy.
+
+Cậu ta đã từ bỏ công việc mạo hiểm giả.
+
+Rembrandt vốn chi yêu cầu Lime hạn chế hoạt động mạo hiểm giả, nhưng cậu ta lại tự mình đưa ra quyết định cực đoan như vậy.
+
+"Sau này anh định thế nào?"
+
+Trước câu hỏi đó của thiếu chủ, Lime mỉm cười đáp: "Bởi vì tôi vẫn còn nhiều mối quan hệ, nên chắc sẽ tìm được việc thôi".
+
+Cậu ta mới khoảng hai mươi lăm tuổi, vẫn còn cơ hội làm lại từ đầu, nên thiếu chủ cũng không hỏi thêm nữa.
+
+Cách dinh thự Rembrandt một đoạn đường ngắn là một gò đất nhỏ. Đứng trên đó có thể nhìn thấy toàn cảnh thị trấn Ziege.
+
+Lime đang đứng đó một mình. Lão im lặng bước tới gần.
+
+"Có nhiều công việc... Nói thì nói vậy, nhưng thực tế có rất ít công việc phù hợp với điều kiện của mình. Vậy nên, chỉ có thể..."
+
+"Vậy nên cậu định bước chân vào thế giới ngầm à?"
+
+"?!"
+
+Ngạc nhiên khi có người đến bắt chuyện, Lime hoảng hốt quay đầu lại.
+
+"Rốt cuộc cậu muốn làm gì, Lime?"
+
+"... Đại tỷ Tomoe? Đây đâu phải là nơi cô nên tới."
+
+An tâm vì đối phương không phải kẻ địch, vẻ mặt của Lime liền thả lỏng.
+
+"Hmm, thì ra là vậy. 'Đó' là điều kiện của cậu à?"
+
+"Cái...?!"
+
+Kinh ngạc với những lời lão nói, Lime lặng người nhìn lão chằm chằm.
+
+... Lão thừa hiểu điều mà Lime đang nghĩ.
+
+Đứng ở nơi khá cao này, cộng với bộ dạng dõi theo tòa kiến trúc ở phía xa kia... Chẳng phải điều đó rất rõ ràng sao?
+
+Đó chính là nơi Lime đang chú ý tới.
+
+"Hằng tháng, cậu đều hỗ trợ nơi đã từng chăm sóc mình. Hơn nữa, cậu không có tham vọng làm mạo hiểm giả mà thay vào đó lại mong muốn làm một công việc chính đáng hơn sao? Thực tế, với những vấn đề gặp phải trong công tác giáo dục, chỉ dựa vào số tiền ủng hộ thì chắc chắn không đủ."
+
+"Quả nhiên mọi người không chỉ có sức mạnh hoang đường. Ngài Raidou, và cả đại tỷ cũng vậy. Từ trước đến giờ, chưa có một ai biết được mối quan hệ giữa tôi và nơi đó."
+
+Không để ý tới lời Lime, lão nói tiếp:
+
+"... Thực ra đâu cần phải dùng phương pháp phiền toái như vậy, tất cả mọi người trở thành mạo hiểm giả và cùng chăm sóc họ chẳng phải sẽ tốt hơn sao?"
+
+Lime ngồi sụp xuống, rồi ngẩng đầu lên nhìn lão với vẻ mặt nửa như đã từ bỏ nửa như không dám tin.
+
+Lão có thể dễ dàng điều tra ra được chuyện Lime che giấu thân phận mạo hiểm giả là nhờ...
+
+... Năng lực đọc ký ức của con người.
+
+Hơn nữa, đó còn là một năng lực cường đại không có bất cứ rủi ro nào.
+
+Chắc chắn đối tượng không thể khai man được.
+ 
+"... Làm ơn đừng nói điều ngây thơ như vậy. Tôi biết rất rõ về công việc của mạo hiểm giả. Trong thâm tâm tôi vẫn nghĩ, nếu có con đường khác, tôi cũng sẽ không chọn công việc này. Hơn nữa, nếu kẻ khác biết tôi có liên quan tới cô nhi viện kia, ai biết được chuyện phiền toái gì sẽ xảy ra."
+
+Nếu nhược điểm của một mạo hiểm giả nổi tiếng bị lộ ra ngoài, đương nhiên sẽ có kẻ nắm lấy cơ hội để uy hiếp.
+
+Chưa nói tới một cá nhân, nếu toàn bộ cô nhi viện trở thành nhược điểm, cho dù bản thân cậu ta cố gắng hết sức cũng không thể bảo vệ được tất cả. Có lẽ Lime đã dự đoán được bi kịch gì đang chờ đợi mình phía trước.
+
+"Thật may vì tôi có khả năng làm mạo hiểm giả, nhưng công việc đó không thể làm được lâu dài, chỉ mới leo lên vị trí cao hơn một chút mà đã trở nên kiêu ngạo rồi. So với tôi..."
+
+"Cô gái bằng tuổi cậu đang phải một mình chống đỡ cô nhi viện kia mới càng vĩ đại hơn, đúng không?"
+
+"... Ôi trời. Tôi dễ nhìn thấu đến vậy sao?"
+
+"Ừ, rất dễ. Hãy học tập thiếu chủ nhà lão một chút đi."
+
+Lime gượng cười, đáp lại:
+
+"Người đó quả thật vô cùng bí ẩn."
+
+Trước khi tập kích, Lime đã cố gắng thu thập thông tin của thiếu chủ, nhưng đối với một nhân vật bất ngờ xuất hiện từ nơi hoang dã, làm sao cậu ta nắm được thông tin chi tiết chứ. Suy nghĩ của Lime quá dễ nắm bắt. Thực tế, tính cách của cậu ta cũng rất đơn thuần.
+
+"Ha ha. Này, đây là quà tặng từ vị thiếu chủ bí ẩn đó đấy."
+
+"Hả... kiếm à?"
+
+Tiếp được cây kiếm do lão ném qua, Lime vô cùng kinh ngạc.
+
+"Kiếm?" Thốt ra một câu hỏi như vậy cũng là chuyện bình thường.
+
+Lưỡi kiếm khá mỏng. Chuôi kiếm còn được thiết kế độc đáo.
+
+Đó là thứ vũ khí tương tự kiếm Nhật, người chưa từng được thấy Katana như Lime đương nhiên không thể hiểu được rồi.
+
+Khoảnh khắc rút thanh kiếm ra khỏi vỏ, cảm nhận được sức mạnh của nó, Lime hít sâu một hơi.
+
+"Hô! vừa cầm vào tay cậu đã hiểu được giá trị của nó rồi sao. Ban đầu lão đã định gửi nó tại Hội nhưng lại nhìn thấy cậu trước nên đưa cho cậu luôn, có điều... bây giờ cậu muốn suy nghĩ lại không?"
+
+Nhìn phản ứng khi cầm thanh Katana trên tay của Lime, lão cảm thấy rất vui vẻ.
+
+Lime đứng dậy, đè tay lên miệng vỏ kiếm và rút thanh Katana ra khỏi vỏ.
+
+"Như vậy phải không...? Thật, thật tuyệt vời."
+
+Đặt vỏ kiếm sang một bên, Lime cầm thanh kiếm bằng cả hai tay.
+
+Cậu ta đã bị lưỡi kiếm mê hoặc.
+
+"Thế nào, cậu có cảm tưởng gì khi sở hữu thứ vũ khí tối cao mang cả vẻ đẹp lẫn sức mạnh này?"
+
+"Thứ vũ khí tối cao..."
+
+"Có thể nói loại kiếm này được gọi là Katana. Mặc dù mới chỉ là bán thành phẩm, nhưng nó đã là một thứ vũ khí khá cao cấp, đúng chứ?"
+
+"Cái này... cho tôi sao?"
+
+"Đúng vậy, đây là một món quà nhỏ của thiếu chủ. Chốc nữa lão sẽ chỉ cho cậu cách bảo dưỡng nó, nếu muốn gặp người thợ đã làm ra nó, cậu có thể liên lạc bất cứ lúc nào."
+
+Lime vội lắc đầu.
+
+"Tôi thực sự không thể nhận được. Thanh kiếm bị đại tỷ làm gãy hoàn toàn không tương xứng với thứ này."
 
 ![][IMG_0755.PNG]{:class="img-fluid"}
 
 [IMG_0755.PNG]: https://1.bp.blogspot.com/-rlT-mWkX7_4/YYSqJsLt6eI/AAAAAAAACdk/c5igGFLSoGItOEQmpTTtWVgD3fYFusbeQCLcBGAsYHQ/s16000/IMG_0755.PNG
 
+Dứt lời, cậu ta tra thanh Katana vào vỏ và đưa lại cho lão.
+
+Đưa tay đẩy thanh Katana trở lại, lão nói với Lime:
+
+"Lão cũng nghĩ tặng cho cậu thứ này thật lãng phí. Nhưng đây là quyết định của thiếu chủ, không phải của lão. Cậu không muốn dùng thì để nó làm vật trang trí trong nhà cũng được, nếu lão cầm nó trở về, thiếu chủ sẽ tức giận đấy."
+
+"Ha ha, đại tỷ khá mạnh cơ mà."
+
+"... Cậu đang nói vớ vẩn gì vậy. Nếu phải giao thủ với thiếu chủ, lão chỉ còn nước chạy trốn thôi."
+
+"..."
+
+
+"Cho dù lão và Mio đồng loạt ra tay cũng không thể thắng được thiếu chủ đâu."
+
+"Vậy thay vì mở thương hội, mọi người làm lính đánh thuê không phải sẽ tốt hơn sao?"
+
+"Đó là mong muốn của thiếu chủ, lão cũng không phản đối. Được rồi, giờ chúng ta nói đến chuyện của cậu."
+
+"..."
+
+"Sau khi chúng ta tạm biệt nhau, nếu dám bán món này lấy tiền, chờ đợi cậu sẽ là kết cục bi thảm lắm đấy."
+
+"Ư..."
+
+Có vẻ đã bị lão nói trúng tim đen, mặt Lime biến sắc.
+
+"Cậu cũng muốn bảo vệ cô nhi viện kia bằng mọi giá phải không?"
+
+"... Không được sao?"
+
+Từ khi trở thành mạo hiểm giả, Lime tiếp tục giấu tên quyên góp cho cô nhi viện đó. Đó là nơi cậu ta bất chấp tất cả để bảo vệ, làm sao có thể không quan trọng được.
+
+"Không. Lão rất tán thưởng việc cậu luôn đối xử tốt với những người thân cận bên mình. Đương nhiên thiếu chủ cũng vậy."
+
+"Ngài ấy cũng..."
+
+"Chẳng phải điều ấy đã thể hiện rõ ở chất lượng của thanh Katana mà thiếu chủ tặng cậu rồi sao? Thế nào, cậu có muốn làm việc cho lão không?"
+
+"Cho đại tỷ ư? Trong hoạt động buôn bán sao?"
+
+"Cái đó cũng có, nhưng chắc là ở tương lai. Công việc trước mắt là thu thập thông tin."
+
+"Thu thập thông tin?"
+
+"Ừm. Thật may vì cậu có mạng lưới quan hệ rộng. Hơn nữa giao công việc này cho người có kinh nghiệm từng làm mạo hiểm giả sẽ tốt hơn. Lão sẽ cho cậu thử việc trước, cậu có muốn làm việc trong vai trò là mật thám của lão không?"
+
+"Mật thám... tức là... làm chó săn à?"
+
+Trong nháy mắt, biểu cảm trên khuôn mặt Lime trở nên nghiêm trọng.
+
+"Đúng vậy. Công việc chính của cậu là báo cáo tình hình trong thị trấn cho lão."
+
+Vẻ mặt cậu ta vẫn rất nghiêm trọng. Có lẽ lão nên thử thuyết phục thêm một chút nữa.
+
+"Thế nào? Lòng tự tôn không cho phép cậu trở thành chó săn sao?"
+
+Cách nói của lão đã thêm vài phần ác ý.
+
+Lime cười khổ.
+
+"... Làm gì có chuyện đó. Nhưng đại tỷ thực sự cảm thấy tôi phù hợp sao? Nói thẳng ra thì tôi là một con trùng ăn tiền đấy."
+
+`trùng ăn tiền: Chỉ việc lãng phí tiền bạc vào một đối tượng mà không thu được bất kỳ lợi ích gì.`
+
+... Duy trì cô nhi viện, kéo theo công tác giáo dục và cả huấn luyện nghề nghiệp nữa. Điều này chắc chắn tốn không ít chi phí.
+
+Tuy cách nói của cậu ta giống như đang chế giễu, nhưng cũng như để che giấu sự xấu hổ của bản thân.
+
+"Cậu hãy suy nghĩ kỹ đi. Sau này, những thứ cậu được thấy sẽ vượt xa sức tưởng tượng của cậu. Làm việc cho bọn ta, cũng có nghĩa là cậu sẽ được tiếp xúc với những bí mật của bọn ta. Nào, đây là tiền đặt cọc và trợ cấp trước mắt."
+
+Dứt lời, lão quăng một chiếc túi qua. Lime vừa mở túi vừa nói liến thoắng.
+
+"Hả, đại tỷ đang nói gì vậy? Chẳng phải công việc này chỉ đơn thuần là mua bán thông tin thôi sao? Hơn nữa, thiếu chủ và đại tỷ cũng hiểu rõ rằng... Này, đ-đây mới chỉ là tiền đặt cọc và trợ cấp á?!"
+
+Nhìn vào bên trong chiếc túi, hai mắt Lime mở to.
+
+"Hô, mới chỉ có từng này mà cậu đã ngạc nhiên rồi sao? Điều ấy chứng tỏ cậu đã coi thường công việc mật thám này rồi đấy. Đây là một công việc nguy hiểm, cậu phải đặt cược cả tính mạng mình. Tuy nhiên, nếu cậu  dốc hết sức thực hiện công việc này, đáp ứng được yêu cầu của lão... thì dù bản thân cậu gặp phải bất trắc gì, lão nhất định sẽ bảo vệ thứ quan trọng của cậu."
+
+"... Thật vậy sao? Tôi cảm thấy mình đã được kỳ vọng quá mức rồi. Nhưng tôi tin rằng lời nói của đại tỷ là thật lòng." Lime mỉm cười.
+
+"Lão chờ mong biểu hiện của cậu."
+
+Lão cũng cười đáp lại.
+
+"Có điều... trong túi có bao nhiêu tiền vậy...? Không thể tin nổi toàn bộ chỗ này đều là đồng vàng."
+
+"Đương nhiên tất cả đều là đồng vàng. Lão nghĩ có khoảng một trăm bảy mươi đồng, nhưng đây mới chỉ là một nửa mà thôi. Cậu còn đang thử việc mà. Hãy cố gắng hết sức để nhanh chóng kiếm được nhiều tiền công hơn nữa nhé."
+
+"... Đây đúng là công việc trong mơ thật rồi."
+
+Ha ha ha, hãy trở thành một tay mật thám có ích nhé, Lime.
+
+Lần này phải cảm ơn Onihei Hankachou rồi.
+
+`Onihei Hankachou là một bộ tiểu thuyết lịch sử từng được dựng thành phim của nhà văn Shoutarou Ikenami. Truyện lấy bối cảnh vào cuối thời Edo, một thời kỳ bọn trộm cướp hoành hành vô cùng bạo ngược, nhân vật chính là cảnh sát Hasagawa Heizo - một người đàn ông được bọn trộm cướp đồn rằng "đến quỷ cũng phải sợ hãi".`
+
+Thiếu chủ, thật lòng cảm ơn cậu đã cho phép lão xem toàn bộ phim Oni.
+
+Hừ, giờ lão đã biến thành quan trên rồi sao?
+
+Hmm... Dù thiếu chủ là một người còn trẻ mà đã lẩm cấn như ngài Kyougoku, ừm, hoàn toàn không có vấn đề gì!
+
+`Kyougoku Natsuhiko (1963): Một nhà văn chuyên viết tiểu thuyết trinh thám kinh dị của Nhật Bản.`
+
+Lime, hãy vui mừng đi.
+
+Cậu đã trở thành mật thám số 1 rồi.
+
+Lão sẽ bắt cậu phải luyện tập thật gian khổ, trưởng thành đến mức dù đi đến đâu cũng sẽ không còn xẩu hổ nữa mới thôi.
+
+Ha ha, thế nên đừng có bỏ mạng giữa chừng đấy nhé?
+
+Và như vậy...
+
+Lime đã trở thành mật thám của lão.
+
+Theo cách ấy.
+
+Trong lúc thiếu chủ còn chưa hay biết gì, cậu ấy (thực ra là lão) đã có mật thám đầu tiên.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Lão có chút bất ngờ.
+
+Lime thật sự chẳng biết gì cả.
+
+Lão còn tưởng rằng cậu ta ít nhiều cũng tiếp cận được với chân tướng sự việc, thế nhưng...
+
+Trong ký ức của Lime chẳng hề có thông tin gì về chú bệnh mà vợ và các con gái của Rembrandt bị nhiễm.
+
+Hiện giờ, biện pháp tốt nhất là kiểm tra ký ức của tên chú thuật sư đã dùng thuật gây ra chú bệnh, nhưng hắn ta đã chết rồi.
+
+Dĩ nhiên, không thể xem được ký ức của người chết đã không còn thể xác và cả linh hồn...
+
+Mỗi ngày, Lime đều cần cù chạy qua chạy lại khắp nơi. Tuy mới bắt đầu công việc, nhưng cậu ta đang làm rất tốt.
+
+Để có thể nhanh chóng sử dụng thành thạo thanh Katana lão đưa cho, Lime đang liều mạng tập luyện, khiến lão có ấn tượng rất tốt.
+
+Cậu ta vốn thường dùng loại kiếm một tay, vũ khí ưa thích cũng là loại kiếm hai lưỡi, xem ra cần phải mất khá nhiều thời gian để làm quen với thanh Katana. Tuy nhiên, chỉ trong thời gian ngắn, cậu ta đã làm chủ được thứ vũ khí này.
+
+Huấn luyện cơ bản là bài tập không thể thiếu hằng ngày, ngoài ra, mỗi khi có thời gian rảnh, cậu ta còn chủ động luyện tập thực chiến ở xung quanh Ziege, bao gồm cả nơi hoang dã.
+
+Về phương diện này, thiếu chủ cũng phải mất vài tháng mới thành thục, rồi sau đó là thực chiến, nhưng... Lime lại đang làm rất tốt.
+
+Cứ đà này, chỉ cần vẽ ra một con đường, cậu ta sẽ không ngừng đi tới, quả là một học sinh xuất sắc, không cần bận tâm gì nhiều.
+
+Tuy chỉ tình cờ nhặt được, nhưng xem ra có thể kỳ vọng vào cậu ta trong tương lai rồi.
+
+Sau khi cân nhắc tình hình, lão sẽ đưa cậu ta tới Á Không, rồi trực tiếp rèn luyện để giúp cậu ta trở nên mạnh mẽ hơn.
+
+Nhất định thiếu chủ cũng sẽ tán thành.
+
+Khi đang đứng đọc sách tại một hiệu sách ở Ziege và ngẫm ngợi những điều này, lão chợt cảm nhận được một khí tức kỳ lạ.
+
+"Hửm, hình như đó là... Morris, quản gia của Rembrandt mà. Ông ta đang điều tra lão à? Hmm."
+
+Chắc hẳn ông ta đang đinh ninh mình vẫn chưa bị lão phát hiện.
+
+Với khoảng cách mà ngay cả Loài người cũng có thể nhìn thấy, làm sao lão lại không nhận ra được cơ chứ ông ta không biết lão là ai ư?
+
+Ông ta coi thường lão hay quá tự tin vào bản thân vậy?
+
+Tuy đúng là ông ta có thân thủ tốt nhất trong số những Loài người lão từng gặp từ trước đến giờ.
+
+À, nếu lão cứ đứng đọc sách ở nơi này như hiện tại, thông thường sẽ sớm bị đuổi ra ngoài thôi.
+
+Ở thế giới của thiếu chủ, kỹ thuật in ấn và đóng sách không phát triển lắm, nhưng sách lại chứa đựng giá trị tri thức rất cao.
+
+Sách là loại hàng hóa chỉ cần đọc thôi đã nhận được thông tin, nhưng chỉ cần mở trang giấy ra cũng có thể dễ dàng làm hỏng hay tổn thương chúng.
+
+Quả là hành vi vô cùng tồi tệ.
+
+Trong trường hợp của lão, vì lần nào tới cũng mua khá nhiều sách bằng tiền mặt, nên đã được ngầm thừa nhận là khách quen.
+
+Ngoài ra, thiếu chủ cũng là khách quen, có điều cậu ấy sẽ không đứng đọc ngay tại đây.
+
+Mio thì chẳng đến nhà sách bao giờ. Vì con nhện đó không thích đọc sách chút nào.
+
+Dù sao, chuyện đó cũng chẳng có gì không tốt.
+
+... Quản gia đã bước vào cửa hàng.
+
+Morris lợi dụng những chiếc giá sách để khéo léo đi tới điểm mù, nhưng ở lần di chuyển tiếp theo, trong nháy mắt lão đã cắt đuôi được ông ta...
+
+Chính là lúc này!
+
+"Có chuyện gì sao? Nếu không nhầm... ông là quản gia Morris, đúng chứ?" Đặt tay lên vai ông ta từ phía sau, lão mỉm cười và nói.
+
+Thưởng thức vẻ mặt kinh ngạc tột độ của ông ta khi quay đầu lại, lão chợt nghĩ đến một khả năng.
+
+Chú thuật sư trong ký ức của Lime rất căm thù Rembrandt.
+
+Mặc dù tên chú thuật sư đó đã chết, nhưng thân là người có quan hệ mật thiết với Rembrandt, có khi nào ông quản gia này biết được lý do không?
+
+Nghĩ là làm, lão vừa tán gẫu bâng quơ với Morris đang hoảng hốt vừa tìm kiếm ký ức của ông ta.
+
+... Không phải, không phải, không phải.
+
+Nhanh chóng kiểm tra kỹ càng ký ức ông ta, lão dứt khoát gạt đi những thứ không cần thiết.
+
+Bỏ qua cả những chuyện trước khi ông ta tới Ziege và những chuyện không liên quan tới Rembrandt.
+
+Tuy nhiên, thương hội Rembrandt cũng đã thực hiện khá nhiều chuyện độc ác.
+
+Ông ta đã tự mình dựng nên thương hội lớn có thể đại diện cho cả một thị trấn, theo ý nghĩa nào đó, có lẽ là chuyện bình thường, thế nhưng...
+
+Lừa đảo, chiếm đoạt, gây áp lực, hối lộ, còn có... giết người.
+
+Ái chà, xem ra không thể báo cáo cái này cho thiếu chủ rồi.
+
+Bản thân Rembrandt đã vô cùng khôn khéo từ lúc còn rất nhỏ, thế nhưng những chuyện này cũng quá là tàn khốc.
+
+... Hửm? Kẻ này có tướng mạo khá tương tự với tên chú thuật sư kia.
+
+Để ta tua lại sự việc này xem...
+
+"... Thì ra là như vậy."
+
+"Ngài Tomoe? Có chuyện gì s..."
+
+"Không có gì, ông không cần để ý."
+
+Dùng một câu nói ngắn gọn để cắt ngang câu hỏi của Morris, lão kết thúc cuộc nói chuyện.
+
+Sau khi chọn mua vài quyển sách như mọi khi, lão liền hướng về phía thương hội Rembrandt, bởi lão cũng muốn đọc ký ức của chính ông Rembrandt.
+
+Đáng lẽ cần dùng một công việc thích họp để làm cái cớ cho chuyến ghé thăm đột ngột này, nhưng với tư cách là ân nhân đã cứu mạng người thân Rembrandt, gặp được ông ta là chuyện vô cùng đơn giản. Chuyện này thật thú vị. Lão còn trêu chọc quản gia bằng cách than phiền với ông ta một câu, rồi mới rời khỏi thương hội.
+
+Sau khi mang những quyển sách về Á Không, lão trở lại căn phòng của bản thân.
+
+Thông thường, lão sẽ lập tức tới kho dữ liệu, nhưng hôm nay lại đi thẳng về phòng riêng của mình.
+
+Chỉnh, sửa xong ký ức vừa mới lấy được của hai người kia, lão không kìm được thở dài. 
+
+"... Tên khốn Rembrandt này, đúng là gieo nhân nào gặt quả ấy mà. Vốn dĩ ngươi đúng là kẻ đáng phải chịu sự trừng phạt."
+
+Nếu đây là một bộ phim lịch sử...
+
+Có lẽ Lime sẽ bị khiển trách, nhưng Rembrandt chắc chắn sẽ bị trừng phạt.
+
+Vậy nên, lão mới thở dài.
+
+Sau này, rất khó để qua mặt thiếu chủ mà bí mật xử lý Rembrandt. Hiện giờ, ông ta thực sự là một thương nhân lão luyện, đúng như thiếu chủ đã đánh giá.
+
+Thì ra cảm giác của Onihei chính là thế này đây.
+
+Tuy cũng không nhất thiết phải nói ra, nhưng khác với tướng quân Yoshimune và ngài Koumon, Onihei cũng có những chuyện hướng thiện trừ ác khó có thể nói được thành lời.
+
+Bây giờ là người lương thiện, nhưng trước đây thì... Trên đời này có rất nhiều kẻ như vậy. Nhưng bất kể là ai, cũng sẽ có một ngày họ phải nhận hình phạt xứng đáng.
+
+Trong trường hợp của Rembrandt, có lẽ là căn bệnh của gia đình. Biết được quá khứ của ông ta rồi, lão cảm thấy hình phạt đó vẫn còn quá nhẹ, nhưng cũng không đến mức khiến lão phải hành động ngay lập tức.
+
+... Tuy nhiên, không thể phủ nhận rằng ông ta chính là một nhân vật có ích đối với thiếu chủ vào thời điểm hiện tại.
+
+Thế nhưng, nếu nói ra chân tướng, lòng chính trực của thiếu chủ chắc chắn sẽ không dung thứ cho ông ta.
+
+Lão chẳng thích che giấu, cũng không muốn cư xử như vậy với thiếu chủ.
+
+...Vào một ngày nào đó.
+
+Đúng thế.
+
+Vào một ngày nào đó, khi thời điểm tới, lão sẽ kể ra toàn bộ mọi chuyên cho thiếu chủ.
+
+Cho tới khi đó, lão sẽ giữ kín câu chuyện tàn khốc này trong lòng.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Thương hội Hanza.
+
+Đó là một thương hội lâu đời tại Ziege, hiện nay đã không còn tồn tại.
+
+Hàng hóa kinh doanh chủ yếu là vũ khí và áo giáp.
+
+Tại Ziege, có rất nhiều người đến thử thách ở nơi hoang dã. Một thương hội chuyên bán vũ khí chất lượng cao như Hanza, đương nhiên sẽ vô cùng tự hào khi nắm được một thế lực khá lớn. Bằng cách tạo mối quan hệ với nhiều thợ thủ công, tiếng tăm của thương hội lan xa, bất cứ mạo hiểm giả nào từng ghé thăm thị trấn này cũng biết đến nơi đó. Tuy nhiên, họ lại không hề tỏ ra ngạo mạn hay đắc chí, vẫn bán vũ khí cho tất cả mọi người.
+
+Hồi trẻ, Rembrandt và Morris đã từng tới nơi này.
+
+Khi ấy, Morris đến Ziege với tư cách là một mạo hiểm giả, không phải quản gia của Rembrandt.
+
+Hai người vốn đã có quan hệ chủ tớ, nhưng Morris đảm nhiệm những công việc trong bóng tối.
+
+Vì Ziege là thị trấn phát triển nhất ở gần nơi hoang dã, nên bọn họ đã để mắt tới hoàn cảnh đặc biệt của nơi này và chuyển công việc kinh doanh từ một thị trấn khác tới đây với tham vọng lớn.
+
+Sau khi thuê vài công nhân và thành lập thương hội Rembrandt, hai người nhanh chóng ngấm ngầm chuẩn bị và lần lượt đè bẹp từng thương hội cùng kinh doanh những loại mặt hàng giống họ.
+
+Bề ngoài, Rembrandt là một thương nhân trẻ tuổi, trong sạch, xuất sắc và đầy hứa hẹn. Nhưng thực chất, gã lại là một kẻ độc ác sai khiến Morris xử lý những người đồng nghiệp bằng những mưu hèn kế bẩn đến mức có thể khiến người khác liên tưởng đến thủ đoạn của xã hội đen.
+
+Gã quen người vợ hiện tại đã lâu, nhưng khi ấy vẫn chưa kết hôn. Cô ta không hề xuất hiện trong sự kiện lần này, hơn nữa cũng không cùng gã đi tới Ziege.
+
+Vừa khéo léo che giấu bộ mặt thật của bản thân vừa nhanh chóng tăng cường thế lực, Rembrandt cuối cùng đã bước tới giai đoạn tiếp xúc được với quyền lợi của nơi hoang dã mà gã vẫn luôn để mắt. Nếu xử lý tốt, chốn hoang dã chính là một cây hái ra tiền.
+
+Ngoài Rembrandt, cũng có rất nhiều người chú ý tới nơi đó, nhưng để có được bước tiến xa như vậy trong một thời gian ngắn, chắc chắn phải nhờ tài năng vượt trội và sự tàn nhẫn không chừa thủ đoạn của người đàn ông này.
+
+Tuy nhiên...
+
+Dù đã mở rộng mặt hàng kinh doanh, dù thế lực của Rembrandt tại Ziege rất lớn mạnh, nhưng chỉ cần một thương hội mang chất lượng và thành tích thực tế, hơn nữa còn thâu tóm gần hết các thợ thủ công tài giỏi như Hanza vẫn tồn tại, thì thương hội của Rembrandt vẫn sẽ luôn bị lấn át. Bất kể xét về tình hay về lý, các mạo hiểm giả cũng sẽ đưa thương hội Hanza lên làm lựa chọn hàng đầu.
+
+Đối với kẻ mới đến như Rembrandt, một trật tự nghiêm ngặt tồn tại lâu đời đã trở thành chướng ngại vật lớn nhất.
+
+Rembrandt không có biện pháp nào trước sự cản trở của thương hội Hanza.
+
+Đó là một thương hội tuyệt đối không thể bị phá hủy chỉ bằng các phương pháp cạnh tranh ngay thẳng.
+
+Đó là một thương hội sở hữu nguồn lực tài chính dồi dào và quyền phát ngôn trong thị trấn mạnh hơn hẳn gã.
+
+Bề ngoài, Rembrandt vẫn giữ mối quan hệ với thương hội Hanza như một vị tiền bối đáng kính trọng, nhưng sau lưng, gã vẫn luôn âm thầm tìm cách để phá hủy "kẻ địch" này.
+
+Vào thời điểm đó, Rembrandt đã nhận được báo cáo từ Morris: Chủ nhân đương nhiệm của thương hội Hanza đã tử nạn.
+
+Một sự cố đã xảy ra ở gần lối vào nơi hoang dã. Rõ ràng, Morris cũng âm thầm nhúng tay vào chuyện này.
+
+Một kẻ xấu xa.
+
+Nói tóm lại, thương hội Hanza phải thay đổi đương chủ.
+
+Đó là lúc Rembrandt hành động.
+
+Người thừa kế đời sau của thương hội Hanza là một cô gái độc thân chưa đầy hai mươi tuổi. Đương nhiên, kinh nghiệm làm thương nhân cũng rất ít ỏi.
+
+Tuy nhiên, thương hội còn có rất nhiều nhân tài.
+
+Vốn dĩ Hanza hoàn toàn có thể duỵ trì cách thức hoạt động cũ cho đến khi cô gái tích lũy đủ kinh nghiệm.
+
+Khi ấy, Rembrandt đã khéo léo tiếp cận cô gái đó, thậm chí có lúc còn tự gây tổn hại cho chính thưong hội của mình để chuyện hợp tác diễn ra vui vẻ.
+
+Nhóm người lãnh đạo của thương hội Hanza vẫn luôn nghi ngờ trước những động thái của Rembrandt, nhưng nhờ nỗ lực cống hiến trong suốt mấy năm liền, rốt cuộc họ cũng đã tin tưởng gã. Đồng thời, gã còn khiến người thừa kế của Hanza rung động, trong khi những người đứng đầu thương hội chẳng hề hay biết.
+
+Thương hội Hanza và thương hội Rembrandt chào đón những ngày tháng ngọt ngào nhờ hôn ước của cặp uyên ương mới được kết thành. Tuy thực tế hai người đại diện cho hai thương hội chưa kết hôn, nhưng quan hệ giữa hai bên vô cùng tốt đẹp.
+
+Ngày qua ngày, thương hội Hanza lại càng xứng danh thương hội số một Ziege hơn, còn thương hội Rembrandt như thể một người vợ hiền nâng đỡ thương hội Hanza vậy.
+
+Tuy nhiên, thực chất, cô gái thừa kế thương hội Hanza đúng kiểu "bảo sao nghe vậy" với mọi lời nói của Rembrandt. Chỉ cần quan sát kỹ là có thể thấy được mối quan hệ đó đã thay đổi đáng kể.
+
+Dù thế, Rembrandt vẫn kiên nhẫn chờ đợi thời cơ để đưa ra "nước cờ cuối cùng", và thời gian cứ thế trôi.
+
+Vì thương hội Hanza, Rembrandt thậm chí còn tự giảm lợi ích thương hội của mình, dứt khoát đóng lại con đường rộng mở mà gã đã tiến hành khi mới tới Ziege. Từ những chuyện đó, ai cũng cho rằng sự hợp tác với thương hội Hanza đã giúp một thương nhân trẻ tuổi và đầy mạnh mẽ tiến được một bước dài, mọi người trong thị trấn đều đánh giá cao Rembrandt.
+
+Ai cũng biết về mối quan hệ nam nữ với đại diện thương hội Hanza của Rembrandt, tuy vậy, gã không hề lợi dụng chuyện đó cho việc kinh doanh, và điều này càng khiến uy tín của gã tăng cao hơn nữa. Nếu Rembrandt lợi dụng mối quan hệ đó để lôi kéo lợi ích cho bản thân, sẽ có vấn đề nảy sinh và xuất hiện những tin đồn gây bất lợi. Gã quả thực vô cùng thận trọng.
+
+Mọi chuyện đều nằm trong lòng bàn tay Rembrandt.
+
+Không chỉ với thương hội của riêng gã, vỏ bọc người tốt của Rembrandt còn làm lay động cả thương hội Hanza và những cư dân của thị trấn, ai cũng đinh ninh rằng không lâu nữa gã sẽ kết hôn với nữ đại diện của thương hội Hanza và nâng đỡ cho cả hai thương hội.
+
+Chính lúc này, bộ mặt thật của Rembrandt mỉm cười đắc thắng.
+
+Gã phán đoán rằng thời điểm đã đến.
+
+Đã đến lúc đi nước cờ cuối cùng.
+
+Tiếp theo, chỉ cần đợi thời cơ.
+
+Và cơ hội đó tới nhanh không ngờ.
+
+1 Trong một lần đàm phán giao dịch, đại diện của thương hội Hanza cần đi tới thị trấn lần cận. Đúng thời điểm đó, Rembrandt cũng phải đi tới căn cứ ở nơi hoang dã. Mọi chuyện đều là ngẫu nhiên.
+
+Có điều, Rembrandt không đời nào bỏ qua một cơ hội tốt như vậy.
+
+Gã đã ngấm ngầm ra lệnh cho Morris, thuộc hạ của mình, hành động trong bóng tối... Khi nhóm người thuộc thương hội Hanza vừa tiến vào con đường chính vốn rất an toàn, hắn đã giết sạch bọn họ.
+
+Khi nghe báo cáo nhiệm vụ đã hoàn thành, giọng nói và vẻ mặt của Rembrandt hoàn toàn chẳng có chút gì gọi là thương hại hay tội lỗi... Đã vậy, gã còn tỏ ra vô cùng hài lòng.
+
+Đúng thế, Rembrandt không hề có một chút tình cảm nào với đại diện của thương hội Hanza.
+
+Không những vậy, đối với gã, cô gái đó chỉ là một người phụ nữ vô năng ngu ngốc, dễ dàng bị gã dắt mũi.
+
+Gã chỉ coi cô gái như một con rối mà mình có thể tùy ý điều khiển.
+
+Đến khi cô ấy hết giá trị lợi dụng, gã liền thẳng tay giết chết.
+
+Kể từ lúc mới quen cô gái, gã đã suy tính như vậy.
+
+Ôm thi thể cô gái, Rembrandt thất thanh khóc lớn, vứt bỏ tài sản cá nhân để trả thù hung thủ.
+
+Toàn bộ đều là một vở kịch.
+
+Tuy nhiên, trước hành động đó của gã, những người xung quanh vô cùng xúc động, và những kẻ cảm thông với gã vì đã mất đi người trong lòng ngày một tăng.
+
+Sau đó...
+
+Dưới sự khẩn cầu của những người lãnh đạo thương hội Hanza, Rembrandt đã trở thành người quản lý thương hội này. Trên thực tế, chính thương hội Rembrandt đã nuốt chửng thương hội Hanza.
+
+Hiện tại, ở thương hội Rembrandt cũng có rất nhiều người xuất thân từ thương hội Hanza, hơn nữa họ còn thề trung thành với Rembrandt.
+
+Rút lui vì lý do tuổi tác, Morris được chào đón vào vị trí quản gia kiếm hộ vệ của Rembrandt. Khi đó, nguyên mẫu của thương hội Rembrandt đã hoàn thành.
+
+... Rốt cuộc, gã đàn ông đó chỉ thể hiện bộ mặt thật của mình với vợ và Morris.
+
+Ở thị trấn khác thì không rõ, nhưng ở Ziege, Rembrandt chưa từng cởi bỏ tấm mặt nạ người tốt trước bất cứ ai ngoài hai người này.
+
+Sau khi con gái gã chào đời, bộ mặt độc ác đó cũng dần biến mất.
+
+Một Rembrandt hết mực yêu thương con gái, yêu thương gia đình đã xuất hiện.
+
+Vậy nên, người dân trong thị trấn này chỉ biết rằng gembrandt đã vượt qua tấm bi kịch, là một thương nhân có nhân cách cao đẹp, luôn mang lòng thương xót con người, và là người cha ngốc vô cùng yêu thương các con gái.
+
+Vào thời điểm sáp nhập, một số người thợ từng hợp tác với thương hội Hanza từ chối tiếp tục làm việc và đoạn tuyệt quan hệ, nhưng những kẻ đó không còn là vấn đề cần đặc biệt quan tâm.
+
+Bởi cho đến lúc này, Rembrandt đã nắm trong tay quyền lực tuyệt đối ở Ziege.
+
+Về sau, một trong số những người thợ ấy chính là chú thuật sư đã yểm chú bệnh lên gia đình của Rembrandt.
+
+Việc chuyển nghề từ thợ rèn vũ khí thành chú thuật sư có lẽ rất kỳ lạ, nhưng người đàn ông đó vô cùng căm hận Rembrandt.
+
+... Ông ta là người yêu cũ của cô gái đại diện thương hội Hanza.
+
+Khi cô gái trở thành người thừa kế, mối quan hệ giữa hai người mới bị chia cắt.
+
+Một cô gái ôm nỗi đau thất tình đã bị tài nói chuyện và sự bao dung của Rembrandt đánh cắp trái tim, và rồi người yêu cũ trở thành dĩ vãng.
+
+Chà, dù sao đó cũng không phải chuyện không thể xảy ra, nhưng ông ta quả thực rất đáng thương.
+
+Trong hoàn cảnh như vậy, chỉ có người đàn ông này mới nghi ngờ toàn bộ hành động tốt đẹp của Rembrandt đều là giả dối.
+
+E rằng, đến khi tang lễ của người yêu cũ được tổ chức, ông ta mới phát hiện ra bộ mặt thật của Rembrandt.
+
+Ít nhất, người này có căn cứ để tự thuyết 
+phục được chính mình.
+
+Ông ta là người duy nhất hướng ánh mắt căm thù về phía Rembrandt, kẻ đã chảy nước mắt và xót thương cho cái chết của người yêu trong lễ tang.
+
+Khi Rembrandt kết thúc công việc ở nơi phương xa, trở về Ziege và mang theo một vị hôn thê khiến cả thị trấn sôi trào...
+
+Khi gã phát biểu rằng sẽ tăng cường hỗ trợ các mạo hiểm giả, chào đón cựu mạo hiểm giả Morris làm quản gỉa...
+
+Khi con gái gã được sinh ra, gã tự mình chạy xung quanh thị trấn và hô to điều đó cho mọi người đều biết...
+
+Lòng căm thù của người đàn ông nọ, nay đã trở thành chú thuật sư, trở nên ngày một sâu sắc...
+
+Tạo ra một chú bệnh riêng biệt có khả năng tử vong vô cùng cao, sau đó còn cố ý để lại một tia hy vọng nhỏ bé cho Rembrandt, có thể nhận thấy lòng căm thù của người đàn ông này thâm sâu và mãnh liệt đến mức nào.
+
+Tiếp đó, ông ta xúi giục Lime, hợp tác với đám mạo hiểm giả để thực hiện ý đồ của mình. E rằng, chuyện bản thân sẽ bị bắt và giết chết sau đó cũng là một phần trong kế hoạch trả thù của người này.
+
+... Suốt nửa cuộc đời mình, người đàn ông đó bị ám ảnh bởi việc báo thù.
+
+Lão cảm thấy cuộc đời như thế thật trống rỗng, nhưng ông ta lại có vẻ rất hài lòng.
+
+Khi đối mặt với Rembrandt và Morris, ông ta không hề nói ra động cơ trả thù của mình, chỉ lẳng lặng mỉm cười. Dĩ nhiên, Rembrandt chẳng hề nhớ gì về người đàn ông này.
+
+Một người đàn ông đã chết với nụ cười kỳ lạ trên môi mà không hé răng một lời về lý do trả thù của mình, đã gieo rắc nỗi tuyệt vọng cho Rembrandt...
+
+Nụ cười đó...
+
+Mặc dù thỏa mãn, nhung quả nhiên vẫn rất trống rỗng.
+
+Lão sẽ không bao giờ lộ ra vẻ mặt này với thiếu chủ đâu, phải phục vụ cậu ấy thật tốt mới được.
+
+Hỡi chú thuật sư vô danh, ghi chép về ngươi sẽ được lưu lại trong ký ức của lão.
+
+Nếu xử lý không tốt và chẳng may để thiếu chủ biết được thì sẽ rắc rối lắm, vậy nên xin thứ lỗi.
+
+... Một ngày nào đó, lão sẽ nói với thiếu chủ...
+
+Hay là lão nên giữ trong lòng suốt cả cuộc đời đây?
+
+Ôi chao, sao tự nhiên lão lại phải gánh vác cái thứ phiền não này chứ?
+
+<br /><br /><br /><br /><br />
+# **Chuyện phiếm 1: Dũng sĩ của Limia**
+<br /><br /><br /><br /><br />
+
+Vương đô đang ngập tràn sức sống.
+
+Vương quốc Limia là một quốc gia rộng lớn thuộc thế lực Loài người nằm ở vùng cực Bắc, trở thành tuyến phòng thủ cuối cùng chống lại Ma tộc.
+
+Ngoài ra, Đế quốc Glitonia ở phía Đông cũng là một nước lớn. Vương quốc và đế quốc đã tạo dựng mối quan hệ đồng minh vững chắc, cùng chung một tuyến phòng ngự.
+
+Thực tế, vì ngăn chặn được sự xâm chiếm của Ma tộc nên hai quốc gia này có sức ảnh hưởng lớn với các đất nước khác.
+
+Hiện tại, vương quốc Limia đang rất náo nhiệt. Trong tình hình chiến tranh với Ma tộc đang trở nên gay gắt, điều này vô cùng hiếm thấy.
+
+Chuyện ấy cũng có lý do: Đó chính là lời mách bảo của Nữ thần. Chỉ riêng nguyên nhân này cũng đã đủ để tổ chức lễ hội rồi.
+
+Suốt mười năm nay, mặc cho dân chúng thỉnh cầu không biết bao nhiêu lần, Nữ thần vẫn bỏ ngoài tai, không một lần đáp lại.
+
+Đối mặt với cuộc đại xâm lăng trước nay chưa từng có của Ma tộc, Loài người - chủng tộc không còn nhận được sự chúc phúc của Nữ thần, đã phải trải qua thất bại thảm hại. Elysion, một trong năm cường quốc đã diệt vong, và bản đồ Đại lục đã có sự thay đổi to lớn, vốn sinh sống tại vùng băng nguyên khắc nghiệt nơi cực Bắc, hiện tại Ma tộc đã có được bến cảng không còn bị đóng băng, chiếm được những vùng đất màu mỡ và xây dựng một quốc gia rộng lớn.
+
+Đối mặt với cuộc xâm lược của những kẻ dễ dàng nuốt chửng Elysion, các quốc gia có quy mô vừa và nhỏ hoàn toàn không thể chống cự, một vài quốc gia của Á nhân bất lực khi không có biện pháp chống đỡ, và cuối cùng đi đến bước diệt vong.
+
+Đại lục, nơi từng là thiên đường của Loài người, giờ đã trở thành chốn phồn vinh của Ma tộc.
+
+Trong thời điểm rối ren như vậy, cứ tưởng rằng Nữ thần đã bỏ mặc Loài người, nhưng bỗng một ngày nọ, bà lại ban xuống thần dụ. Với điều này, cả đất nước tưng bừng lễ hội cũng không có gì lạ.
+
+Khắp mọi phố phường đang lan truyền một lời đồn rằng: "Đau buồn trước tình trạng Ma tộc đang trở nên hùng mạnh, Nữ thần đã dùng toàn bộ sức mạnh của mình để triệu hồi Dũng sĩ mạnh nhất từ trước đến giờ tới quốc gia của chúng ta, vì mục đích tiêu diệt Ma tộc." Dĩ nhiên, tin đồn đã được thổi phồng lên, chứ thực ra nội dung của thần dụ cũng chẳng to tát đến thế.
+
+"Ban cho các ngươi Dũng sĩ để tiêu diệt Ma tộc."
+
+Chỉ có vậy. Thật khiến người khác không kìm được phải nghi ngờ tư cách của Nữ thần. Đây đâu phải viết một tờ giấy ghi chú.
+
+Nhận được thần dụ, Quốc gia Limia liền coi Dũng sĩ như anh hùng, như một đấng cứu thế. Trong ba người được triệu hồi tới dị giới, người nhận được sự đối đãi tốt nhất chính là Dũng sĩ của Limia.
+
+Mặc dù hiện nay quốc gia tôn giáo Elysion đã bị Ma tộc tiêu diệt, nhưng thần điện của Nữ thần vẫn được xây dựng tại thủ đô của các nước.
+
+Một ngày nọ, trong lâu đài đột nhiên xuất hiện vầng hào quang màu vàng kim. Đồ cúng tế bị thổi bay tan tác, đứng tại nơi hào quang vừa vụt tắt là một cô gái trẻ.
+
+Mái tóc đen tuyền. Độ tuổi khoảng từ mười lăm đến hai mươi. Cao chừng một mét bảy, dáng người và khuôn mặt cân đối.	Đặc biệt hơn cả là đôi mắt cùng màu với mái tóc, đường nét nhỏ dài nhưng đầy thanh tú, chứa đựng ý chí mạnh mẽ.
+
+Các thần quan hết sức bổi rối trước sự xuất hiện đột ngột của cô gái.
+
+Mặc dù đáng ngờ, nhưng vàng kim chính là màu sắc tượng trưng cho Nữ thần. Việc được bao quanh bởi quầng sáng đó chính là nguyên nhân của sự hoang mang.
+
+Một tiếng hạc truyền tới.
+
+Giọng nói biệt tích trong suốt mười năm qua của Nữ thần một lần nữa vang lên:
+
+"Người này là Dũng sĩ. Đối đãi cho tốt."
+
+Các thần quan đều bàng hoàng trước tình thế đầy bất ngờ.
+
+Trong nhóm thần quan cao tuổi, cũng có những người đã chạy trốn từ Elysion tới Limia, trước đây từng được nghe thấy âm thanh của Nữ thần. Nước mắt chảy dài trên gương mặt, họ vô cùng vui mừng.
+
+Nữ thần đã tỉnh lại, hơn nữa còn phái Dũng sĩ tới!
+
+Ở bên trong thần điện vốn vẫn luôn yên tĩnh, những tiếng hô lớn vang lên rầm rộ.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Dũng sĩ được triệu hồi đứng trên tế đàn, không kìm được cười khổ trước phản ứng của những người xung quanh. Nhìn từng người cúi lạy mình, cùng các loại trái cây được dùng làm đồ cúng tế nằm lăn lóc sau khi bị thổi bay trước sự xuất hiện của bản thân, cô gái không biết phải làm gì.
+
+Đối với cô, khoảng thời gian được tiếp xúc với Nữ thần tựa như một giấc chiêm bao vậy.
+
+Trong không gian kỳ lạ tỏa ra ánh sáng màu vàng kim lấp lánh, cô được nghe đầu đuôi mọi chuyện từ người phụ nữ tóc vàng xinh đẹp đến mức khó tin.
+
+"Thế giới nơi ta bảo vệ đang chịu sự xâm lược của bè lũ Ma tộc 'tà ác'. Ta sẽ ban cho cô tất cả sức mạnh của mình, bù lại hãy cho ta mượn sức mạnh của cô. Cư dân của dị giới có khả năng đi tới thế giới này, nhưng trong số những con người ở đó, ta chỉ có thể nhờ cậy vào cô, người có bước sóng phù hợp với ta - Nữ thần của thế giới này."
+
+Nói xong, Nữ thần liền rơi nước mắt.
+
+Câu chuyện thật đáng ngờ. Đoạn nhắc tới "tà ác" gì gì đó cũng không đáng tin chút nào.
+
+Nghĩ đến gia đình và bạn bè, cô gái từ chối. Nhưng rồi, cô lại nghĩ, nếu thật sự có thể đi tới thế giới khác... đó chính là nguyện vọng thầm kín bao lâu nay của cô.
+
+Nữ thần cố gắng thuyết phục Hibiki, bà sẽ nâng cao sức mạnh của cô, đem lại cho cô nguồn ma lực mạnh mẽ, hơn nữa còn ban cho Hibiki năng lực lãnh đạo có thể thu phục người khác, thậm chí trao tặng cá thần khí.
+
+Thực tế, Hibiki đã vô cùng chán chường với thế giới hiện tại. Nói thẳng ra, cô chẳng còn chút lưu luyến gì với cuộc sống ở nơi đó.
+
+Hibiki sinh ra trong một gia đình giàu có, cuộc sống dễ dàng, dung mạo trời phú, hơn nữa còn có tài năng trong cả hai phương diện học tập và thể thao.
+
+Người ta hay gọi những người như cô chính là "nhóm người chiến thắng". Những người như thế, chỉ cần chuyên tâm làm một việc gì đó thì đều sẽ đạt kết quả xuất sắc nhất.
+
+Giữa các anh chị em trong nhà, hay bất kể là lúc học tiểu học, trung học, và hiện tại đang học cấp ba cũng đều như vậy.
+
+Dung mạo đoan trang xinh đẹp. Thành tích học tập thuộc top đầu cả nước, về khả năng vận động, cô thuộc câu lạc bộ kiếm đạo và đủ thực lực để tham gia thi đấu giải toàn quốc. Trong những cuộc thi của các môn thể thao khác, cô cũng sẵn sàng tham gia với vị trí hỗ trợ.
+
+Thậm chí, cô còn được toàn trường nhất trí bầu làm hội trưởng hội học sinh nhờ tính cách hiền lành, thích giúp đỡ người khác. Mọi người đều đánh giá cao Hibiki.
+
+Có lẽ vì có thể tự mình làm được tất cả mọi việc, Hibiki chưa từng chia sẻ hay cùng vượt qua khó khăn với bất kỳ ai.
+
+Bởi quá hoàn mỹ, bạn bè tuy nhiều nhưng bạn thân lại chẳng có lấy một người. Bản thân Hibiki cho là như vậy.
+
+Chỉ có duy nhất một cậu bạn học cùng trường, cô cảm thấy cậu ấy rất thú vị, nhưng đáng tiếc, hai người chưa đến mức được gọi là bạn bè, và giờ cô cũng chẳng còn cơ hội gặp lại cậu ấy nữa.
+
+Bởi vì mọi thứ đều viên mãn, nên cô không quá chấp nhất với thực tại, với thế giới đang sống.
+
+Vậy nên, Hibiki đã bị hấp dẫn bởi từ "Dũng sĩ".
+
+Một con người vượt qua gian khổ và đạt được mục tiêu. Thật tốt khi có mục tiêu để nỗ lực.
+
+Không cần Nữ thần phải tặng cho mình một thể chất "ăn bao nhiêu cũng không béo", cô gái đã có câu trả lời...
+
+"Ôi, ngài Dũng sĩ, xin hỏi chúng tôi nên xưng hô với ngài thế nào?"
+
+Trong các thần quan đang đứng xếp thành hàng, người có địa vị cao nhất bước về phía trước và hỏi Hibiki.
+
+"Hibiki. Tôi tên là Otonashi Hibiki."
+
+Tiếng xì xào vang lên. Giống như cơn sóng đang lan rộng.
+
+Hiểu được ngôn ngữ của đối phương, Hibiki cảm thấy yên tâm hơn một chút. Mặc dù Nữ thần đã nói rằng không cần lo lắng về vấn đề ngôn ngữ, nhưng khi phải đối mặt với những người có màu tóc và màu mắt khác biệt, ít nhiều cô vẫn cảm thấy bất an cho đến khi thực sự giao tiếp được với họ.
+
+_Không rõ họ có thể hiểu được lời mình nói hay không,_ Hibiki băn khoăn.
+
+"Ngài Hibiki. Tên hay lắm."
+
+Những lo lắng không cần thiết của cô gái đã hoàn toàn tan biến.
+
+"Vậy, đây là ở đâu? Tên ông là gì?"
+
+Hibiki lên tiếng hỏi vị thần quan.
+
+"A, xin hãy tha thứ cho sự vô lễ của tôi. Noi này là lâu đài của vương quốc Limia. Tôi là tư tế Harry Lunamius Ira Portga Elysion."
+
+"T-tên dài thật đấy!"
+
+Hibiki thốt lên. Xem ra không chỉ có tên của bản thân, mà còn bao gồm cả xuất thân và họ của cha mẹ nữa.
+
+"Xin hãy gọi tôi là Harry."
+
+Cái tên trở nên thật ngắn gọn.
+
+"Ngài Hibiki đã được triệu hồi tới vùng đất này với tư cách là một Dũng sĩ đúng không ạ?"
+
+Câu hỏi đó đã kéo lại sự tập trung của Hibiki, người vốn đang thả lỏng trước cái tên rút gọn của vị thần quan.
+
+"... Đúng vậy, Nữ thần yêu cầu tôi tiêu diệt Ma tộc."
+
+"Ồ", những tiếng cảm thán lại vang lên lần nữa.
+
+"À ừm... ngài Hibiki là Nữ thần chiến tranh sao?"
+
+Một người rụt rè hỏi cô gái. Tuy là Dũng sĩ, nhưng tùy thuộc vào việc Hibiki là con người hay thần, cách đối xử cũng sẽ khác nhau.
+
+"Không, tuy cũng nhận được một vài gia hộ và trang bị từ Nữ thần, nhưng tôi chỉ là con người mà thôi."
+
+Cô cho họ thấy chiếc thắt lung bạc. Nữ thần đã giải thích rằng đó là món trang bị có tác dụng gia tăng ma lực và đẩy lùi bóng tối.
+
+Mặc dù hiện tại mới chỉ đang cầm nó trên tay, nhưng Hibiki nghĩ rằng nếu phải đeo nó, có lẽ cô nên quấn quanh eo giống như Obi trên bộ Kimono.
+
+"Thần khí!", một thần quan hét lên rồi cúi đầu. Vì đó là trang bị nhận được từ thần linh nên quả thực có thể gọi nó là thần khí.
+
+"Tương truyền, con người... là chủng tộc tổ tiên của Loài người chúng tôi sao?"
+
+"Loài người ư? Tôi nghĩ họ cũng giống như các ông."
+
+"Tuy bề ngoài không có khác biệt quá lớn, nhưng bên trong thì ngược lại. Trong số chúng tôi, không ai sở hữu nguồn ma lực như ngài Hibiki cả."
+
+Hibiki nhíu mày trước lời nói của vị thần quan.
+
+_Họ điều tra mình từ khi nào vậy?_ Nghĩ thế, cô liền khó chịu ra mặt.
+
+Tinh ý nhận ra sự thay đổi trong biểu cảm trên gương mặt của Hibiki, một vị thần quan vội vàng xua tay.
+
+"Chúng tôi chưa làm bất cứ việc gì hết. Là do ma lực tràn ra từ cơ thể của ngài quá mạnh mẽ."
+
+Dáng vẻ ông ta như muốn nói, "chúng tôi không hề điều tra ngài".
+
+_Không kiểm soát được lượng ma lực tràn ra ngoài thật đúng là phiên toái,_ Hibiki nghĩ.
+
+Nếu để đối thủ suy đoán được thực lực của bản thân, biện pháp có thể sử dụng trong cuộc chiến phân thắng bại sẽ bị giảm đi.
+
+_Mình nhất định phải học được thuật che giấu ma lực,_ Hibiki thầm quyết tâm. Trước giờ cô vốn không có ma lực nên có lẽ việc đó sẽ hơi khó khăn, nhưng Hibiki vẫn vô cùng chờ mong.
+
+Sau khi suy nghĩ thông suốt, Hibiki liền mỉm cười, tính cách của cô gái ấy chính là như vậy.
+
+"Không sao. Thế tôi nên làm gì đây? Ở lại nơi này một thời gian hả?"
+
+Hibiki hỏi các vị thần quan.
+
+Bầu không khí trong phòng chợt trở nên nhẹ nhõm. Lời nói và hành động của bản thân có thể gây ảnh hưởng đến người khác một cách rõ ràng như thế khiến cô cảm thấy khá thú vị.
+
+"A, không! Tôi rất xin lỗi, nhưng ngài cần phải yết kiến quốc vương ngay lập tức. Khi được cho phép yết kiến, chúng ta sẽ lập tức đi ngay."
+
+"Có thể gặp quốc vương đường đột như vậy sao?"
+
+"Bởi vì ngài là Dũng sĩ, một sự tồn tại đặc biệt!"
+
+Khóe miệng của Hibiki khẽ nhếch.
+
+Tuy không chơi game nhiều lắm, nhưng giờ cô cũng hiểu được một chút cảm giác của những người thích RPG rồi đấy.
+
+`RPG: Trò chơi nhập vai.`
+
+_Bản thân mình là một nhân vật vô cùng đặc biệt. Sau này, nhờ sự đặc biệt đó, mình sẽ thực hiện những cuộc phiêu lưu phi thường._
+
+Ngay từ lúc mới bắt đầu, cô gái đã cảm thấy rất vui vẻ và hào hứng.
+
+"A, phải rồi."
+
+Khi đang sải bước trong tòa lâu đài xa hoa cùng các thần quan, Hibiki chợt dừng bước.
+
+"Có chuyện gì vậy ạ?" Một vị thần quan hỏi Hibiki.
+
+"Ngoài tôi ra, còn một Dũng sĩ nữa... Giờ người đó đang ở đâu?"
+
+"Một người khác ư...?"
+
+"Đúng vậy, Nữ thần nói với tôi rằng bà đã đưa một người đi trước."
+
+Câu nói này khiến mọi người xôn xao hẳn lên.
+
+"Người còn lại... Lẽ nào tin đồn đế quốc có được Dũng sĩ là thật ư?!"
+
+"Sao Nữ thần có thể phái Dũng sĩ tới nơi đó trước quốc gia của chúng ta được?!"
+
+"Tại sao Nữ thần không ban cho nước ta cả hai Dũng sĩ cơ chứ?!"
+
+Dường như đã hoàn toàn quên mất bản thân đang trên đường đi tới phòng yết kiến cùng với Hibiki, các vị thần quan xôn xao bàn tán.
+
+_Xem ra Dũng sĩ còn lại đang ở một quốc gia có mâu thuẫn với đất nước này,_ Hibiki nghĩ.
+
+Để làm dịu cuộc tranh cãi, cô liền lên tiếng:
+
+"Thì ra người đó không ở nơi này à? Nhưng đây cũng đâu phải việc gì quan trọng."
+
+"... Ngài thật đáng tin cậy."
+
+Với dáng vẻ như thể đang che giấu điều gì đó, các vị thần quan không tiếp tục đề tài này nữa.
+
+Cô gái được đưa tới phòng yết kiến.
+
+"Cô chính là Dũng sĩ sao?"
+
+_Quang cảnh hệt như trong tưởng tượng của mình._
+
+Đứng trước mặt quốc vương, Hibiki ngây người nghĩ.
+
+Tấm thảm đỏ trải dài trong không gian rộng lớn, ở trên bậc thang phía chính diện có hai ngai vàng. Ngồi trên đó là một người đàn ông trung niên và một cô gái trẻ tuổi.
+
+"Vâng, tên của tôi là Otonashi Hibiki. Tôi vẫn chưa biết lễ nghi của nơi này, vậy nên xin hãy tha thứ cho sự thất lễ của tôi. Tôi có thể gọi ngài là quốc vương được không?"
+
+Trước mắt tạm bỏ qua chuyện lễ nghi, Hibiki đáp lại quốc vương. Với dáng vẻ chẳng hề sợ sệt, giọng điệu lễ phép nhưng ai cũng có thể thấy rõ cách nói chuyện của cô như thể đang giao tiếp với người ngang hàng mình.
+
+Tuy nhiên, không một hạ thần nào lên tiếng khiển trách lời nói và hành động của Hibiki. Tất cả mọi người đều đang cố gắng nhìn kỹ con người được gọi là Dũng sĩ trước mắt.
+
+Quốc vương bình tĩnh đáp lại:
+
+"Tất nhiên. Vì cô là Dũng sĩ được Nữ thần triệu hồi từ thế giới khác, nên không cần câu nệ chuyện đó. Thế nhưng... Hmm, quả đúng là Dũng sĩ. Chỉ với ma lực đang bao quanh cơ thể cô cũng đủ đánh tan tất cả những nghi ngờ của mọi người xung quanh. Ta là Nornil, quốc vương của đất nước này. Bởi tên của ta khá dài nên cô Hibiki chỉ cần nhớ như vậy là được."
+
+"Cảm ơn sự quan tâm của ngài. Nữ thần đưa tôi tới đây, chính là để chiến đấu với Ma tộc tại đất nước này sao?"
+
+"... Ừm. Quốc gia của ta đang phải tranh đấu với Ma tộc. Mặc dù hiện tại chỉ là những cuộc xung đột nhỏ, nhưng một khi đã gánh vác tuyến phòng vệ này, sớm muộn gì chiến tranh cũng sẽ nổ ra. Dù sao, cô Hibiki cứ tập làm quen với thế giới này trước đi đã."
+
+_Sớm muộn gì? Bọn họ có vẻ khá ung dung nhỉ. Nhưng thôi, thoải mái như vậy vẫn tốt hơn._
+
+Có điều, từ vài phút trước, Hibiki rất để ý tới ánh mắt của mọi người xung quanh. Trong đó không chỉ chứa đựng lòng hiếu kỳ, mà còn là sự sùng bái, thậm chí có cả say đắm, khiến cô cảm thấy không hề thoải mái chút nào.
+
+Sự chú ý tăng lên theo cấp số nhân trước khuôn mặt xinh đẹp của cô, trước sự thật cô là Dũng sĩ, trước mái tóc đen huyền bí và đôi đồng tử cùng màu, tuy nhiên, Hibiki lại không nhận ra được những điều đó.
+
+Nói chung, cách để cô sớm thoát khỏi nơi này chính là...
+
+"Tôi rất vui mừng với đề nghị ấy. Tôi vẫn chưa biết nhiều về thế giới này, vậy nên xin mọi người hãy chỉ dạy cho tôi. Đầu tiên, tôi muốn biết cấp độ sức mạnh của bản thân, vậy tôi có thể mời một vị nào đó cùng tôi đối chiến chứ?"
+
+Tiếp đó, tất cả mọi người đều di chuyển tới nơi rộng rãi hơn để tiện cho việc giao chiến.
+
+Sau khi Hibiki đưa ra yêu cầu như trên, những ánh mắt hướng về phía cô càng trở nên mãnh liệt hơn. Đặc biệt, cô còn phải đón nhận thêm nhiều ánh mắt hiếu kỳ từ các hiệp sĩ.
+
+_Về ma lực thì từ từ cũng không sao, nhưng mình muốn nắm rõ năng lực của bản thân trước đã. Chắc hẳn nơi đây không có Katana rồi, nhưng sử dụng kiếm dựa trên nền tàng của Kiếm đạo chắc không vấn để gì..._
+
+Trong khi cô còn đang miên man suy nghĩ, cuộc sống của Dũng sĩ Otonashi Hibiki đã bắt đầu rồi.
+
+<br /><br /><br /><br /><br />
+#### **◇◆ Hiệp Sĩ (?) ◇◆**
+<br /><br /><br /><br /><br />
+
+Thiếu nữ được gọi là Dũng sĩ trông rực rỡ giống như một nàng yêu tinh đang nhảy múa vậy.
+
+Khuôn mặt tràn ngập tự tin, sự hiên ngang và uy nghiêm trong tư thế đứng của cô khiến người khác cảm thấy thậm chí dù đối phương là quốc vương đi chăng nữa, cô vẫn có thể thẳng lưng đối mặt. Ánh nắng vàng càng làm tôn lên vẻ đẹp của mái tóc đen nhánh kia.
+
+Tuy Hibiki nói rằng không hiểu rõ lễ nghi, nhưng lời nói và hành động của cô ấy lại không hề thất lễ chút nào. Đúng là một cô gái không dễ gì gặp được tại lâu đài rộng lớn này.
+
+Chỉ với một cái nhìn thoáng qua, tôi đã bị cô ấy đoạt mất trái tim.
+
+Chắc hẳn quốc vương sẽ không màng tới chuyện Hibiki chỉ là một cô gái, mà chỉ cân nhắc sử dụng cô ấy như thế nào trên chiến trường, nhưng e rằng cô ấy chẳng hề bận tâm tới những điều đó.
+
+Sau khi đã học được kỹ thuật chiến đấu, cách sử dụng ma lực, ắt hẳn cô ấy sẽ mạnh hơn bất kỳ ai trong số chúng tôi và trở thành lực lượng nòng cốt để tiêu diệt tướng địch.
+
+Không ngờ yêu cầu đầu tiên của cô gái đó với quốc vương lại là tỉ thí. Cô ấy nhìn về phía chúng tôi, hỏi rằng liệu có ai có thể giao chiến với cô ấy không.
+
+Hoàn toàn khác với lũ quý tộc chỉ giỏi mạnh miệng và đám ma thuật sư sợ đầu sợ đuôi, cô gái này thực sự vô cùng mạnh mẽ!
+
+Không chỉ bị cô ấy đoạt mất trái tim, trong lòng tôi còn... ẩn chứa một cảm xúc khát khao. Nếu có thể ở bên cô gái này, không biết cuộc sống sẽ trở nên rực rỡ đến thế nào nữa.
+
+Dung mạo, lời nói và cả hành động, tất cả mọi thứ của cô ấy đều làm rung động trái tim tôi. Chỉ trong một thời gian ngắn, tôi đã cảm nhận được một tình cảm cháy bỏng như thể đã có từ lâu. Thật không ngờ, tôi đã yêu cô ấy từ cái nhìn đầu tiên...
+
+Tôi rất muốn có được cô ấy. Đây là lần đầu tiên tôi có suy nghĩ như vậy trong đời.
+
+Tuy thế, những điều đáng ngạc nhiên về cô ấy không chỉ dừng ở đó. Thiếu nữ được Nữ thần lựa chọn làm Dũng sĩ quả thực rất lợi hại.
+
+Vài người có thực lực hàng đầu trong nhóm hiệp sĩ và những người được chỉ huy chỉ đích danh đang đứng đối mặt với Hibiki.
+
+Thân thủ cô ấy nhanh đến mức mắt thường không theo kịp. Động tác vung kiếm còn nhanh hơn nữa. Tôi nghĩ cách dùng kiếm của cô ấy hơi trực diện, nhưng sức mạnh không hề thua kém một người đàn ông cao lớn khỏe mạnh.
+
+Cuối cùng, chỉ huy đã tự mình đứng ra giao chiến với cô ấy. Mọi người có mặt tại đó đều bị mê hoặc bởi cô gái trẻ. Chuyện này cũng dễ hiểu thôi. Một thiếu nữ xinh đẹp hạ gục hết đám hiệp sĩ nhẹ nhàng như đang nhảy múa, và hiện tại đang chiến đấu ngang tài ngang sức với chỉ huy của đội Hiệp sĩ mạnh nhất quốc gia này.
+
+Hơn nữa, ma lực tràn đầy tuôn ra từ cơ thể của cô ấy không tầm thường chút nào. Cô ấy có kỹ năng dùng kiếm tuyệt đỉnh và lượng ma lực khổng lồ. Thì ra Dũng sĩ là như vậy sao?
+
+... Tôi hoàn toàn không cùng một cấp bậc.
+
+Kengggggg!!
+
+Âm thanh cao vút vang lên trên sân huấn luyện.
+
+Thanh kiếm của cô ấy bị gãy mất một nửa. Chỉ huy đã chiến thắng?
+
+... Không?! Thanh kiếm của chỉ huy đã bị đánh bay lên không trung. Cánh tay ướt đẫm mồ hôi của anh ta thoáng run rẩy.
+
+Vói khuôn mặt bình tĩnh chẳng đổ một giọt mồ hôi, cô ấy nhìn thanh kiếm bị gãy mất một nửa như đang trầm tư suy nghĩ điều gì đó.
+
+Thật điên rồ, có thể sử dụng kiếm đến như vậy luôn? Cô gái đó là Nữ thần chiến tranh sao?
+
+Vẻ mặt buồn phiền của cô ấy cũng rất đẹp, tôi và các hiệp sĩ trẻ tuổi khác đều bị thu hút bởi dáng vẻ đó.
+
+Trong phút chốc, thanh kiếm bị đánh bay lên không trung của chỉ huy rơi xuống và cắm trên nền đất cứng của sân huấn luyện. Khoảnh khắc nhìn thấy điều đó, chỉ huy định tuyên bố thất bại thì...
+
+Cô ấy vứt thanh kiếm của mình đi, dường như muốn ngăn cản hành động đó của chỉ huy.
+
+"Thật lòng cảm ơn ngài chỉ huy của đội Hiệp sĩ. Kiếm thuật trong thực chiến của ngài quả là lợi hại. Tôi vô cùng kính phục. Mong rằng tôi có thể được ngài chỉ bảo lần sau."
+
+Dứt lời, cô gái chìa tay ra. Chỉ huy cũng bắt tay với cô ấy.
+
+Tiếng hoan hô vang dội... _Chậc, chỉ huy chết tiệt, sao anh không ngỏm luôn cho rồi._ A, không được, tiếng lòng của mình...
+
+Nàng Dũng sĩ trao thanh kiếm đã gãy của mình cho chỉ huy.
+
+"Cái này... là thanh kiếm tôi đã mượn, thật xin lỗi."
+
+Lúc cô ấy tạ lỗi cũng đẹp nữa.
+
+Tôi biết rõ mình không thể với tới cô ấy.
+
+Dù vậy, tôi vẫn hy vọng được đối chiến với cô ấy một lần. Trong lúc tôi còn đang thả mình vào dòng suy nghĩ, nàng Dũng sĩ đã đi về phía lối ra của sân huấn luyện từ trong vòng vây của mọi người.
+
+Cô ấy đã... đi rồi sao?
+
+Các hiệp sĩ vẫn phải tiếp tục huấn luyện ở nơi này, tôi chỉ có thể nhìn theo cô ấy rời đi. Với thân phận hiệp sĩ, tôi buộc phải nghe theo mệnh lệnh.
+
+Bất chợt, ánh mắt của tôi và cô ấy giao nhau.
+
+Tôi như bị hút vào đôi mắt đen láy chan chứa dịu dàng đó, rồi cô ấy mỉm cười.
+
+... A, không được rồi.
+
+Tôi muốn ở bên cô ấy. Tôi quyết định rồi. Tôi nhất định phải biến cô gái đó thành của mình!
+
+Tôi xin thề với danh nghĩa Đệ nhất Vương tử của Vương quốc Limia, Verda Norst Limia.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Cấp 188. Dũng sĩ.
+
+Đó là chức danh hiện tại Otonashi Hibiki đang nắm giữ. Sau khi được triệu hồi tới vương quốc Limia rộng lớn ở dị giới, việc đầu tiên cô phải làm chính là tìm hiểu về thế giới này. Theo ý kiến của quốc vương, cô sẽ đi thăm thú vương quốc rồi tới các quốc gia láng giềng khác. Khi xung đột với Ma tộc vượt quá quy mô cho phép, cô sẽ được gọi về tham gia chiến đấu.
+
+Tuy vậy, di chuyển từ quốc gia này tới quốc gia khác vốn rất tốn thời gian.
+
+Vương quốc đã tặng cho Hibiki một đạo cụ ma pháp hỗ trợ di chuyển và quay trở lại thành phố, cho phép cô tùy ý sử dụng ma pháp trận dịch chuyển do Hội thương nhân và Hội mạo hiểm giả của thành phố quản lý. Cách thức di chuyển cao cấp nhất trong thế giới này đã giúp cô thực hiện được lịch trình vốn tưởng như phi thực tế.
+
+Hibiki nghĩ rằng Ma tộc là quái vật, nhưng khi nhìn thấy hình dạng của họ rất giống con người, chỉ khác ở làn da màu xanh và sừng, lần đầu tiên trong đời cô gái đã chùn bước khi chiến đấu. Nhưng sau vài lần chạm trán, chứng kiến cái chết của các binh sĩ đồng hành cũng như cái chết của kẻ địch, cô đã chấp nhận hiện thực tranh đoạt sinh mệnh lẫn nhau tàn khốc.
+
+Trong giá trị quan của Hibiki, ma thú hay là Ma tộc đều tồn tại ngang hàng với Loài người. Tuy vậy, cô vẫn chấp nhận sát sinh, bởi nếu chỉ dựa vào tư tưởng và niềm tin sẽ không thể giải quyết được vấn đề, cô đã rút ra được kết luận như vậy.
+
+Không thể phủ nhận rằng, việc cho phép Hibiki đi tới nhiều quốc gia và khiến cô có suy nghĩ như vậy chính là ý đồ của vương quốc Limia. Tuy là nước lớn, nhưng sao một quốc gia ngay tiền tuyến có thể để cô thong dong đi du lịch được.
+
+Bản thân Hibiki cũng tự nhận thức được điều đó, nên cô càng trân trọng những đồng đội kề vai sát cánh của mình. Trong lòng Hibiki, sức nặng giữa sinh mệnh của bọn họ và những người khác cách biệt vô cùng rõ ràng.
+
+Tham gia chiến đấu, liên tục đứng trên chiến trường, nhưng hơn cả tư tưởng hay niềm tin, thứ khắc sâu trong lòng những chiến sĩ chính là khát vọng được bình an vô sự trở về với các chiến hữu đã cùng họ kề vai chiến đấu.
+
+Hiện tại...
+
+Hibiki dang ở bên trong hoàng cung Limia, cô vừa trải qua một cuộc chiến khốc liệt.
+
+Hibiki rất hiếm khi bị thương, nhưng giờ cô đang phải tiếp nhận điều trị và tĩnh dưỡng.
+
+Tất cả các thành viên trong đội đều thương tích đầy mình và đang được điều trị ở một căn phòng khác.
+
+Có thể nói, họ đã thất bại toàn tập.
+
+Tạm thời, những người trong nhóm Dũng sĩ đều đã tự quay trở về, nhưng ngay khi vừa về tới nơi, họ đã kiệt sức ngã gục trong tình trạng tơi tả, khiến cả lâu đài vô cùng hỗn loạn.
+
+"Kyun."
+
+Một tiếng kêu cất lên từ thần khí thắt lưng bạc Hibiki quấn quanh eo. Đó là Ngân Lang - Thủ hộ thú trú ngụ trong chiếc thắt lưng bạc. Trong cuộc chiến lần này, Ngân Lang cũng bị thương nên nó đang phải khôi phục sức mạnh.
+
+"Tớ không sao. Cậu cứ yên tâm nghỉ ngơi đi. Tuy vết thương đã được chữa trị bằng ma pháp nhưng sức lực vẫn chưa hồi phục lại ngay đâu."
+
+Sau khi trấn an Ngân Lang, Hibiki cũng cần phải nghỉ ngơi để hồi phục lại khí lực, ma lực. May mắn thay, trong lần chiến bại này không có thành viên nào của đội phải hứng chịu di chứng trí mạng gây trở ngại cho hoạt động sau này. Sau khi hồi phục, cả đội lại có thể khởi hành lần nữa.
+
+Vừa thầm quan tâm đến cô sói đồng hành cùng mình, Hibiki vừa ngẫm nghĩ:
+
+_Theo kế hoạch, khoảng ba tháng sau mình sẽ chiến đấu với tướng quân của Ma tộc, tuy đây mới là lần đâu tiên, nhưng..._
+
+Lần đầu bại trận, hay đúng hơn là một chiến thắng chật vật đến mức gần như sắp thất bại. Để nâng cao thực lực và thuận lợi nhận được sự tôn kính với tư cách một Dũng sĩ, Hibiki sớm đã muốn nếm trải khổ chiến.
+
+Thực ra, cô từng rất chán nản. Cô chưa bao giờ bộc bạch suy nghĩ này cùng ai, ngay cả với các thành viên trong đội. Đó cũng là một trong những lý do cô tới dị giới.
+
+_Đến cả tốc độ của Naval cũng không theo kịp._
+
+Naval - nữ kiếm sĩ có phong cách chiến đấu gần giống Hibiki, sử dụng tốc độ làm vũ khí. Được chiêu mộ vì lòng căm ghét Ma tộc, Naval đứng trên chiến trường chỉ vì mục đích báo thù.
+
+Ban đầu, khi đội ngũ mới được thành lập, Naval đã có mâu thuẫn với Hibiki, nhưng bây giờ cô ấy đang giữ vị trí tiên phong trong đội.
+
+Naval là một nhân vật vô cùng tài năng, xét về tốc độ, cô ấy vượt qua Hibiki, có thể sử dụng các đòn liên kích áp đảo, khiến kẻ địch buộc phải rút lui chỉ trong nháy mắt. Độ tuổi và chiều cao cũng tương đương Hibiki, mái tóc màu vàng khói gần như màu trắng kết hợp với mái tóc đen của Hibiki khiến cả hai hết sức nổi bật trên chiến trường.
+
+_Thậm chí lớp bảo vệ của Verda cũng bị đánh vỡ._
+
+Verda là một hiệp sĩ có thực lực ở mức trung bình. Vốn dĩ cậu ta không đủ khả năng để gia nhập nhóm của Hibiki, nhưng Verda đã bí mật sử dụng đặc quyền của hoàng tộc để có thể trở thành đồng đội với nàng Dũng sĩ. Trong đội ngũ, không ai biết cậu ta thuộc hoàng tộc, là người có quyền thừa kế vương vị hàng đầu.
+
+Tuy nhiên, Verda cũng không phải là kẻ bất tài. Sau khi gia nhập, cậu ta không ngừng tiến bộ, và cuối cùng đã được đảm nhiệm một vai trò trọng yếu.
+
+Khả năng vượt trội của Verda chính là phòng ngự. Có lúc cậu ta ngăn chặn tấn công nhắm vào hậu phương, có lúc lại cản phá đòn tấn công mà tiên phong thiên về tốc độ không thể chống đỡ được, đôi khi còn xông lên phía trước để gánh chịu đòn tấn công khó tránh. Có thể nói, cậu ta ở vị trí trung vệ kiếm bức tường phòng thủ. Khả năng đỡ đòn và phòng ngự một điểm, cùng năng lực quấy nhiễu vũ khí tầm xa và ma pháp của Verda đều tốt hơn Hibiki.
+
+_Ma pháp của Woody hoàn toàn không có tác dụng gì._
+
+Woody. Một nam ma pháp sư được mệnh danh thiên tài. Chuyên môn của anh ta mang tên "Thuật sĩ pháo đài", với sở trường là ma thuật tấn công uy lực cao. Thuật sĩ pháo đài thường bị cho là dạng thiếu sức cơ động, nhưng anh ta đã kết thành khế ước với Tinh linh Gió, nhờ vậy tốc độ được cải thiện đáng kể và có được sức cơ động cao. Bởi thế, anh ta mới có biệt danh thứ hai là "Pháo Đài Di Động của Limia", không rõ do người ta khen ngợi hay là sợ hãi anh ta nữa. Ngoài ra, bản thân anh ta cũng không nghĩ tốc độ là ưu thế của mình.
+
+Ma pháp tấn công của Woody là lực lượng chiến đấu không thể thiếu với một đội ngũ Dũng sĩ chuyên tấn công vật lý. Vốn là một trong những ma pháp sư của hoàng gia, nhưng quốc vương đã đề nghị anh ta gia nhập đội ngũ và hỗ trợ Hibiki. Tuy vóc dáng nhỏ thó cùng gương mặt như trẻ con, nhưng thực ra Woody đã hai mươi lăm tuổi, anh ta là người lớn tuổi nhất trong đội ngũ.
+
+_Chúng ta đã bắt Chiya phải chịu gánh nặng quá lớn rồi._
+
+Chiya, vu nữ đảm nhiệm chức vụ Trị liệu sư vô cùng cần thiết trong đội ngũ. Mang trong mình nguồn ma lực dồi dào, cô là ma thuật sư thiên về hỗ trợ, rất giỏi trong việc trị liệu và phụ trợ, hơn nữa cũng thân thiết với Tinh linh, giống như Woody. Thông thường, Tinh linh vốn không ưa các ma thuật sư do bọn họ không chú trọng Tinh linh thuật, vậy nên Woody và Chiya là hai trường hợp hiếm thấy. Chiya có mối quan hệ rất tốt với Tinh linh Nước. Khi đạt mức tối đa, lượng ma lực của cô cũng tương đương với Hibiki. Cô ấy là một nhân vật quan trọng của Liên bang Laurel, hiện tại được coi là một trong bốn nước lớn trừ Elysion. Sau khi được Hibiki cứu thoát khi sắp bị ma vật tế sống tại khu vực trung lập nơi biên giới quốc gia, cô ấy đã đồng hành cùng đội ngũ và trở thành thành viên chính thức. Chiya cũng là người dạy ma pháp hồi phục cho Hibiki. Khi đội ngũ lâm vào thảm trạng, Chiya đã dùng gần như toàn bộ ma lực của mình để chữa trị và hồi phục cho mọi người. Hiện giờ cô ấy là người ngủ sâu nhất.
+
+Hibiki, Naval, Verda, Woody và Chiya. Đây là đội Dũng sĩ của Lỉmỉa. Cả năm thành viên đều là Loài người.
+
+Sau mỗi lần xông pha, đội ngũ càng chiến đấu nhiều thì cấp độ của họ càng được nâng cao.
+
+Tuy nhiên, lần này họ đã bại trận.
+
+Khẽ nhếch môi, Hibiki thở hắt ra.
+
+Từ sâu bên trong cơ thể, một cơn chấn động tựa cơn đau kỳ lạ chạy dọc khắp toàn thân.
+
+Phương pháp chiến đấu ở dị giới mà Otonashi Hibiki đã lựa chọn là dùng kiếm và chú trọng tốc độ.
+
+Sức mạnh của cô đã vượt trội hơn nhiều so với lúc còn ở thế giới cũ, vậy nên cô có thể sử dụng đại kiếm. Có điều, khi cân nhắc đến đồng đội xung quanh và độ linh hoạt của vũ khí, cuối cùng cô đã chọn sử dụng kiếm Bastard.
+
+`Bastard: Hay còn gọi là "Hand and a half sword", một loại kiếm dài kết hợp giữa kiếm sử dụng một tay và hai tay. Vũ khí này có thể sử dụng bằng một tay, nhưng phần chuôi kiếm cũng đủ dài để dùng cả hai tay nhằm tăng thêm sức mạnh.`
+
+Đây là loại vũ khí hiếm người sử dụng tại vương quốc Limia. Katana cũng không tồn tại, vì vậy cô đã rất phiền não, rốt cuộc Hibiki quyết định dùng vũ khí với cái tên dịch ra trực tiếp là "Kiếm Con Hoang".
+
+Bình thường Hibiki dùng kiếm bằng một tay, nhưng khi muốn tung đòn tấn công mạnh hơn, cô sẽ cầm bằng cả hai tay. Khi dùng thử, thanh kiếm quả thực rất thuận tay, Hibiki liền coi nó là món vũ khí luôn mang theo người.
+
+Kiếm đạo mà cô từng theo học chú trọng thời cơ và khoảng cách hơn là cách vận dụng kiếm. Ngay cả khi vũ khí sở trường biến thành kiếm phương Tây, cô vẫn có thể vận dụng toàn bộ kỹ thuật đã lĩnh hội được. Điều này khiến Hibiki cảm thấy rất vui.
+
+Vì sở hữu một lượng ma lực lớn đến không tưởng, ban đầu Hibiki đã suy nghĩ đến phương thức tấn công bằng ma pháp, nhưng sau khi cân nhắc đến vấn đề cần tập trung niệm chú, hơn nữa ngoài dùng để đánh đòn phủ đầu ra thì ma thuật rất khó sử dụng linh hoạt, nên cô đành từ bỏ. Vả lại, sử dụng ma pháp cần tập trung tinh thần nên sẽ tốn thời gian khi đang chiến đấu cận chiến bằng kiếm, bởi thế hiện giờ Hibiki vẫn chưa thể thành thạo.
+
+Cuối cùng, cô quyết định học thuật duy trì ma lực trên vũ khí, tường chắn sơ đẳng với chú niệm ngắn và dễ sử dụng, ngoài ra còn có phép tự hồi phục.
+
+Hibiki có khả năng chiến đấu độc lập vừa ổn định vừa mạnh mẽ. Trên thực tế, cô chưa từng thất bại trong các cuộc chiến một chọi một. Nếu chẳng may thua thì cũng chỉ là do bị kẻ địch đánh lén.
+
+Tuy vậy, kết quả lại vô cùng bất ngờ.
+
+Toàn bộ đội ngũ bị một sinh vật đánh tan tác. Hơn nữa, đó còn là cuộc chiến trực diện.
+
+Nó chẳng cần sử dụng chiến lược tinh vi, hay chiến thuật đọc trước hành động của họ, không hề có bất cứ thứ gì.
+
+Nó đột nhiên xuất hiện, rồi mang tới cho Hibiki thất bại mà cô vẫn chờ mong được trải qua.
+
+Sinh vật đó chỉ là một thứ hành động theo bản năng, nhưng nó sở hữu sức tấn công vượt trội và khả năng phòng ngự điên rồ.
+
+Quả thực nó đã bị áp đảo bởi tốc độ của Naval. Nó phải hứng chịu những đòn tấn công liên tục như vũ bão, đến khi nó kịp phản công, Naval đã biến mất.
+
+Vậy, tại sao cô ấy lại thất bại?
+
+Câu trả lời rất đơn giản.
+
+Đòn tấn công của Naval gần như không có tác dụng với đối phương. Thanh kiếm của cô ấy trông xa hoa hơn nhiều so với vũ khí sở trường của Hibiki, lưỡi kiếm nhìn qua thì rất mỏng nhưng thực chất đã được tăng cường ma lực. Độ sắc bén của kiếm kết hợp với tốc độ của cô ấy sẽ đạt được một sức mạnh tương đối, tuy nhiên vẫn chưa đủ.
+
+Trong trận chiến, Naval vừa chịu đựng sự mệt mỏi do chiến đấu với tốc độ cao vừa phải liên tục tấn công đối phương, cuối cùng cô đã cắt đứt được một chân của nó. Cảm giác hân hoan vì tiến gần đến chiến thắng thêm một bước bao trùm khắp cả đội.
+
+Thế nhưng ngay sau đó, cái chân đã cụt của nó tái sinh và tiếp tục hoạt động cứ như chưa hề có chuyện gì xảy ra.
+
+Chỉ bất cẩn trong nháy mắt, Naval đã bị sợi tơ màu đen phun trúng, cơ thể bị khóa chặt, cô ấy trúng phải một đòn tấn công bằng móng vuốt. Chiya liều mạng ngăn chặn ảnh hưởng của sợi tơ và hồi phục cho cô ấy, nhưng Naval tiếp tục chiến đấu là điều không thể. Uy lực của đòn tấn công trực diện kia mạnh đến mức đã khiến cô ấy không thể cử động được nữa.
+
+Vì một thành viên trong đội đã bị hạ gục, số lượng đòn công kích nhắm vào Hibiki nhiều hơn, và gánh nặng của Verda cũng tăng theo. Mặc dù có sở trường gạt đi đòn tấn công, nhưng không phải lần nào cậu ta cũng tránh được thương tổn. Động tác của Verda dần trở nên chậm chạp, rồi chẳng bao lâu sau cậu ta cũng gục ngã.
+
+Chiya tập trung hồi phục cho từng người, Woody cũng không thể dùng hết toàn bộ ma lực chỉ để tấn công. Bất kể tấn công bằng ma pháp có hiệu quả hay không, kẻ địch vẫn chẳng hề suy yếu, Woody chỉ có thể cố gắng giảm các đòn tấn công của đối phương, tình hình càng lúc càng trở nên bất lợi.
+
+Hibiki sử dụng tường chắn và tự phục hồi cho bản thân. Chỉ một mình cô duy trì bức tường tiên phong, chức trách của cả ba người chỉ do một người gánh chịu, chắc chắn sẽ bị áp chế. Từ lúc nhận ra đòn tấn công của mình không có hiệu quả, Thủ hộ thú Ngân Lang chỉ tập trung chặn đánh những đòn tấn công mà tường chắn không thể đỡ được. Chẳng bao lâu sau, Ngân Lang cũng bị trọng thương. Khi hành động của nó trở nên chậm chạp, nó liền trúng phải đòn tấn công liên kích bằng móng vuốt và gục ngã.
+
+Chiya chuyển sang hồi phục cho Hibiki. Dù vậy, cô vẫn chẳng thể theo kịp, Ma pháp hỗ trợ của Woody cũng đã vô dụng. Thứ đó cứ nhàn nhã tung ra các đòn tấn công không ngừng phun những sợi tơ đen về phía họ.
+
+Hồi phục và hỗ trợ đã ngừng lại.
+
+Ai nấy đều sốt ruột, mồ hôi lạnh túa ra.
+
+Bị áp đảo bởi đòn tấn công và khả năng phòng ngự của nó, ngay cả bản thân Hibiki cũng sắp bị nghiền nát. Các đồng đội đã gục ngã. Hibiki còn không thể xác nhận tình trạng của mọi người.
+
+Dùng cả hai tay cầm kiếm, cô dồn sức chém nát một chân. Không bỏ qua cơ hội này, Hibiki quay ngược lưỡi kiếm và đánh bay nó. Đó là thành quả sau những lần tấn công liên tục và vững vàng trong suốt trận chiến.
+
+Cái chân kia tiêu tán và biến thành những hạt bụi màu đen.
+
+Sau đó... giống như lúc trước, nó lại mọc trở lại.
+
+"Haha... ha..."
+
+Nỗi tuyệt vọng bao trùm trái tim Hibiki. Không thể thắng nổi. Đúng vậy, cô không thể đánh bại nó. Thậm chí đây còn chẳng được coi là một cuộc đấu ngang sức, dù vậy cô cũng không hiểu sao bản thân mình lại cười nữa.
+
+Ma lực mà ai cũng tán thưởng của cô đã gần như cạn kiệt. Cơn mệt mỏi chưa từng phải nếm trải và trọng lượng cơ thể ập xuống như muốn nhấn chìm cô.
+
+Hibiki dồn hết toàn bộ sức mạnh còn lại, theo đúng nghĩa đen, để cường hóa cơ thể, thanh kiếm bùng lên ánh sáng đỏ rực.
+
+Dẩu cho không thể chiến thắng... ánh sáng trong đôi mắt cô vẫn không biến mất. Chẳng còn sức lực để di chuyển nữa, Hibiki đành nghênh chiến tại chỗ, cô hét lên:
+
+"Ta... vẫn có thể chiến đấu tiếp! Tói đây đi!"
+
+"SYYAGYAGAYGAYG AGAYGYAY!"
+
+Phát ra thứ âm thanh kỳ lạ mà cô cũng không rõ có phải tiếng gầm hay không, thứ đó nhanh nhẹn tiếp cận Hibiki bằng tám chiếc chân, rồi dùng một chân trước quét ngang cô.
+
+Việc Hibiki làm để chống trả lại là...
+
+Bước lên một bước và tung ra đòn chém nghiêng từ dưới lên.
+
+Đòn tấn công của cô đánh trúng con mắt đang tỏa ra ánh sáng kỳ dị của nó.
+
+Hibiki vốn định né tránh rồi mới tung đòn phản công. Nhưng lúc này cô không làm vậy nữa. Hibiki biết rõ rằng nếu tấn công ngay thì cả cô và nó sẽ đều trúng đòn của đối phương, tuy vậy, cô vấn quyết định vung kiếm.
+
+"... Hự."
+
+Có vẻ nội tạng đã bị đập nát rồi, Hibiki có cảm giác như máu trong người đang trào lên từ cổ họng.
+
+Đó là đương nhiên. Thay vì tránh đòn, Hibiki còn bước lên phía trưóc, hành động này khiến cô phải hứng chịu đòn quét ngang đánh thẳng vào phần bụng.
+
+_Mình sẽ chết sao?_
+
+Nghĩ đoạn, Hibiki ngẩng đầu lên nhìn khung cảnh xung quanh lần cuối cùng...
+
+Một bình nguyên yên bình, dường như chưa từng trải qua một trận chiến ác liệt.
+
+"Tại sao..."
+
+Ngay lúc cô không kìm được thốt lên câu hỏi đó, máu liền trào ra từ khóe miệng. Ý thức dần mất đi, Hibiki không còn trụ vững được nữa.
+
+Dũng sĩ Otonashi Hibiki đã trải qua lần bại trận đâu tiên. Với tình hình hiện tại, cô hoàn toàn không có cơ hội chiến thắng nào, một thất bại hoàn toàn áp đảo.
+
+Đối thủ không phải Ma tộc hay ma thú...
+
+"Tai Họa" - nó được gọi bằng một cái tên đáng căm ghét. Một con nhện đen không ngừng ăn tất cả mọi thứ.
+
+Lúc ấy, Hibiki vẫn chưa nắm rõ đặc tính của nó. Đương nhiên cô cũng không biết được rằng, đòn tấn công mà cô đã dốc cạn sức lực nhắm vào con mắt của nó vào phút cuối đã phần nào lấp đầy cơn đói bụng của con nhện, khiến nó thỏa mãn rời đi...
+
+Nhớ lại cuộc chiến, Hibiki ngồi tựa vào thành giường, hít sâu một hơi. Cảm giác căng thẳng như quay trở lại cuộc chiến đó bao trùm toàn thân, Hibiki phải hít sâu vài lần mới lấy lại được bình tĩnh.
+
+"Mình thực sự muốn chiến thắng... Cảm ơn vì đã để ta nếm trải thất bại này. Hãy chờ đấy..."
+
+Bại trận có lẽ sẽ làm đánh giá của mọi người về Hibiki đi theo chiều hướng xấu, nhưng cô chẳng bận tâm. Điều tra "Tai Họa", sau đó đánh bại nó. Khoảnh khắc ấy, Hibiki đã xác định mục tiêu rõ ràng.
+
+Thất bại và khó khăn mà cô rất chờ mong nhưng chưa được nếm trải ở thế giới trước, cuối cùng đã xuất hiện ở thế giới này. Vậy nên, Hibiki mới nói cảm ơn với con nhện.
+
+Tuy nhiên, chỉ cần năm người với cấp độ chưa tới 200 đã đẩy lui được con nhện đen.
+
+Đánh giá về Hibiki không hề xấu đi mà còn tốt lên. Đó vốn là một vấn đề rất nghiêm trọng. Sau khi con nhện đen xuất hiện, Hội mạo hiểm giả phải lập tức tập hợp những mạo hiểm giả hạng cao, phối họp với đoàn ma thuật sư của quốc gia, vừa duy trì tấn công cự ly xa vừa chuẩn bị sẵn đường lui.
+
+Đề tài này đã làm cả vương quốc phải kinh ngạc, danh tiếng của Dũng sĩ Otonashi Hibiki lại càng vang xa hơn nữa.
+
+... Đây là sự kiện xảy ra một ngày trước khi Misumi Makoto giải thoát cho con nhện đen khỏi cơn đói dai dẳng.
+
+<br /><br /><br /><br /><br />
+# **Chuyện phiếm 2: Anh hùng của Glitonia**
+<br /><br /><br /><br /><br />
+
+Mái tóc vàng gợn sóng dài đến thắt lưng, tấm vải thuần một màu trắng được thắt trên vai.
+
+Chàng trai không nắm rõ được tình hình hiện giờ. Ngay trước mặt cậu là một cô gái trẻ, xinh đẹp và đáng yêu hơn bất cứ người nào cậu từng gặp.
+
+Đôi mắt cô gái trong veo và mang màu xanh lục đầy bí ẩn, khiến người đối diện có cảm giác không thực, chàng trai cảm thấy vui mừng khi cô ấy có vẻ hứng thú quan sát cậu.
+
+Đồng thời, cậu cũng cảm nhận được sự thần thánh tuyệt đối không thể xâm phạm ở cô.
+
+_... Một gương mặt xinh đẹp đến mức không thể tưởng tượng nối, đây có lẽ là mơ chăng?_ Chàng trai đã nghĩ như vậy.
+
+Thế nhưng, đây không phải là mơ.
+
+Cô gái nói với cậu mình là Nữ thần.
+
+Bản thân cô yếu ớt, không thể bảo vệ được thế giới tràn ngập ma quái.
+
+Chỉ dựa vào sức mạnh của mỗi mình cô thì sẽ chẳng làm được gì, cô hy vọng cậu có thể giúp đỡ.
+
+Tuy rất muốn giúp Nữ thần, nhưng cậu đành từ chối lời khẩn cầu của cô bởi bản thân cậu cũng vô cùng yếu đuối.
+
+Quả thực, cậu không có sức khỏe, khả năng tiếp thu kiến thức cũng không quá tốt.
+
+Năng lực vận động chỉ đạt mức trung bình trong trung bình, học tập thì tạm chấp nhận được.
+
+Tính cách tốt bụng, điều này nghe có vẻ không tệ...
+
+Nhưng thực tế, cậu đã từng bị bọn con trai bắt nạt.
+
+Đương nhiên, chàng trai không định nói cho cô gái nhiều chuyện đến thế.
+
+Lý do cậu bị bắt nạt rất đơn giản.
+
+Chủ yếu vì cậu rất được yêu thích.
+
+Cậu có vẻ ngoài rất đẹp trai, chỉ riêng điều đó thôi cũng đủ khiến đám đông trở nên hỗn loạn rồi.
+
+Gương mặt cậu chẳng khác nào những mỹ nam cao gầy bước ra từ truyện tranh thiếu nữ. Hơn nữa, cậu còn mang vẻ yếu ớt. Điểm này đã chạm đến trái tim của các cô gái.
+
+Cậu chẳng bỏ ra quá nhiều công sức, hơn nữa cũng không thể hiện thái độ tích cực với những cô gái chủ động tiếp cận cậu.
+
+Chính thái độ mơ hồ đó của cậu đã khiến những nam sinh xung quanh tức giận. Khi ấy, các bạn nữ lại bảo vệ cậu, và hành động đó chỉ càng làm thái độ của người khác đối với cậu thêm gay gắt hơn.
+
+Nói thực lòng, bản thân cậu vô cùng sợ nữ giới. Vậy nên cậu vốn rất muốn tạo khoảng cách, nhung bọn họ lại luôn tiếp cận cậu.
+
+Giờ đám nam sinh đã ngứa mắt cậu, cố tình cách xa chỉ càng khiến lửa giận của họ tăng thêm.
+
+Rốt cuộc cậu nên làm thế nào?
+
+Khoảng thời gian gần đây, thậm chí cậu còn không đi học.
+
+Đúng lúc này, Nữ thần xuất hiện.
+
+"Đừng lo, trong cơ thể cậu ẩn chứa một sức mạnh to lớn. Sức mạnh đó sẽ thức tỉnh khi cậu đi tới thế giới của ta. Tất nhiên, ta cũng sẽ chúc phúc và ban cho cậu năng lực khác nữa. Vậy nên làm ơn..."
+
+Nếu như Nữ thần đến muộn một chút...
+
+Hoặc sớm hơn một chút...
+
+Có lẽ cậu đã từ chối. Mặc dù cũng có mơ ước được như bao nhân vật chính trong game, nhưng cậu vẫn sẽ lựa chọn hiện thực.
+
+"T-thật ư? Người như tôi cũng có thể sao?"
+
+Lúc mới bị bắt nạt ở trường học, biện pháp giải quyết mà cậu đưa ra là nhốt mình ở trong phòng.
+
+Kết quả, cậu bị cha mẹ quở trách vì không đến trường.
+
+Mọi thứ trong cuộc sống của cậu đều trở nên tồi tệ.
+
+"Đương nhiên, không chỉ có mình cậu. Còn có một nữ cộng sự cũng đã đồng ý đi tới dị giới. Làm ơn hãy trở thành Dũng sĩ và cho tôi mượn sức mạnh của cậu."
+
+Đối phương là Nữ thần trong dáng vẻ một cô gái trẻ vô cùng xinh đẹp. Hơn nữa, cô ấy đang cầu xin cậu. Vả lại, cậu không chỉ có một mình.
+
+Một nữ cộng sự cũng ở đây. Mặc dù cậu rất để ý tới cô gái ấy, nhưng chắc hẳn đó là một người cậu không quen biết. Hơn nữa, khi biết có một người bạn đồng hương, cậu đã cảm thấy yên lòng hơn.
+
+Nghĩ đoạn, cậu liền hỏi:
+
+"Ngài đã nói rằng sẽ ban cho tôi sức mạnh, đó là sức mạnh gì?"
+
+Đây là điểm mấu chốt với cậu. RPG leo lên từ cấp 1 rất khó khăn. Gần đây ngay cả game mô phỏng cũng làm theo RPG, người chơi sẽ được chỉnh sửa theo ý mình trước rồi mới bắt đầu chơi. Cách ấy sẽ khiến trò chơi thú vị hơn, mặc dù nó có hơi lệch lạc.
+
+Tuy nhiên, ít ra khi xem xét tới cảm giác game, cậu sẽ không dễ dàng có được sự quyết tâm như vậy. Bởi vì Nữ thần chưa bao giờ nói câu "Xin hãy trở về". Hơn nữa, cô lờ đi như không nghe thấy gì, chỉ bình tình đáp:
+
+`Cảm giác game (game sense) là một thuật ngữ trong trò choi dùng để mô tả dự đoán và khả năng suy luận của người chơi.`
+
+"Cơ thể sở hữu sức mạnh có thể chiến đấu được với ma thú, lại mang nguồn ma lực vượt trội Ma tộc đối địch và năng lực ma nhãn bắt con người làm tù binh. Hơn nữa cậu còn nhận được 'Giày Bạc' có thể chạy trên không và giảm bót mệt mỏi."
+
+"Thế nào?", Nữ thần nhìn thiếu niên.
+
+Trái tim cậu vui mừng như muốn nhảy nhót. Điều kiện quá tốt. Nếu một nhân vật trong game có nhiều đặc quyền như vậy, chắc chắn sẽ phá vỡ cân bằng của trò choi. Cậu biết rõ những năng lực này đem lại lợi ích lớn đến thế nào.
+
+Như vậy, cậu có thể kiểm soát được phần lớn tình hình. Thực ra, cậu còn muốn cả năng lực đặc biệt gì đó, nhưng nếu đòi hỏi quá nhiều sẽ gây phản cảm và điều đó thì không tốt chút nào. Cậu phiền não không biết nên trả lời sao cho ổn thỏa.
+
+Có điều, cho dù thực sự không được, và khoảnh khắc siêu thực chỉ là một giấc chiêm bao, thì ngày mai cuộc sống chỉ giới hạn trong phòng ngủ của cậu cũng chẳng thay đổi gì. Vậy nên, cậu quyết định liều lĩnh một lần.
+
+Nữ thần xuất hiện và mời cậu tới một thế giới khác. Rõ ràng điều này quá phi hiện thực. Chàng trai thầm nghĩ, có lẽ đây chỉ là một giấc mộng mà thôi.
+
+"... Như vậy, mặc dù có chút gánh nặng, nhưng ta sẽ ban cho cậu năng lực bất tử chỉ giới hạn vào ban đêm. Tuy nhiên, cần có mặt trăng mới sử dụng được năng lực này."
+
+Tăng thêm rồi. Hơn nữa, không cần dùng lời nói, Nữ thần đã chịu nhượng bộ.
+
+Cậu cũng không biết Nữ thần đang sốt ruột vì thời gian rất cấp bách. Quả thực vô cùng may mắn.
+
+_Nếu chiến đấu vào ban đêm, mình sẽ vô địch._ Cậu đã tiếp nhận năng lực với cách lý giải sai lầm như thế.
+
+"Tôi hiểu rồi, thưa Nữ thần. Mặc dù cảm thấy bất an không biết liệu mình có thể làm được hay không, nhưng tôi sẽ cố hết sức trở thành một Dũng sĩ."
+
+Cậu đặt ra quyết tâm và truyền đạt cho Nữ thần biết được quyết định của mình.
+
+Nghe vậy, lần đầu tiên trong ngày hôm nay, Nữ thần nở nụ cười hạnh phúc.
+
+_Người phải nói lời cảm ơn là mình mới đúng, chàng trai cười thầm trong lòng. Tại thế giới mà mình sắp tới, mình sẽ trở nên CỰC MẠNH, hơn nữa còn có thể làm mọi chuyện theo ý mình mà không sợ bị người khác nhiếc móc. Nếu có thể biến con người thành tù binh, mình cũng sẽ không bị bắt nạt nữa._
+
+Lúc này đây, dường như có thứ gì đó đè nặng trong lồng ngực cậu, nhưng cậu cố tình lờ đi cảm giác ấy, rồi sau đó, thân thể cậu được bao phủ bởi vầng hào quang màu vàng kim.
+
+Đáng lẽ cậu nên ở lại. Bởi cảm giác kia cứ đeo bám cậu không buông. Tình huống của cậu khác hẳn hai người kia. Cậu vẫn chưa hoàn toàn chán ghét cuộc sống ở Nhật Bản, cũng chẳng lâm vào tình cảnh không thể từ chối. Đơn giản là bởi cậu không muốn bị bắt nạt ở trường, chỉ vì mỗi nguyên nhân đó, cậu đã quyết định đi tới thế giới khác.
+
+Một lựa chọn không thể cứu vãn...
+
+Giây tiếp theo, cậu - Iwahashi Tomoki đã có mặt ở dị giới.
+
+"Thế giới của Nữ thần đây sao?"
+
+Một cô gái đang đứng ở nơi kỳ lạ đầy bụi bặm. Cũng có vài người mặc trang phục như của thần quan hoặc tăng lữ đang đứng cạnh cô ấy.
+
+"... Ngài là Dũng sĩ phải không? Ngài có thể hiểu lời tôi nói chứ?"
+
+"?! A, vâng. Tôi hiểu."
+
+Đã rất lâu chưa được giao tiếp với người khác, Tomoki lúng túng đáp lại.
+
+Tuy không mang vẻ đẹp thần thánh như Nữ thần, nhưng cô gái trước mặt cậu cũng xinh đẹp đến siêu thực. Chính điều này đã khiến thái độ của cậu trong mắt người khác trở nên đáng ngờ.
+
+So với Tomoki - chàng trai đang học lóp Chín đã cao hơn một mét tám, thiếu nữ vừa mới lên tiếng đó chỉ cao tới vai cậu, nhưng ở cô ấy toát ra vẻ uy nghiêm, khiến cậu cảm thấy bồn chồn một cách kỳ lạ khi đối diện với cô ấy.
+
+Mái tóc ánh bạc mang vẻ ôn hòa, dịu dàng. Kiêu tóc Short Bob. Dáng người tuy hơi mảnh mai nhưng vẫn có khí chất đoan trang. Quả là một thiếu nữ rất phù hợp với bầu không khí trang nghiêm.
+
+`Short Bob: Một kiểu tóc chỉ ngắn đến quai hàm, được tạo kiểu vô cùng đa dạng.`
+
+Ấn tượng sâu sắc nhất của Tomoki với người con gái đó chính là đôi mắt tràn đầy tự tin và ẩn chứa ý chí mãnh liệt.
+
+_(Cô ấy đem lại cảm giác như một người phụ nữ hết lòng vì sự nghiệp vậy.)_
+
+Tomoki kết luận.
+
+"... Thật tốt quá. Ngài Dũng sĩ, một nơi như thế này thật không phù hợp để nói chuyện, ngài đi cùng tôi nhé?"
+
+Nghe cô ấy mở lời đề nghị với một nụ cười mỉm trên môi, cậu liền cùng cô rời khỏi phòng.
+
+Lúc này đây, tuy mới gặp lần đầu, nhưng thiếu nữ không hề hỏi tên của cậu. Điều này có nguyên do.
+
+Những người thuộc thành phần nòng cốt của đế quốc đã từ bỏ gia hộ của Nữ thần, chuyển sang phương châm đẩy lùi Ma tộc bằng chính sức mình. Các tướng lĩnh cấp cao trong quân đội đã mất đi tín ngưỡng đối với Nữ thần. Đặc biệt là cô gái đang tiếp đón Dũng sĩ lại càng có vẻ nghiêng về phía đó nhiều hơn.
+
+Đối với đế quốc, Dũng sĩ không phải là đấng cứu thế, mà chỉ là nguyên liệu để tạo ra một Anh hùng.
+
+Một món vũ khí tối cao mang tên Anh hùng.
+
+Đế quốc Glitonia nơi cậu đã rơi xuống là một quốc gia chỉ coi Dũng sĩ như một thứ vũ khí, không hơn không kém.
+
+Còn Dũng sĩ Tomoki lúc này đang vô cùng hứng thú khi được gặp gỡ mọi người, đương nhiên không hề biết chuyện gì sẽ chờ đón mình ở phía trước.
+
+Tomoki đang ở một quốc gia hà khắc hơn so với vương quốc Limia của nữ Dũng sĩ kia... Nhưng ít nhất, cậu không phải lo đến cơm ăn áo mặc, tình trạng này vẫn tốt hơn nhiều so với việc bị ném xuống nơi hoang dã.
+
+<br /><br /><br /><br /><br />
+#### **◇◆ Lily ◇◆**
+<br /><br /><br /><br /><br />
+
+Dũng sĩ đã tới. Sau khi tạm chia tay với Dũng sĩ, trong lúc đang đi dạo để bình tâm lại, tôi chợt dừng bước trước một nơi.
+
+Phòng cầu nguyện.
+
+Trên sàn đá thô cứng lạnh lẽo là một tế đàn ở chính giữa căn phòng.
+
+Tôi ghét căn phòng này, bởi vì nó là một nơi vô nghĩa.
+
+Nữ thần... vị thần mà bất cứ Loài người nào cũng đều tín tưởng và tôn sùng của thế giới này... Là vị thần yêu cái đẹp hơn tất thảy, Nữ thần đã định Loài người chúng tôi đứng đầu tất cả chủng tộc và ban lời chúc phúc cho Loài người.
+
+Nhưng trong mười năm gần đây, những lời thỉnh cầu đều chưa một lần được hồi đáp. Cả gia hộ và giúp đỡ cũng không. Quy tắc tuyệt đối: có được sức mạnh bằng cách mài giũa vẻ đẹp của thế giới này không hề có dấu hiệu bị phá vỡ.
+
+Nữ thần yêu những thứ đẹp đẽ. Người lọt vào mắt xanh của bà sẽ nhận được lời chúc phúc mạnh mẽ. Đôi khi, lời chúc sẽ giúp một đứa trẻ sở hữu năng lực áp đảo cả người trưởng thành. Đó cũng là thứ giữ vững địa vị của Loài người trong các chủng tộc.
+
+Thế nhưng, trò đùa trớ trêu gì đây...
+
+Không hiểu sao, đột nhiên có một thần dụ từ Nữ thần được truyền tới thần quan và tôi - công chúa đế quốc.
+
+Thậm chí còn đúng vào thời điểm Elysion - quốc gia thờ phụng và tôn sùng Nữ thần nhất, vừa diệt vong do bị Ma tộc giày xéo.
+
+May mắn thay, nhờ kịp thời hợp tác với Limia và xây dựng tuyến phòng ngự, quốc gia của tôi mới tạm thời ngăn chặn được sự xâm chiếm của Ma tộc. Đó chính là tình hình bi thảm hiện tại. Nữ thần có thực sự là sự tồn tại đáng tin tưởng không? Chẳng lẽ chúng ta nhất định phải dựa vào cái gì đó thì mới sống được?
+
+Ngày qua ngày, nghi vấn của tôi dần dần lớn hơn. Nhưng một khi nói ra điều này, tôi sẽ bị coi là tín đồ dị giáo, vậy nên tôi cần phải cẩn trọng trong lời nói của mình. Tín ngưỡng Nữ thần trong lòng người dân hiện tại vẫn ở cấp quốc gia.
+
+... Việc đã đến nước này, bà ta mới nhắn nhủ một câu "Ban cho các ngươi Dụng sĩ để tiêu diệt Ma tộc", thật đúng là buồn cười.
+
+_Mình nên làm thế nào với vị Dũng sĩ bỗng dưng xuất hiện từ tế đàn sắp bị hủy bỏ đây?_
+
+Thần dụ thứ hai "Người này là Dũng sĩ. Hãy đối đãi cho tốt" mà Nữ thần đưa ra là để xác nhận Dũng sĩ chính là cậu ta chứ không phải ai khác.
+
+Nhằm mục đích đương đầu với Ma tộc mà không cần dựa vào gia hộ của Nữ thần, đội quân Đế quốc Glitonia đã thực hiện vô số thí nghiệm. Cường hóa cơ thể con người, lấy và cấy ghép các kỹ thuật chiến đấu ưu tú, dung hợp Loài người và trang bị có chứa sức mạnh ma thuật...
+
+Tất cả những thí nghiệm này đều không xứng được ca ngợi. Chẳng ai có thể phủ nhận sự thật rằng đó là những hành động phi nhân đạo. Nhưng vậy thì đã sao? Tất cả là để chiến thắng Ma tộc. Nếu muốn phê phán, vậy hãy cho chúng tôi thấy cách đẩy lùi Ma tộc mang tính nhân đạo đi.
+
+Tuy nhiên, so sánh với những "kiệt tác" liên tục được chúng tôi chế tạo ra, Dũng sĩ quả thực là hạc giữa bầy gà.
+
+Đó là một cơ thể với sức mạnh vượt xa trình độ cường hóa thông thường, lượng ma lực tương đương với Ma tộc đẳng cấp cao, hơn nữa còn có khả năng tương thích với tất cả đạo cụ ma pháp mà đế quốc sở hữu.
+
+Đó là một cơ thể không cần gia tăng bất cứ thứ gì mà vẫn có được sức mạnh điên rồ. Khi tự mình dẫn đường cho cậu ta, tôi đã tận mắt nhìn thấy toàn bộ.
+
+Chàng trai nho nhã luôn toát lên vẻ yếu đuối ấy chính là Dũng sĩ của đế quốc. Vì được lựa chọn bởi Nữ thần nên đương nhiên người đó có vẻ ngoài vô cùng xuất chúng.
+
+Đôi mắt cậu ta sở hữu một kỹ năng chẳng hề tốt lành gì. Người của phòng nghiên cứu nói rằng, đó là một loại ma nhãn chuyên về mê hoặc. Tôi đã vô hiệu hóa được kỹ năng đó bằng biện pháp xử lý tạm thời, nhưng chỉ giới hạn trong hoàng tộc.
+
+Một thanh niên ôn hòa mang ma nhãn, hơn nữa từ giọng điệu của cậu ta có thể nghe ra được sự kiêu ngạo của kẻ mạnh. Cậu ta quan sát các hiệp sĩ của tôi không chút khách khí. Ở cậu ta toát lên sự vui vẻ kỳ lạ, như thể một đứa trẻ đang tới lễ hội vậy.
+
+Mọi thứ đều làm tôi cảm thấy khó chịu. Nhưng điều làm tôi không thích hơn cả chính là món quà từ Nữ thần.
+
+Dù vậy, cũng chẳng hề gì.
+
+Nếu cậu ta là Dũng sĩ, đế quốc sẽ làm cho cậu ta trở thành kẻ mạnh nhất. Bất kể cậu ta muốn thứ gì, tiền tài hay tước vị, nữ nhân hay nam nhân, chúng tôi cũng có thể cho cậu.
+
+... Chỉ cần có thể tiêu diệt được Ma tộc.
+
+Dù là kho báu của bất kỳ quốc gia nào, hay ngai vàng của đế quốc này, thậm chí ngay cả thân thể của tôi... Nếu có thể báo thù cho mẫu hậu, báo thù cho người phụ nữ đáng thương đã phải hy sinh vì niềm tin mãnh liệt vào Nữ thần, bỏ ngoài tai mọi lời khẩn cầu của con gái cho đến phút cuối...
+
+Tomoki, Iwahashi Tomoki, hãy vui mừng đi! Cậu sẽ được khắc tên vào lịch sử với tư cách Dũng sĩ. Và hãy làm cho ta vui vẻ, nhuộm đỏ cả băng nguyên này bằng máu của Ma tộc đi!
+
+Hỡi Nữ thần, bà đã chơi đùa với chúng ta theo sở thích tùy hứng của mình. Món đồ chơi mà bà cho tôi, tôi sẽ sử dụng thật tốt cho bà xem.
+
+Thề trên huyết mạch của hoàng đế, tôi nhất định sẽ làm được.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Cấp 389, Dũng sĩ.
+
+Khi Dũng sĩ của Limia lập thành đội ngũ và đứng trên chiến trường, đế quốc đã sớm biến thành một miền đất tuyết phủ trắng xóa và bắt đầu nâng cao tuyến phòng ngự với Ma tộc.
+
+Và người có vai trò chủ đạo dĩ nhiên là Dũng sĩ Iwahashi Tomoki, người đã đạt tới cấp độ hiếm đến mức chỉ đếm được trên đầu ngón tay.
+
+Hiện tại, mặc dù đế quốc đã có nhân vật Loài người mạnh nhất với cấp 920, thế nhưng Lily - Đệ nhị Công chúa của đế quốc, vẫn chủ trương muốn nhanh chóng sử dụng Dũng sĩ, và người đã thể hiện tốt nhất trên chiến trường cũng chính là Tomoki.
+
+Đế quốc ra sức lợi dụng cậu ta. Dù sao, ngay cả Tomoki cũng tự mình đưa ra yêu cầu được chiến đấu trên chiến trường với mục đích mài giũa sức mạnh và kỹ thuật của mình.
+
+Cậu ta đến đăng ký tại Hội mạo hiểm giả vào đêm thứ hai kể từ khi đặt chân tới thế giới này. Cấp độ đo được lúc đó là 98.
+
+... Sức mạnh của cậu ta tăng nhanh với tốc độ dị thường. Chỉ sau vài tháng, Tomoki đã đạt tới cấp độ mà có lẽ những mạo hiểm giả bình thường cả đời cũng không thể với tới.
+
+Ban đầu, mục tiêu được định ra cho Tomoki chính là Sofia - Sát Long có cấp độ 920.
+
+Đó có lẽ cũng là nguyên nhân. Tomoki đã chiến đấu với lòng quyết tâm rất mãnh liệt. Nhờ đế quốc, không, nhờ có Lily làm hậu thuẫn, cô ấy đã nâng đỡ cậu về mọi mặt, giúp cậu nhanh chóng mạnh mẽ hơn.
+
+Mặt khác, đế quốc cũng cẩn thận che giấu thông tin về Dũng sĩ. Trừ khi ở trên chiến trường, gần như cậu không xuất hiện trước công chúng bao giờ.
+
+Ngay cả thời điểm khải hoàn trở về đế đô, cậu cũng phải mặc áo giáp toàn thân và đội một chiếc mũ giáp to quá khổ, do đó thực tế rất ít người được thấy ngoại hình của cậu.
+
+"Dũng sĩ của Limia đang ở cấp 138 à? Liệu cô ấy có thể trợ giúp cho ta được không đây?"
+
+Tomoki hỏi Lily, người đã cung cấp thông tin về nữ Dũng sĩ kia cho cậu. Câu hỏi đó chỉ mang tính nghi vấn đơn thuần, không hề có sự coi thường nào với Hibiki. Do cấp độ của Hibiki chỉ bằng một phần ba Tomoki, nên đương nhiên cậu chưa thể cảm thấy yên tâm rồi, không biết cả hai cùng chiến đấu có ổn không.
+
+"Ngài Tomoki, nữ Dũng sĩ ấy cũng mới được triệu hồi đến đây không lâu. Chúng ta vẫn chưa biết tương lai ngài ấy sẽ trở nên như thế nào."
+
+Gọi Tomoki là ngài, Lily mỉm cười đáp lại. Lần đầu tiên hai người gặp nhau, ấn tượng của Tomoki về Lily là một cô gái lạnh lùng và trang nghiêm, nhưng thời gian trôi qua, thái độ của cô ấy đối với Tomoki dần trở nên nhu hòa hơn, nếu phải mô tả biểu hiện của cô ấy hiện tại, có lẽ giống một vị tiểu thư dịu dàng.
+
+Đây là kiểu người mà Tomoki thích. Cho rằng sự thay đổi của cô cũng là do ảnh hưởng của ma nhãn, cậu đã rất vui mừng.
+
+Khi đi thăm nhiều nơi vào ngày đầu tiên ở dị giới, Tomoki đã bị người của đế quốc âm thầm điều tra vô cùng kỹ lưỡng. Lúc đó, Lily đã biết rõ về ma nhãn, nên không đời nào cô lại bị ảnh hưởng. Có lẽ cô ấy đã đưa ra biện pháp đối phó để cả hoàng tộc không phải chịu ảnh hưởng của ma nhãn.
+
+Không hề biết rằng mình đã bị điều tra, Tomoki cứ tưởng rằng Lily vẫn chưa nhận ra năng lực của ma nhãn mà mình đang che giấu.
+
+Tomoki vẫn chưa tiết lộ với bất kỳ ai về năng lực ấy, và cả đặc tính bất tử của mình. Cậu chẳng bao giờ có ý định nói cho người khác biết về toàn bộ sức mạnh của bản thân. Bởi cậu biết, điều đó có thể trở thành con át chủ bài và gây ảnh hưởng xấu đến chính cậu.
+
+"Ừm, cô nói đúng. Ban đầu ta cũng mới cấp 98. Có lẽ cô ấy sẽ thăng cấp nhanh thôi."
+
+Thời điểm hiện tại vẫn chỉ là một bước trong kế hoạch, đế quốc đang có ý định chiếm lĩnh một trong các pháo đài của Ma tộc. Tuy nhiên, nếu không mượn sức mạnh của các quốc gia khác, điển hình là Limia, thì chỉ mình Glitonia sẽ không thể thực hiện được kế hoạch quy mô lớn như vậy. Thế nên, họ đang chờ đợi Dũng sĩ của Limia trở nên mạnh hơn.
+
+Do đó, đế quốc đã gửi gián điệp tới vương quốc Limia để thường xuyên nắm được thông tin mới nhất về Dũng sĩ của Limia, Otonashi Hibiki. Vậy nên, cho dù đế đô nằm cách Limia rất xa, Glitonia vẫn có được thông tin chính xác.
+
+Vì Tomoki đã nghe về kế hoạch tác chiến này nên việc cậu muốn biết thêm về Dũng sĩ của Limia cũng là điều dễ hiểu.
+
+"Nhưng... ngài Tomoki, tại sao ngài đột nhiên hỏi về Dũng sĩ của Limia thế? Chẳng lẽ... ngài có quen biết ngài ấy sao?"
+
+"Không phải. Tuy từng nghe đến tên cô ấy, nhưng ta cũng chưa gặp cô ấy bao giờ. Nếu không nhầm thì cô ấy đã mười tám tuổi. Ta không quen người nào lớn hơn mình ba tuổi cả."
+
+"Vậy thì tại sao? Nghe nói đó là một cô gái rất xinh đẹp, vậy nên... ngài muốn có ngài ấy sao?"
+
+Dường như đang nghĩ tới một trò đùa nghịch ngợm, công chúa đi vòng ra phía sau lưng Tomoki, dùng hai tay ôm lấy cậu.
+
+"Sao vậy, ghen tị à? Đừng lo, ta đã rất hạnh phúc khi có Lily và mọi người ở đây rồi."
+
+"Thật sao? Nếu có người nào đó mà ngài muốn, xin hãy cứ nói ra. Anh hùng thích mỹ nhân là chuyện thường tình mà. Tôi sẽ không trách cứ ngài vì điều đó đâu."
+
+Âm thanh ngọt ngào thì thầm bên tai.
+
+Tomoki gật đầu thỏa mãn.
+
+"Ừm, ta sẽ làm vậy."
+
+"Vâng."
+
+"Thế còn trận chiến hôm nay thì sao?"
+
+"Phải rồi, một phần của đường biên giới phía Tây Bắc đã bị xâm chiếm, ngài nên đi tới đó."
+
+"Vậy sao? Ta nên làm như thế nào đây?"
+
+"Đầu tiên, chúng ta hãy ăn trưa đã. Tôi tới đây để gọi ngài mà."
+
+"Ừm, vậy chúng ta đi tới bàn tròn đi."
+
+"Vâng, ngài Tomoki."
+
+Hai người rời khỏi phòng, theo sau là vài cô hầu gái.
+
+"Tôi, Lily Front Glitonia, đã quyết định sẽ phục tùng ngài Dũng sĩ Tomoki và cống hiến toàn bộ sức mọn của bản thân cho ngài ấy. Xin hãy cho phép tôi được ở bên cạnh ngài Tomoki, tôi muốn được hỗ trợ cho ngài ấy hết mình."
+
+Những người đứng đầu của đế quốc tập trung lại tại một căn phòng trong hoàng cung. Đây là một nơi trọng yếu của đế quốc được kết nối với lâu đài.
+
+Lời tuyên thệ đột ngột của Lily khiến ai nấy đều rối loạn, từ hoàng tộc cho tới những người có sức ảnh hưởng lớn. Có điều, câu nói tiếp theo của cô lập tức khiến bầu không khí rơi vào yên tĩnh.
+
+"Vì vậy, tôi sẽ từ bỏ quyền thừa kế ngai vàng, việc quản lý chính vụ cũng giao cho người khác. Xin mọi người cũng hãy dốc sức hỗ trợ cho ngài Dũng sĩ."
+
+Lên tiếng can gián trước lời phát ngôn khó tin của cô chủ yếu là những kẻ thuộc bè phái của anh trai và chị gái Lily - những người đang trong cuộc chiến tranh giành ngai vàng.
+
+Vốn dĩ, đối thủ chính trị tự mình nói rằng sẽ rời khỏi sân khấu, làm gì có chuyện nào đáng mừng hơn được nữa. Nhưng điều mọi người chú ý đến chính là quyền lợi trong tay Lily. Cô cũng từng tham gia cuộc tranh giành chính trị ác liệt nhắm vào ngôi vị hoàng đế với tư cách là một thành viên trong hoàng tộc được hưởng rất nhiều quyền lợi. Hệ quả sắp tới của chuyện này đã trở thành mối quan tâm lớn của những người xung quanh.
+
+Các thành viên còn lại trong hoàng tộc và những quý tộc im lặng chờ đợi công chúa nói tiếp.
+
+"Tôi sẽ giao lại hầu hết những công việc mà tôi đang đảm đương cho mọi người. Chỉ là... tôi hy vọng sau này mọi người hãy giao phó nhiệm vụ hỗ trợ ngài Dũng sĩ cho tôi. Cụ thể là những công việc liên quan tới bộ phận quân sự, nhưng tôi sẽ công khai và chia sẻ toàn bộ kỹ thuật có được cho quân đội đế quốc. Ngoài ra, hiện giờ tôi đã tiến hành chuẩn bị để sẵn sàng chuyển giao toàn bộ."
+
+"Ồ", những tiếng xôn xao vang lên. Bằng tài trí của mình, Lily đã gây dựng nên rất nhiều sự nghiệp lớn mạnh. Cho dù không có phần quân sự, chỉ riêng mảng được chuyển giao đã là món hời lớn đầy hấp dẫn rồi.
+
+Các quý tộc và anh chị em của Lily vẫn tiếp tục im lặng. Đúng như cô dự tính.
+
+Tiếp theo là phụ thân của cô, người đàn ông đang giữ cương vị Hoàng đế của một đế quốc.
+
+Đương nhiên, ông ấy đã hỏi Lily lý do đột nhiên từ bỏ quyền thừa kế ngai vàng. Đáng lẽ cô nên biến sự xuất hiện của Dũng sĩ thành sức mạnh của bản thân và mở rộng quyền lực. Hơn nữa, căn cứ vào hành động của Lily từ trước đến giờ, tiến triển như vậy mới đúng đắn và hợp lý. Kể từ khi Tomoki được triệu hồi, Lily ưu tiên cậu ta hơn tất thảy, luôn đặt việc hỗ trợ cậu ta lên hàng đầu. Hiện giờ, Đệ nhị Công chúa Lily là người gần gũi với Dũng sĩ Tomoki nhất. Cô không cần thiết phải rút lui khỏi cuộc tranh giành ngôi vị chỉ để tập trung hỗ trợ cho cậu ta.
+
+"Hoàng đế tiếp theo là người sẽ kế thừa ý chí của phụ vương. Còn con muốn kế thừa di nguyện của mẫu hậu. Mầu hậu là tín đồ trung thành của Nữ thân, người đã tin tưởng Nữ thần cho đến giây phút cuối cùng. Mặc dù con cảm thấy rất có lỗi với phụ vương, nhưng để kế thừa niềm tin của mẫu hậu, con muốn được sát cánh cùng ngài Dũng sĩ do Nữ thần phái đến."
+
+Bên trong căn phòng lặng ngắt không một tiếng động.
+
+Chuyện Lily vô cùng yêu quý mẹ mình là sự thực mà anh em, cha, và cả những quý tộc có địa vị cao đều biết, trong số họ còn có người đã rơi lệ vì lời nói của cô.
+
+"... Xin hãy cho phép sự ích kỷ của tôi. Nhất định mọi người sẽ nhìn thấy tôi cùng ngài Dũng sĩ tiêu diệt được Ma tộc, giành lại vùng đất Elysion xinh đẹp."
+
+Quyết định chỉ phụ trách những công việc cần thiết cho nhiệm vụ hỗ trợ Dũng sĩ, ngày hôm đó, Lily đã rời khỏi đấu trường chính trị. Mặc cho rất nhiều người hoài nghi cô đang âm mưu chuyện gì đó, nhưng sau này thái độ tự nguyện cống hiến tâm sức để hỗ trợ cho Dũng sĩ của cô đã thổi bay lòng nghi ngờ của bọn họ.
+
+Và rồi, hiện tại...
+
+Tomoki và Lily đang ngồi tại nơi mà bọn họ gọi là "Bàn Tròn".
+
+Trong khu vườn bên trong lâu đài với thảm thực vật xanh mướt có thể xoa dịu đôi mắt của bất kỳ ai, một chiếc bàn tròn được đặt ở giữa trung tâm.
+
+Đó là khu vườn mà mẹ Lily rất yêu thích. Cô thường đến nơi đây để nghỉ ngơi với Dũng sĩ. Trước đó, không có bất cứ ai được phép đặt chân vào khu vườn này. Đến khi khu vườn mở cửa cho phép tự do ra vào, các quý tộc đã phải kinh ngạc, nhưng nhờ sự tin cậy của Lily dành cho Dũng sĩ, kết quả là đánh giá của họ về Tomoki đã tốt lên.
+
+Mặc dù có đôi lần vô lễ, nhưng ngài là một hiệp sĩ ưu tú không hề quan tâm đến chính trị. Đó chính là đánh giá về Tomoki trong thời điểm hiện tại. Điều này là nhờ Lily đã tốn nhiều công sức để cậu không phải tiếp xúc với các quý tộc quá thường xuyên, hình tượng về Dũng sĩ Tomoki vẫn còn là một câu đố với nhiều người. Thành kiến và giá trị quan của bọn họ quá cứng nhắc, nhưng vì họ đinh ninh rằng Tomoki luôn hết lòng vì công chúa đế quốc, không thể nào có mưu đồ làm phản, vậy nên họ chẳng hề lo cậu sẽ quay lưng lại với đế quốc.
+
+"Ngài Tomoki! Chúng tôi đã chuẩn bị xong. X-xin mời qua bên này."
+
+"Anh tới muộn thế~!"
+
+"Tôi đã phải hy sinh thời gian nghiên cứu để tới đây đấy. Biết là cậu rất bận nhưng đừng bắt tôi đợi quá lâu chứ..."
+
+Ba người chào đón Tomoki theo ba kiểu là đồng đội của cậu. Dựa trên cảnh tượng này, có lẽ nên gọi bọn họ là Hiệp Sĩ Bàn Tròn của Tomoki.
+
+Người đầu tiên lên tiếng và cung kính mời cậu tới ngồi bên cạnh mình là Guinevere - hiệp sĩ có địa vị cao nhất với nhiệm vụ bảo vệ hoàng tộc, một trong những vệ binh Hoàng gia. Cô ấy vốn là tùy tùng và cũng là bạn thân của Lily, nhưng hiện tại cô ấy tuyên bố rằng sẽ bảo vệ Tomoki giống như công chúa.
+
+Mặc dù thân là nữ, nhưng với vai trò bức tường phòng thủ, cô ấy đã nhuần nhuyễn kỹ thuật kiếm phòng ngự đến cực hạn. Đạo cụ ma pháp mà cô được ban cho cũng chuyên về phòng ngự, trong chức nghiệp của cô bao gồm tên của loại rồng cấp cao mang nghĩa "Kiên cố" - Gront. Gront là một con rồng sống ở vùng sa mạc rộng lớn nhất trên thế giới. Người ta tin rằng nó có khả năng phòng ngự mạnh hơn tất cả. Nó cũng thường được biết tới với tên gọi thứ hai là Sazanami. Royal Guard Gront chính là chức nghiệp độc nhất mà chỉ có mình Guinevere sở hữu.
+
+Tiếp theo, người đã gọi Tomoki là "anh trai" bằng giọng trẻ con là Morra. Nghề nghiệp của cô tại Hội mạo hiểm giả là Dragon Summoner, sử dụng một thuật triệu hồi đặc biệt được gọi là Long Triệu Thuật, vốn lớn lên trong một gia tộc vu nữ của một ngôi làng nằm ở vùng địa phương, nhưng khi Ma tộc xâm lược, ngôi làng đã bị phá hủy, cô bé đã được Lily che chở và giới thiệu cho Tomoki.
+
+`Dragon Summoner: Người triệu hồi rồng.`
+
+Nghề nghiệp điều khiển rồng của cô bé không mang tính cố hữu như nghề nghiệp của Guinevere, nhưng nó hiếm đến mức trên thế giới chỉ có vài người.
+
+Cuối cùng, người đã lên tiếng phàn nàn là Yukinatsu. Cô ấy xuất thân từ Liên bang Laurel, một trong Tứ Đại quốc nằm ở phía Đông Nam Đại lục.
+
+Vì mong muốn một cuộc sống tự do và đầy đủ hơn, cô ấy mới tới bên cạnh Lily và gặp gỡ Tomoki. Sau khi thường xuyên bị thu hút bởi những ý nghĩ kỳ lạ của Dũng sĩ, Yukinatsu mới đề nghị được cùng đồng hành cùng với cậu. Là người phụ trách nghiên cứu, có sự quan tâm khác thường đối với việc dung họp trang bị và ma pháp, cô thường tạo ra bản sao của những thứ như pháp cụ và thần khí có chứa sức mạnh to lớn.
+
+Đặc biệt là những tri thức và kỹ thuật về việc dung hợp trang bị và ma pháp, cô ấy đã thí nghiệm theo hướng hoàn toàn khác với tộc Người lùn, chủng tộc đứng đầu về mặt này. Cảm thấy sự nguy hiểm từ ý tưởng của cô, liên bang đã truy bắt cô ấy. Nghề nghiệp là Force Player. Đó là nghề nghiệp hiếm mà có rất ít người sẽ chọn trong số những nghề liên quan tới giả kim thuật, có sở trường trong việc chế tạo và điều khiển Golem, cho dù cùng là giả kim thuật sư nhưng có một hệ thống khác biệt, hoàn toàn không liên quan gì tới việc chế thuốc.
+
+`Trong truyền thuyết Do Thái, Golem là tên của con quái vật được làm từ bùn có hình dạng như con người nhưng mạnh và khỏe hơn loài người.`
+
+Hiện tại ba người này là đồng đội của Tomoki. Lily không tham gia chiến đấu trực tiếp, chỉ hỗ trợ từ hậu phương. Theo lời đề nghị dùng bữa cùng nhau của Tomoki, mọi người đang rất mong chờ bữa ăn tại chiếc bàn tròn tại khu vườn. Bởi ngoài lúc chiến đấu, rất ít khi họ được gặp Tomoki, vậy nên dù không dài những đó là quãng thời gian rất quý giá với bọn họ.
+
+Biện pháp chống lại ma nhãn mà Lily âm thầm tiến hành chỉ áp dụng cho hoàng tộc. Đương nhiên cô không hề áp dụng cho những người khác.
+
+Guinevere, Morra và Yukinatsu cũng không ngoại lệ. Do liên tục chịu sự ảnh hưởng của loại ma nhãn có được năng lực mê hoặc mạnh mẽ, bọn họ tin rằng cảm tình dành cho Tomoki là cảm xúc hoàn toàn tự nhiên của bản thân.
+
+"Ngài Lily, ngài Albert nói rằng muốn ngài xác nhận tài liệu của buổi hội nghị."
+
+Khi Lily đang bước tới chiếc bàn tròn, một tùy tùng đi tới và nói với cô.
+
+"A, lúc ăn trưa mà hoàng huynh cũng tìm ta nữa sao... Thật xin lỗi, ngài Tomoki. Tôi xin phép đi giải quyết công việc. Trước khi ngài ra chiến trường, tôi nhất định sẽ tới tiễn ngài."
+
+"Vậy sao? Ngài Albert đã cho gọi thì cũng chẳng còn cách nào khác. Sau khi ăn xong, ta sẽ nghỉ ngơi một chút, vậy nên không sao đâu. Khi ta đi chiến đấu, nhất định cô phải tới tiễn ta đấy."
+
+Tomoki cũng biết về người anh của Lily nên không hề trách cứ cô. Những lần tương tự như vậy xảy ra rất thường xuyên, cậu cũng quen rồi. Hiện tại Lily đang tập trung hết sức để hỗ trợ cho cậu, nhưng cậu cũng nghe nói trước đây cô phải đảm đương rất nhiều công việc.
+
+"Vâng, như vậy... Guinevere, nhờ cô đấy."
+
+"Xin cứ giao cho tôi."
+
+Guinevere lập tức đáp lại lời của công chúa. Lòng trung thành của cô ấy với công chúa vẫn chưa từng thay đổi.
+
+Gật đầu hài lòng, Lily đi theo tùy tùng và rời khỏi khu vườn.
+
+<br /><br /><br /><br /><br />
+#### **◇◆ Lily ◇◆**
+<br /><br /><br /><br /><br />
+
+"Tình hình tiến triển thế nào rồi?"
+
+"Hiện tại đang rất thuận lợi. Khả năng thích ứng ma lực của Dũng sĩ chỉ có thể được gọi bằng kỳ tích. Năng lực thân thể vượt trội đến mức không cần cưỡi ngựa cũng có thể vung được cây thần thương."
+
+Ở mức độ này, dĩ nhiên Tomoki có thể làm tốt.
+
+Nhờ sức mạnh của Nữ thần, Iwahashi Tomoki có được khả năng tương thích với mọi loại đạo cụ ma pháp. Bởi vậy, cậu ta có thể tùy ý chọn bất kỳ vũ khí hay đồ bảo vệ xuất sắc nào trong kho báu vật của đế quốc.
+
+Vật đầu tiên cậu ta chọn không phải vũ khí hay đồ bảo hộ, mà là một chiếc nhẫn có thể cất giữ vật phẩm.
+
+Sau đó, với ánh mắt nghiêm túc, cậu ta lựa chọn vũ khí cẩn thận, sau khi chọn ra vài vũ khí cho mình, cậu ta cất chúng vào trong chiếc nhẫn. Cuối cùng, Tomoki lựa chọn đồ bảo vệ rồi đi tới thao trường huấn luyện để điều chỉnh.
+
+Cậu ta chọn một bộ đồ bó sát cơ thể và một bộ giáp loại cường hóa phòng ngự gồm những phần bảo vệ bằng kim loại che kín các bộ phận cơ thể. Ngay cả ở đế quốc, đó cũng là một bộ đồ bảo hộ rất mạnh, nhưng cần phải có khả năng tương thích đặc biệt, đến nay vẫn chưa người nào có thể sử dụng được trong thời gian dài. Thông thường, cậu ta sẽ mặc bộ đồ bó sát toàn thân, còn khi chiến đấu sẽ sử dụng áo giáp.
+
+Ngoài ra, Iwahashi Tomoki còn cần một số vật phẩm ma thuật để tạo ra bức tường chắn có thể kháng các tác động vật lý và ma thuật. Ý thức bảo vệ bản thân của cậu ta rất tốt. Vậy nên, chúng tôi đã đưa Clay Aegis và vài món đồ khác cho cậu ta. Đó là bức tường chắn vạn năng, mang tính ứng dụng cao - kiệt tác của nơi hoang dã.
+
+Cậu ta đang rất thuận lợi.
+
+Hiệu quả của thần khí giày bạc mà Nữ thần ban cho Tomoki cũng rất tuyệt vời. Nó cho phép cậu ta tu luyện liên tục, gấp vài lần so với người bình thường, hơn nữa khi mệt mỏi cũng được hồi phục nhanh đến bất ngờ.
+
+"Còn cơ thể thì sao? Hiệu quả của việc dùng thuốc có khác với hiệu quả trên những Loài người khác không?"
+
+"Điều đó cũng không có vấn đề. Vốn dĩ tác dụng phụ chỉ ở mức độ làm giảm một chút tuổi thọ. Hiệu quả trên cậu ta cũng giống những người khác."
+
+"Vậy thì tốt"
+
+Trong thức ăn của Tomoki có trộn loại bí dược thúc đẩy tốc độ trưởng thành, cường hóa thân thể và ma lực. Vì muốn thấy được hiệu quả sẽ khác biệt như thế nào giữa người với người, nên mặc dù dùng bữa cùng nhau, nhưng ngoại trừ tôi, thuốc cũng được trộn trong thức ăn của những thành viên khác để họ hấp thụ chúng.
+
+Thật may khi mọi thứ đều thuận lợi. Nếu tác dụng phụ xuất hiện tức thời, loại thuốc này có thể sẽ không sử dụng được trong các trận chiến. Vậy thì không ổn.
+
+Tôi đã từ bỏ quyền thừa kế ngai vàng. Sau đó, tôi chuyển giao hầu hết những công việc phiền toái cho các anh chị em mình để có thể tập trung vào những việc bản thân nên làm.
+
+Đúng vậy, tôi không cần quyền thừa kế.
+
+Dù sao, không sớm thì muộn, đế quốc... cũng sẽ bị Iwahashi Tomoki chiếm đoạt.
+
+Ngày qua ngày, tôi chậm rãi rót vào đầu cậu ta những tri thức mà một bá chủ nên có và các tư tưởng của một bạo quân không màng đến cách trị vì đất nước.
+
+Trước khi tới thế giới này, có vẻ thiếu niên kia đã trải qua cảnh ngộ bất hạnh. Tôi cũng nghe nói trước đây cậu ta phải chịu đựng những tình huống bị bắt nạt đầy ấu trĩ.
+
+Nói cách khác, nhất định Tomoki đã rất vui mừng vì đột nhiên nhận được một sức mạnh to lớn.
+
+Quả là hết sức thuận tiện cho tôi khi cậu ta có một suy nghĩ sai lầm như vậy.
+
+Đó chính là lý do vì sao tôi diễn vai một cô gái theo đúng sở thích của cậu ta, biến cậu ta thành tù binh của mình.
+
+Có vẻ kế hoạch của tôi đã thành công được một nửa.
+
+Khi được tôi mời đến buổi dạ hội, cậu ta cũng không từ chối.
+
+Có lẽ sự tự tin trong cậu ta đã dần được củng cố hơn, Tomoki cuối cùng cũng tự xưng là "ta", và ra tay với cả Guinevere và Yukinatsu.
+
+Tôi chẳng quan tâm.
+
+Sau này, dù cậu ta có lập hậu cung hay bất cứ thứ gì mà cậu ta muốn cũng được. Thậm chí tôi còn hỗ trợ cậu ta hết mình.
+
+Càng nhiều thứ có thể trói buộc cậu ta vào quyền lực và ngôi vua như mỹ nhân, tiền tài thì càng tốt.
+
+Nếu tôi bôi chất độc ngọt ngào lên vết thương do bị ngược đãi trong trái tim yếu đuối của Tomoki, cậu ta sẽ không bao giờ có suy nghĩ chống lại tôi. Ắt hẳn giờ Tomoki đã manh nha ý định cố gắng giành lấy đế quốc vào tay và trở thành Hoàng đế.
+
+Đương nhiên, điều đó chỉ có thể xảy ra sau khi chiến thắng Ma tộc. Nhất định phải tiêu diệt Ma tộc trước.
+
+Đến lúc đó, với lý do "trở thành tù binh vì say mê Dũng sĩ", tôi sẽ là người giúp đỡ cậu ta.
+
+Những quốc gia khác không đáng để tôi phải quan tâm.
+
+Quả trứng bạo chúa non nót và ngốc nghếch mang tên Dũng sĩ được Nữ thần gửi tới, đã giúp tôi nảy ra một ý tưởng rất tuyệt vời.
+
+Nghiên cứu đó chuẩn bị bước vào giai đoạn cuối cùng, tất cả vì tương lai sắp tới.
+
+Nghiên cứu về thuốc cũng đã hoàn thành. Giả kim thuật sư trung niên này quả thực đã làm rất tốt.
+
+"Vậy, tiếp theo chúng ta nghiên cứu cái gì? Phải rồi, ma lực của Dũng... sĩ... hự?!"
+
+.. "Đủ rồi. Cảm ơn vì nỗ lực của ông."
+
+Ống tay áo trên bộ trang phục màu trắng của tôi bị nhuốm một mảng đỏ tươi.
+
+Thuốc đã điều chế xong, giờ tôi sẽ truyền lại phương thức cho những kẻ thiếu kiến thức và phân công ra làm sẽ tốt hơn.
+
+Tôi là người tận lực vì Iwahashi Tomoki. Bởi vậy lưu lại bằng chứng cho việc tôi đã phát triển loại thuốc gây hại cho cơ thể cậu ta tất nhiên là không cần thiết. Cả những kẻ biết điều đó cũng không cần giữ lại.
+
+Một đội bao gồm tôi - người đứng đầu, và một nhóm các nhà nghiên cứu ưu tú đã được hình thành, tôi sẽ dần dần tiêu trừ từng người một, sau khi họ tạo ra thành quả. Hoàn mỹ.
+
+_Tại sao?_ Với vẻ mặt như muốn thốt lên câu hỏi đó mà không được, người đàn ông trung niên ngã xuống mặt đất và chẳng còn cử động nữa.
+
+Tôi đưa con dao găm đang cầm trong tay cho tùy tùng đang đứng ở cửa vào. Trong đôi mắt của cô ta không hề có ánh sáng của ý chí. Đó là đương nhiên, bởi tôi đã cướp đoạt nó rồi.
+
+"Giữ thứ này cho cẩn thận và phóng lửa đốt cả tòa nhà đi. Đảm bảo toàn bộ đồ vật trong căn phòng này hóa thành tro. Cô sẽ cùng với người mà cô yêu, chính là kẻ đang nằm kia, trải qua giây phút cuối đời trong ngọn lửa... Hiểu rồi chứ?"
+
+Tôi thì thầm những lời đó vào tai cô ta, rồi để cô ta nắm thật chặt con dao.
+
+Tốt lắm.
+
+Sau khi xác nhận nữ tùy tùng đã xử lý sạch sẽ toàn bộ tư liệu trong phòng, tôi cởi bộ trang phục dính máu tươi và ném chúng vào trong đống tro tàn.
+
+Chẳng buồn bận tâm nửa người trên của mình chỉ mặc mỗi đồ lót, bởi đằng nào tôi cũng sẽ dịch chuyển luôn tới phòng mình, chẳng ai có thể nhìn thấy.
+
+Giờ là lúc tôi nên quay lại chỗ của Tomoki. Hôm nay là ngày cậu ta sẽ đi chiến đấu tại khu vực phía Tây Bắc.
+
+Có điều, trước đó...
+
+"Vậy, việc tiếp theo chính là phát triển vũ khí tuyệt vời mà ngài Dũng sĩ đã nói cho mình biết."
+
+Sau khi trở về phòng, tôi thay quần áo và kiểm tra tài liệu ghi chép về những giai đoạn trong kế hoạch.
+
+Thứ vũ khí ấy có thể ban cho những đứa trẻ non nớt yếu đuối hay người già đã mất đi sức lực, và cả những người không có vẻ đẹp một sức mạnh như nhau. Dù nhiều hay ít ma lực cũng không thành vần đề.
+
+Đó quả là một vũ khí vô cùng tuyệt vời và bình đẳng. Chỉ cần cầm trong tay thứ vũ khí này là đã sở hữu được sức mạnh.
+
+Trong khi những quốc gia khác vẫn còn đang vội vàng vác những sản phẩm thấp kém của chúng ra chiến trường, sự ra đời của vũ khí ấy có lẽ sẽ giúp chiến tranh sớm đi đến hồi kết.
+
+Ma tộc, Nữ thần, và cả tín ngưỡng đối với bà ta...
+
+Tôi sẽ phá hủy toàn bộ.
+
+"Súng... Hình như đó là tên gọi của loại vũ khí ấy. Mình nhất định phải mau chóng chế tạo được nó."
+
+<br /><br /><br /><br /><br />
+# **Ngoại truyện: Bảng xếp hạng Á Không**
+<br /><br /><br /><br /><br />
+
+Đã được một thời gian kể từ khi giải quyết xong sự kiện chú bệnh của nhà Rembrandt ở Ziege.
+
+Mặc dù Hội mạo hiểm giả đã chuyển yêu câu sang hạng đặc biệt, nhưng đó vốn là một yêu cầu với độ khó cao.
+
+Hơn nữa, còn có kẻ ngầm gây trở ngại.
+
+Tuy nhiên, vì tôi đã có sẵn vật phẩm yêu cầu trong tay mà không cần phải đi tới nơi hoang dã, nên chỉ hai ngày là đã giải quyết xong.
+
+Thực ra, mục đích gây trở ngại cuối cùng không phải là nhắm vào tính mạng của người bệnh.
+
+Sau khi hoàn thành yêu cầu với đủ chuyện rắc rối, chúng tôi đã trở nên khá nổi tiếng tại thị trấn này. Điều này cũng có nghĩa là, giờ chúng tôi sẽ dễ dàng hoạt động ở Ziege hơn.
+
+Tuy việc đăng ký lại của Tomoe và Mio tại Hội mạo hiểm giả rõ ràng đã gây ảnh hưởng ít nhiều, nhưng tôi có cảm giác sinh hoạt và địa vị của chúng tôi ở Ziege đã vững chắc hơn hẳn trước đây.
+
+Sau đó...
+
+Ngày hôm nay, chúng tôi ở tại Á Không chứ không phải là Ziege.
+
+Buổi sáng tôi vừa nghe toàn bộ báo cáo của Emma và Tomoe về tình hình gần đây.
+
+Tuy hơi phiền toái, nhưng tôi đã có một thời gian thú vị khi lắng nghe hết báo cáo. Sau đó, lúc tôi đang ăn trưa, một Orc chạy vội tới.
+
+"Vâng. Đã hiểu rồi, tôi sẽ suy nghĩ biện pháp."
+
+Sau khi nghe xong báo cáo và để Orc kia trở về, Emma thở hắt ra.
+
+Ban nãy cô ấy vẫn còn vừa dùng bữa vừa nói chuyện rất vui vẻ, chắc hẳn đã có chuyện phiền toái xảy ra.
+
+"Sao thế?"
+
+"Thiếu chủ... Không, cũng không phải chuyện gì to tát đâu."
+
+"Miệng thì nói vậy nhưng vẻ mặt của cô đang rất nghiêm trọng đấy. Hiện tại có thiếu chủ, lão, tạm thời còn có Mio ở đây nữa. Hãy nói đi."
+
+Thấy Emma cố gắng giấu kín nội dung để không làm cho tôi lo lắng, Tomoe liền nhắc nhở cô ấy.
+
+Đúng như lời Tomoe nói.
+
+"Tạm thời", mặc dù câu nói của Tomoe đã thất lễ với Mio, nhung đúng là chúng tôi có thể giải quyết được hầu hết các vần đề trong Á Không.
+
+"Nhưng mà... Ôi, tuy rằng phải phơi bày nỗi hổ thẹn của bộ tộc, nhưng tôi xin phép nói hết. Thực ra, việc huấn luyện chiến đấu đã xảy ra chút vấn đề."
+
+"Emma à, đó cũng đâu phải là việc nhỏ. Thiếu chủ và chúng ta đều có thể tham gia huấn luyện mà?"
+
+"Vâng. Thực ra, đó là vấn đề nảy sinh khi huấn luyện với thiếu chủ và hai vị... Tôi xin phép được nói thẳng, hiện giờ các chiến sĩ đang rất chán nản do liên tục chịu thất bại hoàn toàn trước thiếu chủ và hai ngài. Chuyện này thật là đáng xấu hổ."
+
+Emma gượng cười và nói.
+
+"Gì thế này... Tự xưng là chiến sĩ mà lại mong manh vậy à?!"
+
+Không che giấu nổi sự ngạc nhiên của mình, Tomoe nhìn Emma bằng vẻ mặt mất hứng.
+
+... Mất tự tin sao?
+
+Mặc dù Tomoe thấy ngạc nhiên, nhưng tôi vẫn có thể hiểu được một chút.
+
+_Hoàn toàn không thể làm được, hoàn toàn không thể vượt qua được,_ chắc hẳn ai cũng sẽ nghĩ như vậy.
+
+"Khi chiến đấu với mọi người, bọn họ luôn ở trong tình trạng lực bất tòng tâm... Dù đã bao vây các vị với số lượng lớn, họ cũng không thắng được. Vậy nên họ đang khá sốc."
+
+"Hmm... Do bọn ta đã bắt nạt họ quá mức sao?"
+
+"Không phải! Không đến mức như thế."
+
+"Nếu vậy, thời gian tới chúng tôi không cùng luyện với họ nữa là được đúng không? Nếu cứ cố tình lãng phí thời gian, đối với cả hai bên đều vô nghĩa."
+
+Mio xen vào.
+
+Có điều, nghe ý kiến của cô ấy không nhiệt tình cho lắm.
+
+Thực chất, Mio chẳng hề thích việc huấn luyện. _Phiên toái lắm, đừng làm thì hơn,_ ở cô ấy tỏa ra một bầu không khí như vậy.
+
+"Mio à, cô nói thế chẳng khác gì vứt bỏ bọn họ. Hãy suy nghĩ một chút đi."
+
+"Dù cô nói vậy thì... Tôi cũng chẳng nghĩ ra được cái gì đâu, thà suy nghĩ về bữa tối hôm nay còn thú vị hơn."
+
+"Chúng ta vừa mới ăn trưa xong đấy~, bà lão Mio."
+
+"... Hầy, xin hãy cùng tôi vận động một chút sau khi ăn nhé, cô Tomoe."
+
+Đột nhiên, giữa hai người tỏa ra một bầu không khí nguy hiểm.
+
+Những cuộc đối thoại như vậy giữa hai người tùy tùng của tôi chẳng hề hiếm gặp.
+
+Cả Emma và tôi đều chẳng buồn để ý đến chuyện đã xảy ra quá thường xuyên này.
+
+Mặc kệ hai người họ, tôi nói với Emma:
+
+"Emma, tóm lại hãy trực tiếp đến xem bọn họ thế nào đã. Giờ chắc là lúc mọi người đang nghỉ ngơi, cô có thể dẫn đường cho tôi được chứ?"
+
+"A, rõ rồi."
+
+Đầu tiên, tôi sẽ thử đi xem tình trạng của bọn họ.
+
+"Tomoe, Mio. Tôi và Emma sẽ đi xem tình hình một chút. Có cãi nhau thì cũng vừa phải thôi đấy."
+
+"Thiếu chủ, ngài định tới tộc Orc sao? Vậy để đề phòng, lão cũng đi xem tộc Người thằn lằn đây. Bởi tình hình của mấy tên đó cũng tương tự như tộc Orc Cao Nguyên vậy. Sĩ khí thấp đến mức chẳng thấy có tí sức sống nào cả."
+
+"Chậc! Tomoe, chúng ta vẫn chưa nói chuyện xong đâu!"
+
+Nghe Mio nói thế, Tomoe chỉ làm lơ. Thấy vậy, tôi mới lên tiếng: "Mio, cùng đi dạo sau bữa ăn với tôi đi." Để cô ấy một mình cũng đáng lo lắm, có lẽ đưa cô ấy đi cùng sẽ tốt hơn.
+
+"Mio, cô cùng đi nhé?"
+
+"Vâng, xin hãy cho tôi đi với!"
+
+Nghe vậy, Mio liền tươi cười đáp. Dáng vẻ giống như mèo xù lông với Tomoe khi nãy đã hoàn toàn biến mất.
+
+Có lẽ đó cũng là "đặc tính" của cô ấy.
+
+Hmm, Tomoe tới xem tộc Người thằn lằn sao... Điều này thật hiếm thấy, muốn lập biện pháp đối phó ngay trong ngày hôm nay luôn sao...
+
+"Vậy hai tiếng sau gặp lại rồi báo cáo tình hình cho nhau."
+
+"Như cậu muốn. Nhưng cậu cũng không cần lo lắng cho Người thằn lằn đâu."
+
+Sau khi tách khỏi Tomoe, tôi đi bộ cùng với Mio và Emma. Khi chúng tôi đi qua khu vực đang tiến hành xây dựng tòa kiến trúc, mặc dù đang là giờ ăn trưa, tộc Orc và Người lùn vẫn chăm chỉ làm việc, tiếp đó chúng tôi đi qua cánh cổng đơn giản và tới khu bình nguyên. Chúng tôi dự định sẽ bắt đầu làm nông nghiệp tại nơi này.
+
+Tuy nói là đi cùng, nhưng thực ra Emma là người dẫn đường cho tôi.
+
+Bên ngoài thành phố là bình nguyên kéo dài đúng như tưởng tượng của tôi, nhưng đã được khai hoang rất nhiều.
+
+Một lát sau, chúng tôi nhìn thấy những đồng ruộng trải rộng mênh mông.
+
+Nhắc mới nhớ, tôi từng nghe báo cáo rằng họ đã phát hiện một loại thực vật giống như lúa, thế nhưng tôi vẫn chưa thấy có ruộng nước.
+
+Vì giống lúa ở thế giới này được phát hiện trên đất cạn nên có khả năng không cần phải trồng chúng trong ruộng nước. Có điều, thân là một người Nhật Bản, tôi vẫn muốn được nhìn thấy những cánh đồng lúa xanh bát ngát, giống như cảnh sắc của vùng nông thôn ở quê hương.
+
+Vài ngày trước, khi nghĩ rằng mình sẽ được ngắm nhìn những cánh đồng lúa nước trải dài khắp Á Không, không hiểu sao tôi thấy rất vui vẻ.
+
+Thứ mà tôi nhìn thấy hiện tại chỉ toàn là đồng ruộng, bởi vì các loại cây trồng được phân riêng, bầu không khí cứ như là đang ở trong một nông trường.
+
+"Ngoài những loại cây trồng được thiếu chủ chỉ dẫn, chúng tôi cũng trồng thêm những loại rau củ mà chúng tôi vốn có hạt giống của chúng. Hiện tại đang rất thuận lợi, không, phải là thuận lợi quá mức mới đúng."
+
+Emma giải thích.
+
+"Thuận lợi quá mức" sao?
+
+Quả đúng là cây trồng ở Á Không phát triển nhanh một cách dị thường. Tôi cũng muốn điều tra về nguyên nhân đó.
+
+"Thật muốn nhanh chóng được ăn chúng quá, thiếu chủ."
+
+Mio nhìn những cánh đồng như thể đang nhìn món ăn ngon.
+
+Gần đây cô ấy đã biết được ý nghĩa của món ăn, không còn ăn sống hết mọi thứ, đúng là đỡ hơn rất nhiều. Tôi mừng là cô ấy đã có suy nghĩ rằng muốn ăn thứ ngon hơn.
+
+Nhưng hiện tại tôi cứ có cảm giác với cô ấy thì "lượng = chất" ấy.
+
+... Không, cách nghĩ của tôi quá sai rồi.
+
+Hắn là với Mio, lượng vẫn quan trọng hơn chất nhiều.
+
+"Thiếu chủ, ở kia..."
+
+Emma chỉ về phía xa và ngập ngừng nói.
+
+"Ừ."
+
+Nhìn về hướng cô ấy chỉ, tôi thấy các Orc với cơ thể lớn hơn hẳn Loài người đang mặc áo ba lỗ, đội mũ rơm, tập trung lại với nhau và nghỉ ngơi. Khi nhìn từ xa, có cảm giác giống như những vận động viên đô vật chuyên nghiệp đang nỗ lực làm công việc đồng áng.
+
+Hình như bọn họ không nhận ra chúng tôi. Emma cũng đã xác nhận điều đó và báo lại cho tôi biết.
+
+Vậy thì chúng tôi có thể nghe trộm họ nói chuyện từ đây sao?
+
+Tôi lập tức mở rộng Giới, tập trung lắng nghe cuộc trò chuyện của bọn họ.
+
+"Phù. Làm nông đúng là không tệ, có thể thấy rõ thành quả cho sự nỗ lực của bản thân."
+
+"Hahaha! Đúng thế. Chẳng cần phải lo lắng gì hết. Sống vô lo vô nghĩ cũng thích thật đấy."
+
+"Đúng thế... Thực ra, gần đây tôi đang có ý định từ bỏ vũ khí, chuyên tâm cầm cuốc và trở thành nông dân."
+
+"... Có suy nghĩ đó cũng là chuyện bình thường. Khác với nơi hoang dã, ở đây chỉ cần dựa vào nông nghiệp cũng có đầy đủ thức ăn."
+
+"Ừ. Vì tộc Người thằn lằn có sở trường săn bắn, chúng ta có thể trao đổi nông sản với bọn họ mà."
+
+"Emma nói sau này sẽ còn nhiều loại cây trồng nữa. Nhất định chúng ta sẽ cần nhiều chuyên gia trong lĩnh vực này."
+
+"... Đúng vậy, nông nghiệp đang rất thuận lợi, ta không cần phải suy nghĩ cách sống sau này nữa. Bởi vì thiếu chủ quá mạnh mà."
+
+"Ngài Tomoe và Mio cũng vậy. Cho dù kẻ địch mạnh đến thế nào, thậm chí khi đấu trực diện với cả tập thể, họ cũng không dễ dàng thua chúng ta."
+
+"Lần nào chúng ta cũng bị áp đảo, khiến tôi hoang mang về năng lực của chính mình."
+
+"Đôi khi tôi nghĩ, thứ duy nhất mà chúng ta có thể tự hào với người khác chỉ là những cánh đồng này..."
+
+"Ít nhất thì chúng ta vẫn có thể tới gần ngài Tomoe và ngài Mio."
+
+Các Orc ngồi đó và thẳng thắn nói ra suy nghĩ của họ.
+
+"Thiếu chủ ấy... Còn chưa kịp tới gần ngài thì tất cả mọi người đã bị đánh trúng rồi. Quả thực khó mà đứng vững."
+
+"Người có thể chịu đựng được Brid đó nhất định phải vô cùng kiên cường, hoặc nhanh trí dùng vũ khí chống đỡ..."
+
+"Những cuộc huấn luyện với thiếu chủ gần đây khiến tôi cảm thấy hình như bay lên trời mới là công việc của mình hay sao ấy."
+
+Ý họ là tôi chẳng khác gì Aegis à? Xem ra tôi cần phải nương tay rồi...
+
+`Hệ thống chiến đấu Aegis do Hải quân Mỹ triển khai, được mệnh danh là hệ thống chiến đấu tiên tiến và phức tạp nhất thế giới.`
+
+"Ha ha ha ha, haa... Những người thuộc các chủng tộc khác thì không chỉ như vậy thôi đâu."
+
+"... Chắc họ thậm chí còn chẳng có cơ hội nhìn thấy ngài ấy nữa."
+
+Cuộc nói chuyện của tộc Orc vẫn còn tiếp tục. Đúng là một đại hội than thở ghê gớm...
+
+Nhắc đến huấn luyện, có lẽ vì "Huấn Luyện Chủng Tộc" dựa trên đặc điểm của từng chủng tộc và "Chỉ Đạo Huấn Luyện" do từng người thực hiện riêng, nên có lẽ công tác huấn luyện chưa được chu toàn.
+
+Từ nội dung cuộc trò chuyện, có vẻ bọn họ đã đánh mất tự tin vào năng lực của bản thân.
+
+Thực ra, dù hỏi chủng tộc nào cũng đều nhận được đánh giá rằng, tộc Orc Cao Nguyên là chủng tộc mạnh mẽ toàn diện, rất khó để đánh bại họ.
+
+Ma pháp của họ có uy lực cao nhờ sử dụng ngôn ngữ ma pháp ưu tú, hơn nữa kỹ thuật của họ còn phát huy đầy đủ tiềm năng của cơ thể trời phú.
+
+Biết được điều này nên Emma mới không cảm thấy quá nhụt chí khi nghe về kết quả huấn luyện với bọn tôi.
+
+Vậy nên, bọn họ cũng không cần thiết phải chán nản như vậy.
+
+Tôi cũng cho rằng năng lực hiện tại của họ sẽ có thể phát triển đáng kể trong tương lai.
+
+... Hmm. Quả nhiên họ khó có thể nói với những chủng tộc khác về chuyện thất bại hay chuyện huấn luyện với chúng tôi. Nhưng tôi nghĩ sao họ không tích cực trao đổi thông tin với nhau hơn nhỉ?
+
+"Ngài đã nghe thấy rồi chứ?" Thấy tôi đang trầm tư suy nghĩ, Emma hỏi.
+
+"Ừ. Tôi cảm thấy hơi phiền não."
+
+"Đúng vậy. Tôi nghĩ nếu cứ để họ tiếp tục mang trong lòng cảm xúc ấy thì không ổn..."
+
+"Thiếu chủ, rau củ có màu đỏ đó là cái gì? Trông có vẻ mọng nước thật đấy."
+
+Mio, cô thật là...
+
+Mặc dù rất muốn nói như vậy, nhưng tôi chỉ im lặng nhìn về hướng Mio chỉ.
+
+Cái đó... là cà chua à? Có vẻ Mio chưa ăn bao giờ.
+
+Tôi nhớ là mình từng ăn món cà chua cắt lát ướp lạnh rồi trộn với phô-mai và dầu. Mặc dù trên tivi được giới thiệu là món nhắm rượu, nhưng dùng làm salad cũng rất ngon. Đó là loại rau củ rất tuyệt.
+
+"Emma, để Mio đi được chứ?"
+
+"A, vâng. Xin mời."
+
+"Mio, đây là cơ hội hiếm có, hãy nói chuyện với các Orc, ăn sống món đó, rồi cho bọn họ biết cảm tưởng đi."
+
 ![][IMG_0800.PNG]{:class="img-fluid"}
 
 [IMG_0800.PNG]: https://1.bp.blogspot.com/-lCeCetbEi30/YYSqJxuGHCI/AAAAAAAACdo/rNU5rENwGFI0LGvSx3EPH1kB7WxpSwIEgCLcBGAsYHQ/s16000/IMG_0800.PNG
+
+"Có thể sao?"
+
+"Ừ."
+
+"Vậy... tôi xin tuân lệnh. Tôi đi đây!"
+
+Đang nhìn hau háu về phía ruộng cà chua, Mio lập tức chạy tới chỗ nữ Orc nhỏ bé đang hái loại trái cây màu đỏ đó.
+
+Ôi chà...
+
+Với khí thế đó, dù tôi có nói cà chua không ăn sống được, cô ấy cũng sẽ ngoạm phát hết luôn cả quả cho mà xem.
+
+A, ăn rồi.
+
+Đang đứng ở đây mà tôi cũng có thể nhìn thấy khuôn mặt ánh lên vẻ hạnh phúc khi thưởng thức trái cây trên tay của cô ấy.
+
+Quả đúng là Mio.
+
+Ở bên cạnh, Emma cũng mỉm cười nhìn dáng vẻ ấy của Mio, có vẻ Emma cũng đang cảm thấy vui vẻ nữa. Hai người họ mang đến cảm giác vô cùng hài hòa.
+
+A, tôi vẫn chưa nói chuyện xong với Emma mà.
+
+"... À, Emma, về chuyện ban nãy, tôi cũng nghĩ giống cô. Sự trao đổi thông tin giữa các chủng tộc về việc huấn luyện ít hơn tôi nghĩ."
+
+"... Vâng. Quả đúng như vậy, chúng tôi có phương pháp chiến đấu và cách huấn luyện của riêng mình, được tổ tiên truyền lại từ thế hệ này sang thế hệ khác, đó cũng là vấn đề cơ mật. Khi thảo luận với những chủng tộc khác, những điều đó vẫn là nội dung nên tránh nói tới, thay vào đó, chọn những đề tài chung và an toàn là điều rất bình thường."
+
+"Không thể chia sẻ những chuyên cơ mật đó được sao?"
+
+Nếu tất cả mọi cư dân trong Á Không đều hiểu rõ nhau thì tốt biết mấy.
+
+"... Nếu ngay lập tức, thì tôi nghĩ rằng rất khó."
+
+Ra là vậy.
+
+Nói gì thì nói, tôi vẫn cảm thấy muộn phiền khi biết lý do những chiến sĩ muốn trở thành nông dân chính là do mất đi lòng tự tin.
+
+Bên cạnh đó, tôi nghĩ sự hòa bình trong Á Không khiến họ không có cơ hội chiến đấu thực tế cũng là một trong những nguyên nhân...
+
+"Vậy... thiếu chủ, ngài có đề xuất gì không?"
+
+"... Đúng rồi. Tôi nghĩ, đầu tiên hãy để cho các chủng tộc tiến hành huấn luyện cộng đồng. Thực ra tôi rất muốn để bọn họ hiểu rõ lẫn nhau hơn nữa."
+
+"Huấn luyện cộng đồng à..."
+
+"Ừ. Hãy nhờ Tomoe vận động Arche và Người lùn tham gia với Người thằn lằn. Tôi muốn họ thể hiện chiến thuật của mình và kích thích lẫn nhau, hơn nữa..."
+
+"Sao ạ?"
+
+"Tôi nghĩ làm vậy thì bọn họ sẽ nắm rõ thực lực của bản thân hơn là huấn luyện với bọn tôi."
+
+"... Tuy chưa thể đảm bảo việc huấn luyện sẽ theo đúng như mong muốn của thiếu chủ, nhưng tôi sẽ truyền đạt lại cho mọi người."
+
+Hmm...
+
+Xem ra ngay cả Emma cũng tán thành chuyện mỗi chủng tộc giữ bí mật kỹ thuật chiến đấu của riêng họ.
+
+Tuy việc đó không sai trái... nhưng tôi vẫn sẽ nói cho cô ấy hiểu ý tưởng của mình.
+
+Vì không muốn làm cô ấy nghĩ mình ngạo mạn khi đề cập đến điều này, nên tôi sẽ cố lựa lời mà nói.
+
+"Nhất định không thể cho người khác thấy kỹ thuật chiến đấu của tộc mình sao? Cá nhân tôi nghĩ sẽ rất thú vị khi Orc học hỏi cách chiến đấu của Người thằn lằn, hoặc Người thằn lằn học tập cách chiến đấu của Orc. Nếu bọn họ có thể tiếp cận được ba người chúng tôi chỉ bằng chiến thuật mà họ đang tự mình luyện tập, thì tôi cũng chẳng đề xuất việc này làm gì."
+
+"?!"
+
+Emma lộ ra vẻ mặt kinh ngạc.
+
+... Quả nhiên cách nói của tôi rất ngạo mạn.
+
+Nhưng đó đúng là những lời thật lòng của tôi.
+
+Tôi không hy vọng tộc Orc hay những chủng tộc khác có kỹ thuật mà lại không muốn chia sẻ cho nhau.
+
+Tôi nghĩ tất cả mọi người đều rất có tiềm năng.
+
+Vì thế, bọn họ nên biết chia sẻ những gì mình có, tạo ra khái niệm, chiến thuật và kỹ thuật mới, rồi nâng cao chúng thêm nữa... Tôi thực sự mong rằng bọn họ sẽ nhắm tới những mục tiêu cao hơn.
+
+Rồi sau đó, nếu bọn họ phát hiện điều gì đó phù hợp với bản thân và muốn giấu kín thì cũng tốt thôi.
+
+Nhưng giờ tất cả vẫn còn đang trong giai đoạn mài giũa đấy.
+
+Những điều này tôi chỉ cần nhìn qua cũng đủ hiểu.
+
+Bởi vì các chủng tộc đó hệt như những thành viên mới gia nhập trong câu lạc bộ của tôi.
+
+"A, cũng sắp đến lúc Tomoe trở về rồi. Cô hãy gọi Mio trở lại đi."
+
+"V-vâng!"
+
+Dường như đang mải nghĩ ngợi điều gì đó, Emma giật mình đáp lại.
+
+Emma rất thông minh, cô ấy sẽ nhanh chóng hiểu được ý tưởng của tôi.
+
+Rồi sớm thôi, cô ấy sẽ truyền lại cho tất cả mọi người trong tộc Orc.
+
+Tuy chuyện này tùy thuộc vào Tomoe, nhưng nếu tộc Người thằn lằn cũng đang trong tình trạng giống như tộc Orc, xem ra phải nhanh chóng tiến hành huấn luyện cộng đồng rồi.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+"Hmm. Có vẻ chúng ta đã quá khắt khe với tộc Orc và tộc Người thằn lằn. Dù rằng họ vẫn chưa đạt tới một phần mười sức mạnh mà lão mong chờ."
+
+_Kỳ vọng của cô quá cao rồi đấy,_ dù rất muốn nói như vậy nhưng tôi đã kìm nén lại được.
+
+Theo những gì tôi biết, tộc Người thằn lằn cũng mất tự tin như tộc Orc.
+
+Tuy tộc trưởng rất muốn nói chuyện với Tomoe để sớm giải quyết vấn đề này, nhưng có vẻ không được thuận lợi lắm.
+
+"Tôi cũng đã nói chuyện với riêng từng Arche, nhưng những đứa trẻ đó không có cảm giác ấy."
+
+"Bởi vì bọn họ phải làm rất nhiều việc mà, nào là điều chế thuốc, nào là sử dụng giả kim thuật, chỉ thỉnh thoảng họ mới tham gia huấn luyện thôi."
+
+Năng lực cá nhân của Arche rất cao, hơn nữa vì nhân số quá ít nên không dễ huấn luyện tập trung. Tình hình của họ không giống những chủng tộc khác.
+
+"Thiếu chủ, hoạt động giao lưu giữa các chủng tộc còn ít hơn chúng ta nghĩ, tôi cho rằng nguyên nhân đó tuy nhỏ nhưng khó giải quyết."
+
+"Tôi cũng nghĩ vậy, Tomoe. Chúng ta sẽ tập trung xử lý việc này, ngày mai..."
+
+"Vâng. Hãy giao cho tôi. Thực ra, ngoại trừ huấn luyện cộng đồng, tôi còn có một ý tưởng khác."
+
+"... Huấn luyện mà chết người là không được đâu đấy."
+
+"Đương nhiên."
+
+"Awawawa..."
+
+... Đêm qua, chúng tôi đã bàn bạc với nhau, lúc tôi nói thế, mặt Emma tái nhợt.
+
+Ngày hôm nay, chúng tôi đã tập hợp tộc Orc và Người thằn lằn lại từ sáng sớm.
+
+Có điều, Emma - người đã thốt lên "Awawawa", giờ đang không ở đây.
+
+Nơi thí nghiệm điều tra đặc tính của cây trồng có báo cáo, vì vậy cô ấy đã đi đến đó.
+
+Tối hôm qua cô ấy đã nghe tôi nói về nội dung của buổi huấn luyện hôm nay rồi.
+
+Nhắc mới nhớ, khu vực thí nghiệm kia có hình dạng giống như cái bát, tôi nhớ mình từng thấy hình dạng này trong tiết học Lịch sử, buổi học về di tích gì đó ở vùng Nam Mỹ (ruộng bậc thang tròn của người Inca cổ đại).
+
+Nhưng Emma làm sao mà biết về di tích đó được.
+
+Nói cách khác, cô ấy tự nghĩ ra hình dạng đó sao?
+
+Nếu là Emma thì rất có thể.
+
+Tuy bề ngoài trông không giống nhà bác học lắm, nhưng thực ra Emma là người có tri thức rô cùng uyên bác.
+
+"Vậy nguyên nhân thay đổi kế hoạch và tập trung mọi người lại là..
+
+Tomoe bắt đầu giải thích.
+
+Ở đằng sau những người đã được triệu tập đến đây là một vũ đài hình tròn được bọn họ dựng lên tạm thời. Trong lúc thi công, có lẽ mọi người cũng phần nào đoán được vũ đài này dùng để làm gì, nên cho đến khi Tomoe nói xong, không có bất cứ ai gây náo động.
+
+Điểm mấu chốt chính là đấu một chọi một trên vũ đài này.
+
+"Được rồi... Ngươi, và ngươi. Hãy đi lên vũ đài đi."
+
+Những người được chọn là hai chiến binh mạnh nhất của tộc Orc và tộc Người thằn lằn.
+
+Mặc dù còn có những kẻ mạnh khác, song ngoại trừ Cheat như có một tất sát kỹ "cứ gặp là chết", thì xét trên thực lực, mạnh nhất chính là hai người này.
+
+`cứ gặp là chết (初見殺し): Một thuật ngữ trong game, chỉ kẻ địch không thể đánh bại hoặc bẫy không thể né được.`
+
+Hai người mạnh nhất trong hai chủng tộc đấu với nhau, đương nhiên song phương đều căng thẳng.
+
+Chẳng hề nhận ra bầu không khí xung quanh, Tomoe thản nhiên tuyên bố bắt đầu trận đấu.
+
+Orc dùng phủ thương, Người thằn lằn dùng kiếm và khiên.
+
+`phủ thương: Một loại vũ khí cán dài đa năng được kết hợp từ nhiều loại vũ khí khác nhau, gồm một cán gỗ cứng, phần đầu có ba bộ phận với phía trước là một lưỡi rìu lớn, phía sau gắn một móc câu hoặc gai vô cùng chắc chắn.`
+
+Sau khi cúi chào nhau, hai bên vào tư thế chuẩn bị.
+
+Dựa vào món vũ khí họ cầm, có thể thấy sở trường và khoảng cách vũ khí của họ hoàn toàn khác nhau.
+
+Người thằn lằn chủ động rút ngắn khoảng cách. Orc vung cây phủ thương để phòng thủ.
+
+Nhằm có cơ hội chiến đấu trong khoảng cách sở trường của bản thân, hai bên đã giao tranh ngay từ lúc bắt đầu.
+
+Cuộc chiến càng lúc càng trở nên dữ dội. Hơi thở do Người thằn lằn phun ra, ma pháp công kích do Orc tạo ra...
+
+Vung chiếc phủ thương của mình lên, Orc cắt đôi vũ đài bằng đòn tấn công mạnh mẽ, còn Người thằn lằn khéo léo sử dụng chỗ đặt chân đã bị biến dạng và tung ra đòn tấn công.
+
+Luồng khí và ma pháp vượt ra ngoài vũ đài đã bị Tomoe và Mio tiêu trừ, dù sao an toàn của khán giả vấn là trên hết.
+
+Những người tộc Orc và Người thằn lằn bên dưới vũ đài liên tục thay đổi cảm xúc vui buồn theo sự biến chuyển không ngừng của thế trận, nhưng họ cũng không quên lên tiếng cổ vũ cho đại diện của bên mình.
+
+Bọn họ vô cùng nhiệt tình.
+
+Ngược lại, cả ba người chúng tôi vẫn trầm mặc.
+
+Tomoe đã yêu cầu chúng tôi diễn như vậy, nhưng tại sao lại phải làm thế?
+
+Chắc hẳn Tomoe có ý tưởng gì đó, kế hoạch là do cô ấy đề ra mà, thôi cứ mặc kệ đi.
+
+Chẳng mấy chốc, thắng bại đã được xác định.
+
+"Trận đấu kết thúc! Người thắng là đại diện của tộc Orc Cao Nguyên Agares!"
+
+Lần này, Orc phải dùng tới đòn tấn công gần như liều mạng mới giành được chiến thắng.
+
+Tuy thắng cuộc, nhưng kết quả cũng suýt soát.
+
+Sau khi giương cao cây phủ thương, Agares liền gục ngã.
+
+Quả là một chiến thắng khó khăn.
+
+Tộc Orc Cao Nguyên vui mừng trước thắng lợi của đại diện chủng tộc mình. Ngược lại, tộc Người thằn lằn có vẻ không cam tâm.
+
+Tomoe một lần nữa tập trung bọn họ lại. Với vẻ mặt lạnh như băng, cô ấy nóị:
+
+"Người thắng là Orc Cao Nguyên... Nhưng nói thẳng thì cả hai bên đều chẳng có gì nổi bật. Quá yếu."
+
+"!!"
+
+Ừm, đúng là rất thẳng thắn.
+
+"Lão vô cùng thất vọng. Sao các ngươi lại chỉ có thực lực thấp như vậy... Này ngươi, ngươi nghĩ nguyên nhân là gì?"
+
+"Vâng... Theo quan điểm của ngài Tomoe, thiếu chủ và ngài Mio, có lẽ trận chiến vừa rồi cũng chẳng có gì to tát, nhưng tôi nghĩ đó là một trận chiến tuyệt vời." Người bị chỉ định đứng thẳng lưng, căng thẳng trả lời.
+
+"Đây không thể coi là câu trả lời. Có phải ngươi muốn nói rằng, vì đối thủ không phải lão, Mio hay thiếu chủ, nên sức mạnh ở mức độ này là đủ rồi?"
+
+"C-cái đó..."
+
+"Được rồi! Nếu đã nghĩ như vậy, hãy buông vũ khí xuống đi! Muốn trở thành người dân được bảo vệ thì cứ nói thẳng. Chúng ta sẽ đáp ứng các ngươi. Người cầm vũ khí ở đây, chỉ có thể là những chiến sĩ bảo vệ cho Á Không. Và việc bọn ta có yêu cầu cao với các chiến binh là điều đương nhiên. Chỉ có như vậy, chúng ta mới biết rõ được rằng liệu các ngươi có đủ sức mạnh để mọi người dựa vào hay không!"
+
+"..."
+
+Nghe Tomoe nói, tộc Orc và tộc Người thằn lằn đều lộ vẻ hổ thẹn. Những lời vừa rồi có lẽ đã làm tổn thương lòng tự trọng của họ.
+
+"Được rồi, bây giờ các ngươi đâu có thứ gì để mất! Thậm chí các ngươi còn vừa chiến đấu vừa phải nhìn hình dạng của đối thủ! Hãy vứt bỏ niềm kiêu hãnh thô kệch đó đi, hãy thể hiện mọi thứ mình biết cho nhau thấy!"
+
+"...?!"
+
+
+"Sau đó, hãy nghĩ ra biện pháp đối phó lẫn nhau, học hỏi lẫn nhau rồi nhắm tới mục tiêu cao hơn! Hãy mài giũa và trưởng thành. Thứ mà lão, không, thiếu chủ cần chính là nhân tài. Các ngươi bây giờ chỉ là một đám tôm tép chẳng thể đạt được một phần mười thực lực mà thiếu chủ mong muốn."
+
+"..."
+
+Trước lời xỉ vả chẳng hề kiêng nể của Tomoe, bọn họ đang bị choáng ngợp chứ không phải đang được cô vũ nữa.
+
+Không ổn rồi. Có lẽ tôi nên nói đỡ một chút.
+
+"Tomoe, cô quá lời rồi. Bọn họ cũng đã rất cố gắng..."
+
+"Giờ lão sẽ cho các ngươi chút động lực để phần đấu. Trong vòng bảy ngày kể từ bây giờ, lão sẽ tổ chức một cuộc chiến cá nhân mà toàn bộ mọi người đều phải tham gia. Lúc đó, thực lực của từng người trong tất cả các ngươi sẽ được xác định và phân thứ hạng rõ ràng."
+
+... Không thèm để ý lời tôi nói luôn à? Thôi được rồi, dù sao đây cũng không phải chuyện mới xảy ra lần đầu.
+
+Nghe Tomoe nói vậy, đám đông bắt đầu xôn xao.
+
+"Phân ra thứ hạng?"
+
+"Như là xác định thứ tự sao?"
+
+"Sao lại như vậy được, phương pháp chiến đấu của mỗi chủng tộc khác nhau mà..."
+
+Hửm? Xem ra cũng có khá nhiều giọng nói đầy vẻ bất an.
+
+Giống như những người tộc Orc nói chuyện với nhau ở đồng ruộng vào ngày hôm qua, quả thực có không ít người đang định chuyển nghề, từ bỏ con đường làm chiến sĩ.
+
+Có vẻ Tomoe đang muốn nhắn nhủ với bọn họ rằng: _Sau này, liệu các ngươi có còn quyết tâm tiếp tục làm chiến sĩ hay không?_
+
+"Trong thời gian ngắn, lão không bắt buộc tất cả đều phải tham gia, mọi người có thể tự do tham gia theo từng giai đoạn. Thời điểm và chu kỳ tổ chức sau này sẽ có thay đổi, nhưng việc tổ chức là điều chắc chắn. Hôm nay lão nói cho các ngươi biết, cũng sẽ nói rõ cho cả tộc Người lùn và Arche: Giành được chiến thắng trong các cuộc chiến này sẽ trở thành tiêu chí duy nhất để đánh giá một cá nhân mạnh mẽ đến mức nào trong Á Không, ngoại trừ lão, Mio và thiếu chủ. Chiến thắng ấy cũng sẽ trở thành danh dự của chiến binh đó. Đương nhiên, thuật sĩ và chiến binh sẽ đấu riêng nên cứ yên tâm. Với cách thức này, nếu kẻ nào mà ngay đến cả một con số xếp hạng rõ ràng cũng không có, thì hắn nên từ bỏ con đường chiến sĩ đi!"
+
+Tomoe tiếp tục giải thích.
+
+Những điểm chính trong vòng đấu loại và vòng đấu chính thức đều đã được nói rõ. Cô ấy đã nghĩ đến cả hệ thống, đúng thật là lợi hại.
+
+"Tất cả nghe rõ rồi chứ? Mục đích chính chỉ là nhằm xác định thực lực, nhưng hãy phát huy hết sức mình để tăng tính thử thách của cuộc chiến. Sau này, số lần huấn luyện với bọn ta sẽ giảm đi, chiến đấu mô phỏng và huấn luyện với những chủng tộc khác sẽ dần dần tăng lên. Hãy ghi nhớ điều này, Á Không không cần những chiến binh ngu ngốc!"
+
+Sau khi nói hết những gì mình muốn nói, Tomoe quay lưng và rời đi.
+
+Hình như có chuyện cần bàn, Tomoe dùng mắt ra hiệu cho Mio và đi trước.
+
+Đợi đến khi hai người họ đi khuất dạng, những người tộc Orc và Người thằn lằn lại nhìn xung quanh lần nữa. Đương nhiên, lúc này tinh thần của họ rất sa sút. Tộc trưởng và đội trưởng đội chiến binh đang cắn chặt răng, vẻ mặt đầy hối hận, ánh mắt họ chất chứa nỗi đau đớn.
+
+"... Tôi cũng đồng ý với Tomoe. Nói thật, tôi không nghĩ hiện tại mọi người còn đang che giấu sức mạnh của mình. Kể từ giờ, số lần huấn luyện cộng đồng cũng tăng lên, tôi hy vọng mọi người hãy mài giũa sức mạnh với nhau."
+
+... Tuy nhiên, phân ra thứ hạng sao?
+
+Đại loại như là bảng xếp hạng Á Không chăng?
+
+Nếu có những người xếp thứ hạng cao bị coi là quái vật, gọi như vậy chắc cũng không sai.
+
+<br /><br /><br /><br /><br />
+#### **◇◆◇◆◇◆◇◆**
+<br /><br /><br /><br /><br />
+
+Xét theo kết quả, xếp hạng Á Không đại thành công.
+
+Ý tưởng của tôi đã có tên gọi chính thức.
+
+Hình thức tổ chức như sau:
+
+- Vòng đấu loại sẽ được tiến hành bất cứ lúc nào và có thể kiếm được điểm.
+
+- Những người chiến thắng sẽ được tham gia vào vòng đấu chính thức, cuối tuần sẽ chiến đấu vài lần một ngày.
+
+Điều lệ vô cùng đơn giản. Chính vì thế nên mới thú vị.
+
+Theo những gì tôi biết về đại hội đấu tay không, người tham gia phải chiến đấu liên tục, dù tình trạng cơ thể không tốt vẫn phải tiếp tục chiến đấu, tuy nhiên nơi này là Á Không. Cứ mỗi lần cuộc chiến kết thúc, lập tức được dùng ma pháp chữa trị để chữa lành hẳn.
+
+Bởi vậy, trong cả vòng loại, cuộc chiến xếp hạng Á Không chưa bao giờ gây trở ngại cho công việc của ngày hôm sau.
+
+Tám người đứng đầu vòng loại đã được chọn ra, bọn họ sẽ đối mặt với nhau trong chặng đường chọn lọc chính thức.
+
+Quá trình này mất khoảng ba tháng.
+
+Mặc dù tôi không hiểu tại sao bây giờ vẫn chưa tiến hành, nhưng theo kế hoạch của Tomoe, một ngày nào đó cô ấy sẽ áp dụng bốn mùa cho Á Không, những người giành chiến thắng trong các kỳ đại hội xuân hạ thu đông sẽ tập trung lại một lần trong năm, những người giành chiến thắng trong năm sẽ được quyết định tại nơi diễn ra "Trận đấu Ngự tiền".
+
+`Trận đấu Ngự tiền (御前試合): Cuộc tỷ thí giữa hai samurai thuộc các trường phái khác nhau vào thời đại Kanei.
+
+Khi vòng loại mới bắt đầu, cũng có vài người nghi ngờ khả năng làm chiến sĩ của mình, sau đó họ đã trở thành nông dân hoặc nhà nghiên cứu.
+
+Tôi hy vọng bọn họ có thể tìm ra được nghề nghiệp phù hợp với mình hơn.
+
+Hiện tại, sau khi trải qua vài trận đấu, việc tham gia bắt buộc đã được chuyển thành tham gia tự do, và hoạt động giành thứ hạng trong Á Không diễn ra ngày càng sôi nổi.
+
+Vì giai đoạn thi đấu cuối cùng đã bắt đầu, nhất định sẽ có rất nhiều người mong chờ ngày cuối tuần để đi xem thi đấu.
+
+Cả tộc Elder Dwarf cũng đưa lên thư đề nghị mong muốn được xây dựng hội trường thi đấu. Do Tomoe, Mio và các chủng tộc đưa ra các mong muốn của mình về việc xây dựng hội trường, nên tình trạng vô cùng hỗn loạn.
+
+Cuối cùng mọi chuyện cũng kết thúc tốt đẹp, chúng tôi đã quyết định sẽ dùng đấu trường hình tròn cơ bản, làm cho tôi liên tưởng tới đấu trường La Mã cổ đại.
+
+Đấu trường này có thể chứa được rất nhiều người, nên sẽ không thể xảy ra chuyện khán giả bị tràn ra từ hội trường.
+
+Cùng với sự sôi nổi của việc giành thứ hạng Á Không, việc huấn luyện cộng đồng và giao lưu giữa các chủng tộc cũng trở nên phổ biến hơn.
+
+Hiện tại cả tộc Elder Dwarf và Arche cũng tham gia, quy mô đã đạt tới gần tám mươi người.
+
+Kết quả, tộc Orc và Người thằn lằn cũng trở nên tự tin hơn nhiều.
+
+Với sự tham gia của tộc Người lùn - chủng tộc có chất lượng vũ khí cao hơn hẳn những chủng tộc khác, và tộc Arche với năng lực chiến đấu cá nhân vượt trội, các chủng tộc còn lại đang phải ráo riết tìm cách đối phó với bọn họ và dốc sức nâng cao năng lực của bản thân.
+
+Mặc dù sau này nhân số còn có thể tăng lên, nhưng tôi nghĩ lòng kính trọng dành cho những người đứng đầu sẽ càng cao khi số lượng người tham gia càng đông.
+
+Những người chỉ xem cuộc chiến mà không tham gia cũng hét lên đầy phấn khích và hướng ánh mắt ngưỡng mộ của mình dành cho những người có thứ hạng cao.
+
+Địa vị và cách đối xử với bọn họ ở trong quân đội của từng chủng tộc cũng có sự thay đổi lớn.
+
+Ngoài ra, thứ hạng được công khai chỉ có hai mươi vị trí. Nếu muốn biết thông tin cá nhân của bọn họ, chúng tôi cũng sẽ thông báo. Điều này có nghĩa là, toàn bộ cư dân sẽ đều biết danh tính hai mươi người kiệt xuất nhất của Á Không.
+
+Hiện tại tuy không có vấn đề gì, nhưng khi nhân số tăng lên, tôi nghĩ số lượng công bố có thể nâng lên thành ba mươi hoặc năm mươi.
+
+Nhân dịp này, xung quanh hội trường xuất hiện rất nhiều quầy hàng buôn bán lưu động dành cho khán giả.
+
+Ban đầu chỉ là những nông dân thuộc tộc Orc và thợ săn tộc Người thằn lằn kiếm chút tiền tiêu vặt, nhưng kết quả, họ đã kiếm được một số tiền lớn đến khó tin.
+
+Người vui vẻ nhất đương nhiên là Mio.
+
+Có những ngày, cô ấy chỉ thảo luận về gia vị và thực đơn mới với các chủ quầy hàng mà chẳng hề đi vào hội trường thi đấu.
+
+Vì đều là sản phẩm được đặt trên quầy hàng, nên đương nhiên những món ăn trong khu này toàn là thức ăn nhanh, nhưng chúng rất ngon, ngay cả bản thân tôi cũng muốn ăn ở đây nữa. Có vẻ Mio đã tham khảo những món ăn từng nhìn thấy ở Ziege và cố gắng tái hiện lại hương vị yêu thích của mình ở Á Không.
+
+Liên quan đến đồ ăn, Mio cũng xuất sắc và chăm chỉ không kém gì Tomoe, những món ăn chịu ảnh hưởng của Ziege cũng xuất hiện khá nhiều trong quầy hàng.
+
+Càng tiến gần tới vòng đấu quyết định thắng bại sau cùng, bảng xếp hạng Á Không càng trở nên gay cấn và quyết liệt hơn, trận đấu nào tôi cũng xem hết.
+
+Với cảm giác như vậy, vào thời điểm tổ chức Trận đấu Ngự tiền, bầu không khí sôi sục đến mức một phần cư dân nơi đây mong muốn một cuộc chiến tập thể được tổ chức.
+
+Mặc dù tôi hoàn toàn không dự đoán được điều này, nhưng không có gì tốt hơn khi nó trở thành một hoạt động hấp dẫn đối với tất cả mọi người ở Á Không.
+
+Tiếng reo hò hết sức vang dội từ đấu trường hình tròn vào ngày nghỉ chính là bằng chứng cho điều đó.
+
+Đúng là kết quả vượt ngoài mong đợi.
+
+Mục đích ban đầu của chúng tôi vốn chỉ là khôi phục lòng tự tin, nâng cao thực lực cho tộc Orc và tộc Người thằn lằn.
+
+Còn về Tomoe - người nghĩ ra bảng xếp hạng Á Không, cô ấy đã lập kế hoạch này để chọn những người có triển vọng từ nhóm người tham gia và bồi dưỡng họ trở thành chiến binh có thể sử dụng Katana.
+
+Katana là loại vũ khí có đặc tính khá đặc biệt, nhưng bây giờ nó vẫn chưa được hoàn thành, hy vọng cô ấy đừng làm gì quá mức.
+
+Tuy nhiên, có vẻ Tomoe không chỉ là người duy nhất chịu sự ảnh hưởng kỳ lạ, tôi nghe đồn rằng cũng có một người tộc Người thằn lằn nào đó đang bắt đầu nghiên cứu kỹ thuật chiến đấu tay không.
+
+Mặc dù chuyện này cũng có thể coi là kết quả của việc thúc đẩy các chủng tộc giao lưu với nhau... nhưng quả nhiên tôi vẫn có cảm giác người đó đã chệch hướng rồi.
+
+Có điều, ở thế giới này tôi chưa từng thấy ai dùng kỹ thuật chiến đấu bằng tay không thay vì sử dụng vũ khí và ma pháp. Biết đâu, người đó đang cố gắng tạo ra thứ gì rất đáng gờm thì sao?
+
+Rốt cuộc, hiện giờ tôi đã hiểu rõ rồi.
+
+Với phương châm sử dụng bảng xếp hạng Á Không để mài giũa và thúc đẩy các chủng tộc mạnh mẽ hơn, có vẻ như Tomoe đang định tập trung những kiếm khách lại và thực hiện Trận đấu Ngự tiền thực sự tại Á Không.
+
+Trên thực tế, cô ấy đã mặc kệ bảng xếp hạng, hoàn toàn tập trung vào việc chế tạo Katana và đào tạo các chiến binh sử dụng chúng.
+
+Gần đây, trong buổi huấn luyện Katana, cô ấy đã nói rằng "Chỉ với sức mạnh ở trình độ như vậy thì đừng mơ tới việc chiến đấu trước mặt thiếu chủ!!" rồi đá bọn họ bay ra ngoài...
+
+Tóm lại, bảng xếp hạng Á Không cũng phổ biến tương tự như bóng đá ở Nam Mỹ, bóng bầu dục ở Mỹ và bóng chày vào thời kỳ Showa của Nhật Bản.
+
+Đến cả trẻ con cũng say mê nó, quả thực là điều bất ngờ.
+
+Ban đầu, đây chỉ là phương pháp giải quyết vấn đề, nhưng hiện giờ, hoạt động này đã trở thành một loại hình thể thao chuyên nghiệp.
+
+Dù sao, việc Á Không trở nên sôi nổi hơn đã khiến Tomoe và Mio, đương nhiên là cả tôi đều cảm thấy vui mừng.
+
+Vậy là tốt rồi.
+
+Trước tiếng hoan hô vang dội trên đấu trường và mùi thơm hấp dẫn của các loại đồ ăn, chẳng hiểu sao tôi lại nở một nụ cười khổ.
+
+Đây chính là hoạt động thường nhật của Á Không. Và hôm nay, Á Không cũng đang trải qua một ngày bình thường.
