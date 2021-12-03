@@ -21,6 +21,12 @@ img: https://blogger.googleusercontent.com/img/a/AVvXsEj45Iu3h1XxbePnDsrpVyF5NBP
 
 [IMG_2.PNG]:https://blogger.googleusercontent.com/img/a/AVvXsEg1_U485rZhNQt-Y4JItmAzP2m4z9xEP68zk-0Xc0ufPVCuV0biszUGfUZHtVnZ_b72NYSJurPf61Bdb9lSzKWZku23HIXRecTGcyeRV6Ho3UQISl4cD4q9TK-tWG9aSQx0GxW6YAWNUH49pk8yHwJiCn-oapkCQHmQZeobte6CLLy0aesYLbx2ULe1yQ
 
+
+![][IMG_4.PNG]{:class="img-fluid"}
+
+[IMG_4.PNG]:https://blogger.googleusercontent.com/img/a/AVvXsEinEXOaUi15bfupI2M1M6j4_dqMAs14xGEjtoFc83kad_K-W7rJoQDS_RGq4Bq903T7gfPATFLz5JAX_z3UAckn67tHwZgNwYHaqxe2aL3PFpe7v1NOtvJ8LKAuc1dDb1YqXWos-8coe9k9AKv2GPwuDmEx-DtkkFdWBdsIfdyivrt7XH61jkBQqorcEA
+
+
 <br /><br /><br /><br /><br />
 
 それは夢だと理解していた。
@@ -3900,11 +3906,6 @@ img: https://blogger.googleusercontent.com/img/a/AVvXsEj45Iu3h1XxbePnDsrpVyF5NBP
 世界を混沌の渦に巻き込む大いなる災禍によって、世界情勢は大きく変動する事になるのだった。
 
 <br /><br /><br /><br /><br />
-
-![][IMG_4.PNG]{:class="img-fluid"}
-
-[IMG_4.PNG]:https://blogger.googleusercontent.com/img/a/AVvXsEinEXOaUi15bfupI2M1M6j4_dqMAs14xGEjtoFc83kad_K-W7rJoQDS_RGq4Bq903T7gfPATFLz5JAX_z3UAckn67tHwZgNwYHaqxe2aL3PFpe7v1NOtvJ8LKAuc1dDb1YqXWos-8coe9k9AKv2GPwuDmEx-DtkkFdWBdsIfdyivrt7XH61jkBQqorcEA
-
 
 ![][IMG_5.PNG]{:class="img-fluid"}
 
