@@ -21,6 +21,8 @@ img: https://blogger.googleusercontent.com/img/a/AVvXsEj45Iu3h1XxbePnDsrpVyF5NBP
 
 [IMG_2.PNG]:https://blogger.googleusercontent.com/img/a/AVvXsEg1_U485rZhNQt-Y4JItmAzP2m4z9xEP68zk-0Xc0ufPVCuV0biszUGfUZHtVnZ_b72NYSJurPf61Bdb9lSzKWZku23HIXRecTGcyeRV6Ho3UQISl4cD4q9TK-tWG9aSQx0GxW6YAWNUH49pk8yHwJiCn-oapkCQHmQZeobte6CLLy0aesYLbx2ULe1yQ
 
+<br /><br /><br /><br /><br />
+
 それは夢だと理解していた。
 
 叶わぬ夢。
