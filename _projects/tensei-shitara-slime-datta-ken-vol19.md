@@ -3280,7 +3280,7 @@ img: https://blogger.googleusercontent.com/img/a/AVvXsEj45Iu3h1XxbePnDsrpVyF5NBP
 今日の悲しみを乗り越え、明日の戦いに勝利する為に。
 
 <br /><br /><br /><br /><br />
-#### 幕間　正義の軍勢
+# 幕間　正義の軍勢
 <br /><br /><br /><br /><br />
 
 フェルドウェイが〝天星宮〟に帰還すると、丁度ミカエルも戻って来たところだった。
