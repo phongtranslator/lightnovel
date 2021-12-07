@@ -153,7 +153,7 @@ Michael dịch chuyển về phía căn cứ đó.
 
 <br />
 
-Khi thực hiện 『Không Gian Chuyển Di』 từ Thiên Tinh Cung đến căn cứ của Obera, nó đã trở thành một cái vỏ rỗng. Tuy nhiên, anh ta có thể cảm nhận được sự hiện diện của một đội quân lớn gần đó.
+Khi thực hiện 『Dịch Chuyển Không Gian』 từ Thiên Tinh Cung đến căn cứ của Obera, nó đã trở thành một cái vỏ rỗng. Tuy nhiên, anh ta có thể cảm nhận được sự hiện diện của một đội quân lớn gần đó.
 
 Sau đó, Michael hướng ánh mắt về phía đó.
 
